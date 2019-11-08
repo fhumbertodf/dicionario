@@ -47,3 +47,74 @@ Mr. Parker reads the students a story.
 Mr. Parker teaches the students a song.  
 The lunch bell rings.  
 Jessica's first day of school is over.*
+
+## 003 - My Flower Garden.
+
+>*My name is Anne.  
+I love flowers.  
+I have a flower garden.  
+My garden is in front of my house.  
+My neighbour has a garden too.  
+My garden has different types of flowers.  
+I have roses in my garden.  
+I have tulips in my garden.  
+I have petunias in my garden.  
+My garden has different colours.  
+I plant red flowers.  
+I plant orange flowers.  
+I plant blue flowers.  
+I plant purple flowers.  
+I take care of my garden.  
+I water my garden every day.  
+I kill the weeds in my garden.  
+I kill insects that eat my flowers.  
+I love my beautiful garden.*
+
+## 004 - Going Camping.
+
+>*The Bright family went camping on the weekend.  
+The Bright family went to Silent Lake.  
+The Bright family left on Friday.  
+They camped for three days.  
+The Bright family brought a big tent.  
+They brought a lot of food.  
+They brought insect repellant.  
+The Bright family had a campfire on Friday.  
+They roasted marshmallows.  
+They sang campfire songs.  
+On Saturday they went canoeing.  
+On Saturday they went fishing.  
+On Saturday they went swimming.  
+They went hiking on Sunday.  
+The Bright family saw many birds.  
+They saw blue jays.  
+They saw hummingbirds.  
+The Bright family saw many animals.  
+They saw a raccoon.  
+They saw a squirrel.  
+But they didn't see a bear.  
+The Bright family had a fun vacation.*
+
+## 005 - My House.
+
+>*I live in a house.  
+My house is small.  
+My house has two bedrooms.  
+My Mom and Dad sleep in one bedroom.  
+My sister and I share the other bedroom.  
+My house has a kitchen.  
+My Mom and Dad cook dinner there every night.  
+My house has a living room.  
+My family watches television there every night.  
+My house has a big bathroom.  
+My house has a lot of closets.  
+My house has a basement.  
+My Dad has a workshop in the basement.  
+My Dad makes wood furniture.  
+My house does not have a second floor.  
+My house has a garage.  
+My house has a big backyard.  
+My backyard has a maple tree.  
+My backyard has a swimming pool.  
+My backyard has a vegetable garden.  
+My family likes our house.*
