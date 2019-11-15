@@ -1,6 +1,3 @@
-Dictionary
-
-*******
 Tables of contents 
  1. [A-B](https://github.com/fhumbertodf/dicionario/edit/master/READMEAB.md)
  2. [C-D](https://github.com/fhumbertodf/dicionario/edit/master/READMECD.md)
