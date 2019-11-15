@@ -224,3 +224,5 @@ Tables of contents
 3059. [running]() /subs. / adj./ correndo / correr
 3060. [rush]() /subs./ pressa, trânsito
 3061. [rush, -ed]() /reg. verb./ apressar, correr
+3062. [Russia]() /subs./ Russia
+3063. [Russian]() /subs. / adj./ russo
