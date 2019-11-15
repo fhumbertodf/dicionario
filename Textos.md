@@ -235,3 +235,207 @@ Joe must work hard.
 He must pay the money back to his dad.  
 Joe is very happy.  
 Joe owns his first car.*
+
+## 011 - Summer Vacation.
+
+>*Today is the last day of school.  
+It is summer vacation.  
+Grace is very excited.  
+This summer will be fun.  
+Grace is going to visit her Grandparents.  
+They have a cottage.  
+The cottage is on Lake Erie.  
+It is a lot of fun.  
+Grace is going to swim.  
+She is going to play board games.  
+She is going to talk with her grandparents.  
+Grace is going to have fun.  
+Grace is going to a summer camp.  
+She will sleep in a cabin.  
+She will make lots of new friends.  
+Grace will learn campfire songs.  
+Camp will be fun.  
+Grace is going to Cape Cod with her parents.  
+We are going for two weeks.  
+We are going to drive.  
+Grace will see the ocean.  
+Cape Cod will be beautiful.  
+Summer vacation is fun.*
+
+## 012 - Cleaning Up Leaves.
+
+>*The leaves are changing colours.  
+I see red maple leaves.  
+I see orange maple leaves.  
+I see yellow maple leaves.  
+The leaves are beautiful.  
+It is starting to get cold.  
+The wind is strong.  
+Winter is coming.  
+The leaves fall off the trees.  
+On Saturday we will clean them up.  
+The whole family helps.  
+My Dad gets the rake.  
+My Mom gets the garbage bags.  
+My brother and I help too.  
+We gather leaves with our hands.  
+We make a big pile.  
+My brother and I jump in the leaves.  
+We make a big mess.  
+Our parents don't mind.  
+Our parents fill our coats with leaves.  
+We look really big.  
+Everyone laughs.  
+Play time is over.  
+Back to work.*
+
+## 013 - Susan's Wedding Day.
+
+>*Susan is getting married.  
+Her fiancee's name is Michael.  
+They are in love.  
+They are getting married today.  
+Susan wakes up early.  
+She is getting her hair done.  
+Susan is having her make up done too.  
+Susan looks beautiful.  
+She puts on her white wedding dress.  
+She puts on her veil.  
+Susan needs something blue.  
+Her garter is blue.  
+Susan needs something old.  
+Her grandmother's ring is old.  
+Susan needs something borrowed.  
+She is wearing her mother's jewellery.  
+Susan needs something new.  
+Her shoes and dress are new.  
+Susan needs a penny for her shoe.  
+It will bring her good luck.  
+Susan is ready to get married.*
+
+## 014 - Remembrance Day.
+
+>*My grandfather fought in World War II.  
+My grandmother was a nurse in World War II.  
+Today is November 11th.  
+Today is Remembrance Day.  
+Today we celebrate soldiers.  
+Everyone wears a poppy.  
+Poppies are red flowers.  
+Poppies remind me of my grandparents.  
+Poppies remind me of their sacrifice.  
+At 11:00 AM there are two minutes of silence.  
+People remember their friends and family.  
+People recite the poem "In Flanders Field."  
+It is a sad poem.  
+It helps us remember.  
+Today we wish for peace in the world.*
+
+## 015 - Halloween Night.
+
+>*Halloween is fun.  
+My mom buys candy.  
+My Mom buys potato chips.  
+My Mom buys chocolate bars.  
+It is for the trick or treaters.  
+My Mom buys me a costume.  
+It is a ghost costume.  
+I am going to be scary.  
+My sister is going to dress up as a princess.  
+She will have a wand.  
+She will have a crown.  
+She will look beautiful.  
+My Dad buys a pumpkin.  
+It is going to be a Jack O'Lantern.  
+We draw a face on the pumpkin.  
+We carve the face with a knife.  
+Our Jack O'Lantern looks funny.  
+We go trick or treating.  
+We knock on the neighbour's door.  
+We say, "trick or treat."  
+Our neighbours give us candy.  
+We say thanks.  
+We go to many houses.  
+We go home.  
+Our parents check our candy.  
+It's safe.  
+We eat lots of candy.  
+We don't feel very good.  
+We go to bed.*
+
+## 016 - Christmas Eve.
+
+>*Ben and Melissa are getting ready for Christmas.  
+Ben and Melissa's house has lots of lights on the roof.  
+The lights are many colours.  
+Inside they listen to Christmas music.  
+Ben and Melissa drink eggnog.  
+Eggnog tastes good.  
+Ben and Melissa hang stockings on the fireplace.  
+They string popcorn.  
+Ben and Melissa put the popcorn string on the Christmas tree.  
+They put Christmas lights on the tree.  
+They put tinsel on the tree.  
+Ben and Melissa put ornaments on the tree.  
+They put a star on top of the tree.  
+They get ready for Santa Claus.  
+They leave milk and cookies for Santa.  
+Ben opens one present.  
+Melissa opens one present.  
+They go to sleep.  
+Ben and Melissa wake up early.  
+They run down stairs.  
+There are a lot of presents under our tree.  
+They wake up their Mom and Dad.  
+Ben and Melissa open their presents.  
+They love our presents.  
+Everyone cleans up the wrapping paper.  
+It is time for breakfast.*
+
+## 017 - Thanksgiving.
+
+>*We are having Thanksgiving at our house.  
+My whole family is coming.  
+My parents bought a turkey.  
+It weighs 30 pounds.  
+It takes a long time to cook.  
+My Mom wakes up early to cook the turkey.  
+I clean the house with my Dad.  
+The house smells good.  
+We help Mom in the kitchen.  
+I peel potatoes and carrots.  
+My Dad makes pumpkin pies.  
+My Mom cooks squash.  
+I help my Mom make stuffing.  
+I mix the bread and spices.  
+We make good stuffing.  
+It goes inside the turkey.  
+We put on nice clothes.  
+I set the table.  
+My Dad carves the turkey.  
+My Mom makes the gravy.  
+Our relatives arrive.  
+We say "thank you" for all we have.  
+We eat and eat.  
+It is a good Thanksgiving.*
+
+## 018 - Learning How to Drive.
+
+>*Amy is 16 years old.  
+She lives in a small town.  
+Amy is learning how to drive.  
+Amy's dad is giving her lessons.  
+Amy's dad's name is Howard.  
+Amy has had three lessons.  
+Amy and her dad argue during the lessons.  
+Amy's mom is giving her driving lessons.  
+Amy's mom's name is Jane.  
+Jane has given Amy a lesson.  
+Jane has decided to stop giving Amy lessons.  
+Jane and Amy argue during the lessons too.  
+Amy's parents call a driving school.  
+Amy is going to get lessons from a professional.  
+The classes cost $300 for 10 lessons.  
+The lessons are very good.  
+Amy learns how to drive.  
+Amy gets her licence.*
