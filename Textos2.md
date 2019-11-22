@@ -365,40 +365,40 @@ I watch documentaries with him sometimes, but I would rather see a good action f
 
 ## 031 - Flowers.
 
->*There are hundreds of different types of flowers. 
-Most people like roses. 
-Roses grow on bushes, and they smell beautiful. 
-You have to be careful that you don't prick your finger on a rose thorn.
-Roses come in many colors. 
-There are red, pink, yellow and white roses. 
-In the spring, tulips are in bloom. 
-In Ottawa, there are many tulips. 
-Some people go there just to see all the tulips in the spring. 
-Forget-me-nots are also spring flowers. 
-They are tiny and blue. 
-Lilies of the valley look like white bells. 
-Many of the trees have blossoms on them in the springtime. 
-The apple and cherry trees look particularly beautiful when they are in blossom. 
-We have a blossom festival in my town. 
-My neighbors like to plant geraniums, petunias and marigolds in the summer. 
-Some people plant sunflowers. 
-Sunflowers grow very tall. 
-Sometimes a girl will get an orchid for her date. 
-They have bright yellow petals. 
-All of those flowers grow best in the sunshine. 
-If your garden is shady, you have to plant different things. 
-Hostas grow well in a shady garden.
-Chrysanthemums are fall flowers. 
-Chrysanthemums come in many colors also. 
-There are purple, yellow and white chrysanthemums. 
-Flowers are good to give as gifts. 
-Women like to receive a dozen roses on Valentine's Day. 
-Carnations also make a nice gift. 
-They have a very sweet smell.
-Many people give away lilies for Easter. 
-Poinsettias are very festive at Christmas time. 
-If someone goes to a dance, they often give their partner a flower to wear. 
-If you go to a wedding, you will probably see a lot of flowers there. 
+>*There are hundreds of different types of flowers.    
+Most people like roses.  
+Roses grow on bushes, and they smell beautiful.  
+You have to be careful that you don't prick your finger on a rose thorn.  
+Roses come in many colors.  
+There are red, pink, yellow and white roses.  
+In the spring, tulips are in bloom.   
+In Ottawa, there are many tulips.   
+Some people go there just to see all the tulips in the spring.   
+Forget-me-nots are also spring flowers.   
+They are tiny and blue.   
+Lilies of the valley look like white bells.   
+Many of the trees have blossoms on them in the springtime.   
+The apple and cherry trees look particularly beautiful when they are in blossom.   
+We have a blossom festival in my town.   
+My neighbors like to plant geraniums, petunias and marigolds in the summer.   
+Some people plant sunflowers.   
+Sunflowers grow very tall.   
+Sometimes a girl will get an orchid for her date.   
+They have bright yellow petals.   
+All of those flowers grow best in the sunshine.   
+If your garden is shady, you have to plant different things.   
+Hostas grow well in a shady garden.  
+Chrysanthemums are fall flowers.   
+Chrysanthemums come in many colors also.   
+There are purple, yellow and white chrysanthemums.   
+Flowers are good to give as gifts.   
+Women like to receive a dozen roses on Valentine's Day.   
+Carnations also make a nice gift.   
+They have a very sweet smell.  
+Many people give away lilies for Easter.   
+Poinsettias are very festive at Christmas time.   
+If someone goes to a dance, they often give their partner a flower to wear.   
+If you go to a wedding, you will probably see a lot of flowers there.   
 Flowers help to make places beautiful.*
 
 ## 032 - The Shopping Mall.
