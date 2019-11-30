@@ -70,6 +70,8 @@ I kill the weeds in my garden.
 I kill insects that eat my flowers.  
 I love my beautiful garden.*
 
+Where is Anne's garden? How many types of flowers does her garden have? Wich color are the flowers? What does Anne do every day? Why does Anne kill the insects?
+
 ## 004 - Going Camping.
 
 >*The Bright family went camping on the weekend.  
@@ -95,6 +97,8 @@ They saw a squirrel.
 But they didn't see a bear.  
 The Bright family had a fun vacation.*
 
+Where did the Bright family go on the weekend? How long did they go? What did they sing? What did they do on Sunday? Which animals did they see?
+
 ## 005 - My House.
 
 >*I live in a house.  
@@ -118,6 +122,8 @@ My backyard has a maple tree.
 My backyard has a swimming pool.  
 My backyard has a vegetable garden.  
 My family likes our house.*
+
+How many bedrooms does the house have? Who cooks dinner every night? What does Dad have in the basement? What does Dad make?  What is in the backyard?
 
 ## 006 - My First Pet.
 
@@ -143,6 +149,8 @@ Milo likes to sit in my lap.
 Milo likes to sleep on my bed.  
 Milo is a good pet.*
 
+How old is Sarah? Which color are Milo's paw? What can't Milo have? What does Milo like to hunt? Where does Milo like to sleep?
+
 ## 007 - Jennifer the Firefighter.
 
 >*Jennifer Smith is a firefighter.  
@@ -162,6 +170,8 @@ Jennifer's daughters are proud of her too.
 Jennifer is happy being a firefighter.  
 Jennifer is happy being a wife.  
 Jennifer is happy being a mother.*
+
+What is Jennifer's job? What does she want her muscles to be? What is her husband's job? How many daughters does she have? Who are proud of Jennifer?
 
 ## 008 - Mark's Big Game.
 
@@ -185,6 +195,8 @@ Mark's parents want him to go to college.
 They want him to have an education.  
 They want Mark to be successful.  
 They want Mark to be happy.*
+
+How often does Mark pratice? How long are the pratices? When does Mark play? What does Mark want? What does Mark's parents want?
 
 ## 009 - The Easter Egg Hunt.
 
@@ -212,6 +224,8 @@ Everybody finds lots of chocolate.
 Everybody shares their chocolate.  
 Samantha, Tracey, and Sydney love Easter.*
 
+Who is going to an Easter egg hunt? Who hid chocolate eggs and bunnies? Where does Samantha find an Easter? Where does Tracey find a chocolate bunny? What does Sydney find in front of the television?
+
 ## 010 - Joe's First Car.
 
 >*Joe is 18 years old.  
@@ -235,6 +249,8 @@ Joe must work hard.
 He must pay the money back to his dad.  
 Joe is very happy.  
 Joe owns his first car.*
+
+Where does Joe work? What does Joe want to buy? Who does he see car with? What does his dad tell him? What will Joe's dad do?
 
 ## 011 - Summer Vacation.
 
@@ -261,6 +277,8 @@ We are going to drive.
 Grace will see the ocean.  
 Cape Cod will be beautiful.  
 Summer vacation is fun.*
+
+Who is Grace going to visit? Where is the cottage? Where will Grace sleep? What will Grace learn? Where is Grace going with her parent?
 
 ## 012 - Cleaning Up Leaves.
 
@@ -313,6 +331,8 @@ Susan needs a penny for her shoe.
 It will bring her good luck.  
 Susan is ready to get married.*
 
+What's Susan's fiancées name? Who wakes up early? Which is blue? What is Susan wearing? What does Susan need for her shoe?
+
 ## 014 - Remembrance Day.
 
 >*My grandfather fought in World War II.  
@@ -330,6 +350,8 @@ People recite the poem "In Flanders Field."
 It is a sad poem.  
 It helps us remember.  
 Today we wish for peace in the world.*
+
+What was the grandmother's job in World War II? When Remembrance Day? What does everyone wear? How many minutes of silence are there? What do people recite?
 
 ## 015 - Halloween Night.
 
@@ -363,6 +385,8 @@ We eat lots of candy.
 We don't feel very good.  
 We go to bed.*
 
+What does Mom buy? Who is the sister is going to dress up as? What does Dad buy? What do they carve on the pumpkin? What do neighbors give them?
+
 ## 016 - Christmas Eve.
 
 >*Ben and Melissa are getting ready for Christmas.  
@@ -391,6 +415,8 @@ Ben and Melissa open their presents.
 They love our presents.  
 Everyone cleans up the wrapping paper.  
 It is time for breakfast.*
+
+Where do they put the Christmas lights? What do they leave for Santa? Who wakes up early? Where are the presents? What does everyone clean up?
 
 ## 017 - Thanksgiving.
 
