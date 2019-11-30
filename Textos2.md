@@ -82,6 +82,8 @@ I wash my face and hands, and brush my teeth.
 I change into my pajamas.  
 I go to bet, at nine o’clock.*
 
+Where do the boys play? What time do they get out of shcool?
+
 ## 022 - Meals.
 
 >*Breakfast is very rushed at our house.  
