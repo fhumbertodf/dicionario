@@ -617,8 +617,7 @@ The seasons follow one after each other.*
 
 ## 024 - Weather.
 
->*You can watch the weatherman on TV,  
-to find out what the weather will be like.  
+>*You can watch the weatherman on TV, to find out what the weather will be like.  
 It might be a nice clear day with no clouds in the sky.  
 The sun might be shining.  
 It could be a cloudy day.  
