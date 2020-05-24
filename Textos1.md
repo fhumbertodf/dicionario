@@ -465,6 +465,7 @@ The classes cost $300 for 10 lessons.
 The lessons are very good.  
 Amy learns how to drive.  
 Amy gets her licence.*
+
 ## 019 - Housework.
 
 >*There is always housework to do when you live in a house.  
@@ -584,6 +585,8 @@ My favorite fruits are apples, peaches, plums and bananas.
 After supper, my mother always has a cup of tea with sugar and cream in it.  
 After dinner, I help my mother with the dishes.  
 Usually she washes the dishes, and I will dry them.*
+
+What does father have for breakfast? What does the family do at supper time? What do parents have with their dinner? What does mother always have after supper?
 
 ## 023 - Seasons.
 
