@@ -175,7 +175,6 @@ We have a blossom festival in my town.
 My neighbors like to plant geraniums, petunias and marigolds in the summer.   
 Some people plant sunflowers.   
 Sunflowers grow very tall.   
-Sometimes a girl will get an orchid for her date.   
 They have bright yellow petals.   
 All of those flowers grow best in the sunshine.   
 If your garden is shady, you have to plant different things.   
@@ -189,7 +188,8 @@ Carnations also make a nice gift.
 They have a very sweet smell.  
 Many people give away lilies for Easter.   
 Poinsettias are very festive at Christmas time.   
-If someone goes to a dance, they often give their partner a flower to wear.   
+If someone goes to a dance, they often give their partner a flower to wear. 
+Sometimes a girl will get an orchid for her date.   
 If you go to a wedding, you will probably see a lot of flowers there.   
 Flowers help to make places beautiful.*
 
