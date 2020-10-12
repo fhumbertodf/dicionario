@@ -169,7 +169,7 @@ Some people go there just to see all the tulips in the spring.
 Forget-me-nots are also spring flowers.   
 They are tiny and blue.   
 Lilies of the valley look like white bells.   
-Many of the trees have blossoms on them in the springtime.   
+Where I live, many of the trees have blossoms on them in the springtime.   
 The apple and cherry trees look particularly beautiful when they are in blossom.   
 We have a blossom festival in my town.   
 My neighbors like to plant geraniums, petunias and marigolds in the summer.   
