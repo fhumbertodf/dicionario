@@ -512,7 +512,7 @@ I met some very good friends there.
 We still write to each other.  
 Maybe we'll see each other next summer.*
 
-## 70 | My House.
+## 70: My House.
 
 >*I live in a two-storey house.  
 The bottom of the house is painted white.  
@@ -553,7 +553,7 @@ We keep the car in the garage whenever the weather is bad.
 Our house is just the right size for our family.  
 Friends are always welcome at our house.*
 
-## 71 | My Family.
+## 71: My Family.
 
 >*My grandparents are coming to visit us from Calgary, Alberta.  
 My father is very happy because they are his parents, and he is glad that he will see them.  
@@ -583,7 +583,7 @@ My parents talk to my brothers, my sister and I a lot.
 We are a very close-knit family.  
 People who have close families are very lucky.*
 
-## 72 | Winter.
+## 72: Winter.
 
 >*Once the fall is over and the snowflakes start to fall I get very excited.  
 I can hardly wait for the ground to be covered with a blanket of white snow.  
@@ -613,7 +613,7 @@ In the morning, when the sun shines on the snow, it glistens.
 I like to leave my footprints in the snow.  
 Winter can be very beautiful and exciting.*
 
-## 73 | Autumn.
+## 73: Autumn.
 
 >*Some people call autumn the "fall."  
 You can call it either one.  
@@ -642,7 +642,7 @@ My parents rake the leaves up and put them in big pile.
 I like to jump in the big piles of leaves, but then my parents just have to rake them up again.  
 The skies get a little cloudier in the autumn, and we know that soon there will be snow, so we enjoy the brisk autumn weather while we can.*
 
-## 74 | Summer.
+## 74: Summer.
 
 >*Yahoo! School is over!  
 We are free for the summer.  
@@ -680,7 +680,7 @@ I like the sounds, smells and feelings that come with the summer sun.
 Summer is a lot of fun.  
 I wish summer could go on forever.*
 
-## 75 | The Doctor.
+## 75: The Doctor.
 
 >*I didn't feel very well last week.  
 I had a sore throat and a fever.  
