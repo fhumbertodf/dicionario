@@ -1,15 +1,15 @@
 ## 76: The Dentist.
 
->*My friend's father is a dentist. 
-He has an office near my house. 
-I went to see him on Thursday.
-His nurse told me to sit in a very big chair. 
-She tied a bib under my chin. 
-The dentist came in. 
-He examined my teeth with some shiny silver tools. 
-He looked at my front teeth and my back teeth.
-He told me that the back teeth were called molars. 
-He told me to "open wide." 
+>*My friend's father is a dentist.  
+He has an office near my house.  
+I went to see him on Thursday.  
+His nurse told me to sit in a very big chair.  
+She tied a bib under my chin.  
+The dentist came in.  
+He examined my teeth with some shiny silver tools.  
+He looked at my front teeth and my back teeth.  
+He told me that the back teeth were called molars.  
+He told me to "open wide."  
 He had a little mirror that he used to look at my teeth. 
 He said that I had good strong teeth. 
 He told me that I didn't have any cavities. 
