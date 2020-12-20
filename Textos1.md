@@ -22,6 +22,8 @@ My sister and I throw snowballs.
 It starts to snow again.  
 We go inside for hot chocolate.*
 
+What should you use to move earth, snow or sand? 
+
 ## 002 - Jessica's First Day of School.
 
 >*Today is Jessica's first day of kindergarten.  
