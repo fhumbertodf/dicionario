@@ -548,7 +548,7 @@ If it is nice outside, I play with my friends.
 I have supper at five thirty.  
 On some nights, I help my mother to do the dishes.  
 After supper, I do my homework.  
-I wash my face and hands, and brush my teeth.
+I wash my face and hands, and brush my teeth.  
 I change into my pajamas.  
 I go to bet, at nine o’clock.*
 
