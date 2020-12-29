@@ -312,7 +312,7 @@ Back to work.*
 ## 013 - Susan's Wedding Day.
 
 >*Susan is getting married.  
-Her fiancee's name is Michael.  
+Her fiancé name is Michael.  
 They are in love.  
 They are getting married today.  
 Susan wakes up early.  
@@ -361,7 +361,7 @@ What was the grandmother's job in World War II? When Remembrance Day? What does 
 My mom buys candy.  
 My Mom buys potato chips.  
 My Mom buys chocolate bars.  
-It is for the trick or treaters.  
+It is for the trick or treat.  
 My Mom buys me a costume.  
 It is a ghost costume.  
 I am going to be scary.  
