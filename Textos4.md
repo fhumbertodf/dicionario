@@ -262,19 +262,18 @@ There were goldfish in the smaller fishbowls.
 I saw the girl get a goldfish out with a little net.  
 She sold it to a boy who said he had another goldfish at home.  
 There was a very large cage with a parrot in it.  
-I walked up to the cage, and the parrot said "hello." 
+I walked up to the cage, and the parrot said "hello."  
 I was surprised that the parrot could talk.  
 It could say a few things.  
-It said, "I love you," "pretty bird," and "bye-bye." 
+It said, "I love you," "pretty bird," and "bye-bye."  
 I told my mother that I would like a parrot, but she said that parrots need a lot of care and attention.  
-At the back of the store there were some puppies.
+At the back of the store there were some puppies.  
 They seemed glad to see me.  
-I stuck my hand into the cage, and one of them licked my hand.
+I stuck my hand into the cage, and one of them licked my hand.  
 They were very lively.  
 They were running around and chasing their own tails.  
-In the next cage,
-there were two kittens.  
-One of them was playing with a toy, and the other one was asleep.
+In the next cage, there were two kittens.  
+One of them was playing with a toy, and the other one was asleep.  
 The kittens were very small.  
 The one that was sleeping was curled up into a ball.  
 I couldn't even see her face.  
@@ -294,7 +293,7 @@ There were children outside on the playground.
 They all looked very big.  
 I looked atthem, and some ofthem looked at me.  
 I felt very small.  
-My mother and I went into the schooland found the kindergarten room.
+My mother and I went into the schooland found the kindergarten room.  
 There were children in there.  
 Most of them were the same size as me.  
 My mother spoke to the kindergarten teacher.  
@@ -315,16 +314,16 @@ It is a good place to meet new friends and learn all aboutthe world.*
 ## 86 Transportation (2).
 
 >*People move from place toplace.  
-There are lots of ways that youcan move aroundfrom one place toanother.
+There are lots of ways that youcan move aroundfrom one place toanother.  
 Sometimes you can just move yourfeet and walk.  
-Walking is good for you.
+Walking is good for you.  
 Some places are too far to walk to.  
-You might have to ride a bicycle orride on a skateboard.
+You might have to ride a bicycle orride on a skateboard.  
 Some places are too far away to ride your bicycle to.  
 You might have to drive in a car, or a van,or evenatruck.  
 My fatherhasa car.  
 Myunclehasa van.  
-I have never been in a big truck.
+I have never been in a big truck.  
 Trucks are usually used to carry big loads from one city to another.  
 I would like to be a truck driver.  
 I would travel all over and sit high up in the cab.  
@@ -691,11 +690,15 @@ She is fun to be around.*
 >*Last Friday my dad came home from work and said that he had a surprise for us.  
 We tried to guess what the surprise might be.  
 My brother guessed that we were going out for dinner.  
-My dad said "no." My other brother asked if my father had tickets to a hockey game.  
-My dad said "no." My sister asked if we were going on a trip.  
-My dad said "no." My mother knew what the surprise was, so she just stood and smiled at us.  
+My dad said "no."  
+My other brother asked if my father had tickets to a hockey game.  
+My dad said "no."  
+My sister asked if we were going on a trip.  
+My dad said "no."  
+My mother knew what the surprise was, so she just stood and smiled at us.  
 I guessed that we might be getting a swimming pool.  
-My dad said "no." We were getting very frustrated trying to guess what the surprise might be.  
+My dad said "no."  
+We were getting very frustrated trying to guess what the surprise might be.  
 My brother asked how big the surprise was.  
 My dad said that the surprise was quite small.  
 We were not sure what the surprise could be.  
@@ -732,13 +735,15 @@ Do you know what I am saying? Rhyming words is easy to do.
 It's fun for me; it can be fun for you.  
 Just join in and say something or make it into a song that you can sing.  
 There are so many words that rhyme with others.  
-Like "smile" and "mile" and "mothers" and "brothers." I could spend all day just making up these things.  
+Like "smile" and "mile" and "mothers" and "brothers."  
+I could spend all day just making up these things.  
 I could let my imagination fly on wings Up to the clouds and back to my mind.  
 There are so many rhymes that I can find.  
 There are some words that are hard to find rhymes for.  
 I don't use those words anymore.  
 I like to choose words that are easy to rhyme.  
-Like "cat" and "bat" or "lime" and "time." So, give it a try, I know you'll have fun.  
+Like "cat" and "bat" or "lime" and "time."  
+So, give it a try, I know you'll have fun.  
 I'll say "goodbye," my rhyming is done.*
 
 ## 100 Homework
