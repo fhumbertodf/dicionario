@@ -558,7 +558,7 @@ People have vacations in July.
 It is a month to do summer things.  
 It is still summer in August, but the summer is winding down.  
 August is the time to have last minute vacations.  
-In September, we go back to school. 
+In September, we go back to school.  
 The autumn winds begin to blow.  
 October really feels like autumn.  
 October is Halloween time.  
@@ -663,7 +663,8 @@ The farmers spray the crops with pesticides to kill bugs, so it is good to wash 
 >*Many people are afraid of bugs.  
 Some bugs do bad things like eating crops or clothes.  
 Some bugs, such as termites, even eat wood.  
-Other bugs can be good. Spiders catch flies.  
+Other bugs can be good.  
+Spiders catch flies.  
 Flies are not good because they carry germs.  
 Insects get caught in the web that the spider builds.  
 Ants get into homes and eat food.  
