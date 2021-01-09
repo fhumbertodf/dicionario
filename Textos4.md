@@ -431,10 +431,9 @@ them hissed at him. He has to be very careful when heworkswiththesnakes. Thelast
 that we saw atthe zoo was the elephant. He was enormous. He looked at us; then he raised
 his trunk and made a loud sound. It made us jump.*
 
-## 67: The Birth Party.
+## 91 The Museum.
 
->*Article #91 The Museum
-The museum was very interesting. There were so many things in the museum that I would need
+>*The museum was very interesting. There were so many things in the museum that I would need
 more time to really see everything. There were clothes from the past. I don't know how people
 wore some of those things. They look like they would be uncomfortable. I like to wear my jeans.
 There were things from wars. There were bullets, and cannons and even uniforms from the
@@ -450,10 +449,9 @@ cradles that the babies slept in. I tried my best to see everything, but it was 
 The museum is a good place to learn about your past. I tried to imagine my grandparents using
 some of the things that were on display at the museum.*
 
-## 68: My Classroom.
+## 92 The Police.
 
->*Article #92 The Police
-My mother always told me that if I was lost I could go up to a policeman and that he would help
+>*My mother always told me that if I was lost I could go up to a policeman and that he would help
 me to find my way home. I never did get lost, but I always remembered what my mother told
 me about the police. I think policemen look very nice in their uniforms. I see police officers drive
 by in their police cars. In my town we even have police officers on bicycles. Policemen and
@@ -469,10 +467,9 @@ speeding or are not wearing their seatbelts. The police officers warn people or 
 Sometimes they even have to arrest people. Police officers are just doing their job when they
 arrest people. Some people need to be arrested and put in jail to make it safer for the rest of us.*
 
-## 69: Vacation.
+## 93 Pretending.
 
->*Article #93 Pretending
-I like to pretend. I like to make up things that aren't real. I use my imagination. I was pretending
+>*I like to pretend. I like to make up things that aren't real. I use my imagination. I was pretending
 that I was in a time machine. I set the date for a prehistoric time. I turned on the time machine,
 and it buzzed and whirred and spun madly. When it stopped spinning, I opened the door and
 stepped out into a very thick jungle. I listened carefully to the sounds of the jungle. I could hear
@@ -491,10 +488,9 @@ seen. My heart began to pound in my chest. It was coming toward me. I ran toward
 machine and jumped in. I set the dial for the twenty-first century. The machine whirred and
 buzzed. My time machine landed in the twenty-first century. I got away just in time.*
 
-## 70: My House.
+## 94 A Baby.
 
->*Article #94 A Baby
-My aunt just had a baby girl. We went to the hospital to visit my aunt and to see the new baby.
+>*My aunt just had a baby girl. We went to the hospital to visit my aunt and to see the new baby.
 My aunt was feeling fine, although she was just a bit tired. She walked with us to a big window
 that had lots of babies behind it. She pointed to a crib with a baby in it. The baby was wrapped
 in a pink blanket. We all said how pretty the baby looked. I couldn't believe how tiny the baby
@@ -509,10 +505,9 @@ be changed often. The baby has a lot of toys, but she is still too young to play
 aunt says that it won't be long before the baby is crawling and trying to talk. Babies are cute. I
 have seen pictures of myself when I was a baby, and it's hard to believe that I was once that small.*
 
-## 71: My Family.
+## 95 A Wedding.
 
->*Article #95 A Wedding
-The church bells are ringing. I am inside the church waiting for my cousin to walk down the aisle.
+>*The church bells are ringing. I am inside the church waiting for my cousin to walk down the aisle.
 Today is her wedding day. She is a bride. The organist is playing a song on the organ. We all
 stand up and watch my cousin walk down the aisle. She is arm in arm with her father. She is
 dressed in a long white dress and a veil. She looks so beautiful. She looks like a princess. The
@@ -529,10 +524,9 @@ it is said that whoever catches the bouquet will be the next bride. The next day
 groom will leave for their honeymoon. My cousin and her husband are going to Mexico for their
 honeymoon.*
 
-## 72: Winter.
+## 96 My Dad.
 
->*Article #96 My Dad
-My dad is the man whom I respect the most in my life. He works very hard to make the money
+>*My dad is the man whom I respect the most in my life. He works very hard to make the money
 that supports us. My mother has a job too, and she also works very hard. My dad is the principal
 of a high school. He works at the school all day, and often has to go to meetings at night. He
 deals with parents, students and staff. There is always something that he has to deal with. He
@@ -548,10 +542,9 @@ Father's Day I always buy him a card that tells him just how much he means to me
 important to have good parents. I hope that when I have children I will be a good parent like my
 parents are to me. Parents give children the foundation that they need to live good lives.*
 
-## 73: Autumn.
+## 97 My Mother.
 
->*Article #97 My Mother
-My mother does so many things. She has a job at a dress store; she cooks our meals; she cleans
+>*My mother does so many things. She has a job at a dress store; she cooks our meals; she cleans
 the house; she feeds the pets, and she still finds time to spend with us. My mother is always
 busy, but she says that her favorite time is time that she spends with us. My mother works from
 Monday to Friday. When she comes home from work, she makes something for supper. We
@@ -569,10 +562,9 @@ who you go to when you need to be comforted. Mothers are the people who can make
 better. I'm glad that I have the mother that I have. My mother is caring and funny. She is fun to
 be around.*
 
-## 74: Summer.
+## 98 A Surprise.
 
->*Article #98 A Surprise
-Last Friday my dad came home from work and said that he had a surprise for us. We tried to
+>*Last Friday my dad came home from work and said that he had a surprise for us. We tried to
 guess what the surprise might be. My brother guessed that we were going out for dinner. My
 dad said "no." My other brother asked if my father had tickets to a hockey game. My dad said
 "no." My sister asked if we were going on a trip. My dad said "no." My mother knew what the
@@ -588,10 +580,9 @@ We take turns feeding the puppy and taking her out for walks. She is growing qui
 soon be an adult dog. We all agree that the puppy was the nicest surprise that my dad could
 have given us.*
 
-## 75: The Doctor.
+## 99 Rhyming Words.
 
->*Article #99 Rhyming Words
-Sometimes my friends and I play a game. It's something we made up, so it doesn't have a name.
+>*Sometimes my friends and I play a game. It's something we made up, so it doesn't have a name.
 We like to take words that rhyme. We put them together line by line. Do you get the picture
 now? We're playing the game, and this is how. I might say I like to drive a car. I really don't like
 to go very far. If I decide to take a walk, I'd go with a friend so that we could talk. Do you see
@@ -605,8 +596,9 @@ words that are hard to find rhymes for. I don't use those words anymore. I like 
 that are easy to rhyme. Like "cat" and "bat" or "lime" and "time." So, give it a try, I know you'll
 have fun. I'll say "goodbye," my rhyming is done.*
 
-Article #100 Homework
-Sometimes, my teacher gives us homework. I don't mind doing my homework except when the
+## 100 Homework
+
+>*Sometimes, my teacher gives us homework. I don't mind doing my homework except when the
 weather is really nice, and all my friends are outside. On those nights, I'd rather be outside with
 them, so I try to get my homework done quickly. Tonight, I have some English homework. We
 have been reading a book. We have to read a chapter of the book and answer the questions at
@@ -623,5 +615,5 @@ map of Canada, and I have to write the names of all the provinces and their capi
 take me long to do that because I know all the provinces. When my homework is all done, I will
 go outside and play ball with my friends until it is time to come in. I am a good student. I get
 good marks because I like school. My favorite subjects are physical education, English and
-history. Math is my least favorite subject, but I'm trying to improve my marks in that.
+history. Math is my least favorite subject, but I'm trying to improve my marks in that.*
 
