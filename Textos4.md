@@ -209,7 +209,6 @@ I think they're right.*
 ## 83: Garden.
 
 >*The garden is very interesting.  
-  
 I sometimes go outside and I watch allthe things that go on inthe garden.  
 It smellswonderful intheflower garden.  
 There are red, white, pinkand yellow roses that havea sweet smell.  
