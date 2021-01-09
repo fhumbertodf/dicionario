@@ -747,7 +747,7 @@ The most common pets are cats and dogs.
 I think the second most common pets are birds and fish.  
 You can hug a cat or a dog.  
 You can play with a cat or a dog, but it is difficult to play with a bird or a fish.  
-Some birds are very smart, and they can be taught to do things.  
+Some birds are very smart, and they can be taught to do things.    
 Parrots are very clever.  
 Some of them even talk.  
 Birds usually stay in birdcages.  
