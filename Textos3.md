@@ -258,7 +258,8 @@ We also have two dollar coins.
 We call those toonies.  
 We have five dollar bills and ten dollar bills.  
 If you are lucky you will have twenty dollar bills, fifty dollar bills and even hundred dollar bills.  
-Our bills in Canada are different colours. That makes them easy to recognize if you go somewhere to spend them.  
+Our bills in Canada are different colours.  
+That makes them easy to recognize if you go somewhere to spend them.  
 It is wise to save your money.  
 If you save enough, you could have hundreds or thousands of dollars.*
 
