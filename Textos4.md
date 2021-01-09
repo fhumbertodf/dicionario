@@ -206,43 +206,43 @@ It is a good feeling to share with people who do not have as much as you do.
 My parents have always taught us that Christmas is a time for giving, not receiving.  
 I think they're right.*
 
-## 83 Garden.
+## 83: Garden.
 
->*The garden is very interesting. 
-I sometimes go outside and I watch allthe things that go on inthe garden. 
-It smellswonderful intheflower garden. 
-There are red, white, pinkand yellow roses that havea sweet smell. 
-Iwatchthe beesas they takepollenfrom the roses. 
-There are tiny bugs that live on the rose bushes. 
-My mother tries to get rid of the little bugs, but it is difficult to get rid of them. 
-She is glad to see the red ladybugs, who eat the little bugs. 
-The birds like the sunflowers. 
-They like to eat sunflower seeds. 
-There is a birdbath in the garden. 
-The blackbirds and swallows go in there totake a drink orhave a bath. 
-I sometimes see a robin or a blue jay in there too. 
-In the dirt, there are little holes where the ants go in and out. 
-The ants are hard workers. 
-I watch them as they work together as a team to bring food to their nests. 
-There are snails in the garden too. 
-They carry their homes on their backs. 
-They move slowly and leave a silvery trail as they go. 
-They eat the leaves from my mother's plants. 
-My mother also has vegetables growing in her garden. 
-She grows green peas.
-We like to pick those and eat the peas raw, right out of their pods. 
-She grows lettuce and tomatoes too. 
-We have so many tomatoes that we always give some to our neighbors. 
-My mother sends us outside to pick lettuce and tomatoes whenever we have a salad. 
-My favorite vegetables are carrots. 
-Their tops grow above the earth, but the carrots are below the dirt.
-When you pick them, you have to pull the carrots out from under the soil. 
-Weeds also grow in the garden. 
-After a good rainfall, it seems that the weeds just spring up. 
-I pull the weeds out by their roots so that they won't grow back. 
-Weeds choke the good plants, so we don't want them in our garden. 
-Gardening is a good hobby. 
-You get fresh air, sunshine and exercise. 
+>*The garden is very interesting.   
+I sometimes go outside and I watch allthe things that go on inthe garden.  
+It smellswonderful intheflower garden.  
+There are red, white, pinkand yellow roses that havea sweet smell.  
+Iwatchthe beesas they takepollenfrom the roses.  
+There are tiny bugs that live on the rose bushes.  
+My mother tries to get rid of the little bugs, but it is difficult to get rid of them.  
+She is glad to see the red ladybugs, who eat the little bugs.  
+The birds like the sunflowers.  
+They like to eat sunflower seeds.  
+There is a birdbath in the garden.  
+The blackbirds and swallows go in there totake a drink orhave a bath.  
+I sometimes see a robin or a blue jay in there too.  
+In the dirt, there are little holes where the ants go in and out.  
+The ants are hard workers.  
+I watch them as they work together as a team to bring food to their nests.  
+There are snails in the garden too.  
+They carry their homes on their backs.  
+They move slowly and leave a silvery trail as they go.  
+They eat the leaves from my mother's plants.  
+My mother also has vegetables growing in her garden.  
+She grows green peas.  
+We like to pick those and eat the peas raw, right out of their pods.  
+She grows lettuce and tomatoes too.  
+We have so many tomatoes that we always give some to our neighbors.  
+My mother sends us outside to pick lettuce and tomatoes whenever we have a salad.  
+My favorite vegetables are carrots.  
+Their tops grow above the earth, but the carrots are below the dirt.  
+When you pick them, you have to pull the carrots out from under the soil.  
+Weeds also grow in the garden.  
+After a good rainfall, it seems that the weeds just spring up.  
+I pull the weeds out by their roots so that they won't grow back.  
+Weeds choke the good plants, so we don't want them in our garden.  
+Gardening is a good hobby.  
+You get fresh air, sunshine and exercise.  
 You even get beautiful, colorful flowers and nice freshfood.*
 
 ## 84 The Pet Store
@@ -348,10 +348,9 @@ They say that the world is a lot smaller now because of transportation.
 People can travel to all parts of the world quickly and easily. 
 The world is not really smaller, but it has become easy to get to faraway places.*
 
-## 63: Me.
+## 87 Television.
 
->*Article #87 Television
-Do you watch television? My mother says that I watch too much television. I watch
+>*Do you watch television? My mother says that I watch too much television. I watch
 cartoons on Saturday mornings. Cartoons make me laugh. My brother and I each have our
 favorite cartoons. We have trouble deciding which cartoons we will watch. On Saturday
 afternoons,weliketowatchsports. Mybrotherreallylikestowatchbaseball, but usually my
@@ -369,10 +368,9 @@ get lazy. Television is good if you don't spend too much time watching it. You c
 lot from television if you watch the educational channels. I learned about dinosaurs and
 rainforests last week just from watching television.*
 
-## 64: My Cat.
+## 88 My Country.
 
->*Article #88 My Country
-I live in Canada. It is a very large country that is made up of ten provinces and three
+>*I live in Canada. It is a very large country that is made up of ten provinces and three
 territories. Most of the provinces and territories are quite unique. For example, in
 Saskatchewan the land is flat, and it is not surrounded by water. They grow wheat in
 Saskatchewan. BritishColumbiahasmountains. Ihave neverbeentoBritishColumbia, but I
@@ -392,10 +390,9 @@ relaxation. Canada is made up of many different cultures. People ofmanydifferent
 backgrounds live inharmony in Canada. Thatis why I like Canada. In Canada, we celebrate
 our differences.*
 
-## 65: Music.
+## 89 Food.
 
->*Article #89 Food
-What kinds of food do you like to eat? I am lucky, because in Canada there are many foods to
+>*What kinds of food do you like to eat? I am lucky, because in Canada there are many foods to
 choose from. I like to eat hot dogs, hamburgers, and steak. These are all meat products. I also
 like cheese, ice cream and yogurt. These are all dairy products. I like vegetables. My favorite
 vegetables are broccoli, cabbage, carrots and peas. I eat a lot of fruit. I eat whichever fruit is in
@@ -410,10 +407,9 @@ restaurant to restaurant and pretend that I am traveling the world and trying al
 foods from around the world. Sometimes I eat things that aren't good for me. I eat potato
 chips and candies. These foods aren't part of a nutritious diet, but they are fun to eat.*
 
-## 66: Spring.
+## 90 The Zoo.
 
->*Article #90 The Zoo
-My class took a trip to the Toronto Zoo. I had a wonderful time there. My favorite animals
+>*My class took a trip to the Toronto Zoo. I had a wonderful time there. My favorite animals
 werethe lions. They look very powerful and strong. They saythatthelionis the king of the
 forest, and I think that title suits him. The monkeys were funny. They were looking at us
 just as much as we looked atthem. They were swinging from branches and doing tricks to
