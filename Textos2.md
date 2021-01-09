@@ -558,14 +558,16 @@ People have vacations in July.
 It is a month to do summer things.  
 It is still summer in August, but the summer is winding down.  
 August is the time to have last minute vacations.  
-In September, we go back to school. The autumn winds begin to blow.  
+In September, we go back to school. 
+The autumn winds begin to blow.  
 October really feels like autumn.  
 October is Halloween time.  
 November is when we really start to feel the chill.  
 December is the Christmas month.  
 Most people do a lot of Christmas shopping in December.  
 They spend quite a bit of time getting ready for Christmas.  
-All of the months are different. Which month were you born in?*
+All of the months are different.  
+Which month were you born in?*
 
 ## 44 - Days of the Week.
 
@@ -649,7 +651,8 @@ People use grapes to make wine.
 There are many types of berries.  
 There are blackberries, blueberries, raspberries and cranberries, just to name a few.  
 Some fruits are more exotic.  
-There are mangos and papayas. They don't grow in Canada.  
+There are mangos and papayas.  
+They don't grow in Canada.  
 Bananas and oranges don't grow in a Canadian climate either, but we are able to buy them here.  
 Some fruits have to be peeled, and some can be eaten as they are.  
 It is always a good idea to wash fruit before you eat it.  
@@ -666,15 +669,19 @@ Insects get caught in the web that the spider builds.
 Ants get into homes and eat food.  
 Bees are good because honey comes from bees.  
 It is not good if you get stung by a bee.  
-A caterpillar turns into a butterfly. Butterflies can be very beautiful.  
-You can find grasshoppers outside on a sunny day. Grasshoppers hop through the grass.  
+A caterpillar turns into a butterfly.  
+Butterflies can be very beautiful.  
+You can find grasshoppers outside on a sunny day.  
+Grasshoppers hop through the grass.  
 Crickets make a noise by rubbing their legs together.  
-Dragonflies usually live near water. They have large, colourful wings.  
+Dragonflies usually live near water.  
+They have large, colourful wings.  
 Ladybugs are red with little black dots.  
 There are many types of beetles.  
 Nobody wants to have cockroaches in their house.  
 Centipedes have many legs.  
-Fleas get onto your pets and bite them. They make your dog or cat itchy.  
+Fleas get onto your pets and bite them.  
+They make your dog or cat itchy.  
 Mosquitoes can make you itchy when they bite you.  
 Have you ever had a mosquito bite?*
 
@@ -684,17 +691,20 @@ Have you ever had a mosquito bite?*
 There is a stove in the kitchen.  
 Inside the stove there is an oven where you bake things.  
 You can put a cake into the oven to bake.  
-On top of the stove are burners. The burners get hot.  
+On top of the stove are burners.  
+The burners get hot.  
 You put pots or pans on the burners.  
 The refrigerator is where we store the food that needs to be kept cold.  
 We keep milk, eggs, cheese and vegetables in the refrigerator.  
 At the top of the refrigerator is the freezer.  
 The freezer keeps things frozen.  
 We have frozen vegetables, ice cream and ice cubes in the freezer.  
-We have a toaster in the kitchen. You put the bread in the toaster, and it turns into toast.  
+We have a toaster in the kitchen.  
+You put the bread in the toaster, and it turns into toast.  
 We have an electric kettle.  
 We boil water to make tea in the kettle.  
-There is a double sink in the kitchen. That is where we wash the dishes.  
+There is a double sink in the kitchen.  
+That is where we wash the dishes.  
 We turn on the hot tap, and put some dish detergent into the sink to wash the dishes.  
 Sometimes we put the dishes into the dishwasher, and the dishwasher washes the dishes.  
 There are other things in the kitchen.  
@@ -707,7 +717,8 @@ We have dishes that we eat from.
 We have plates for our dinner, and bowls that we can put our soup in.  
 We drink from cups, or coffee mugs, or glasses.  
 We keep our juice in a pitcher or a jug.  
-There is a timer that you can set when you are cooking. The timer buzzes when the food is ready.  
+There is a timer that you can set when you are cooking.  
+The timer buzzes when the food is ready.  
 We also have a microwave oven in the kitchen.  
 If we are in a hurry, we cook our food in the microwave.*
 
