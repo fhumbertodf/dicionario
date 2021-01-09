@@ -384,220 +384,154 @@ I learned about dinosaurs and rainforests last week just from watching televisio
 ## 88 My Country.
 
 >*I live in Canada.  
-It is a very large country that is made up of ten provinces and three
-territories.  
+It is a very large country that is made up of ten provinces and three territories.  
 Most of the provinces and territories are quite unique.  
-For example, in
-Saskatchewan the land is flat, and it is not surrounded by water.  
-They grow wheat in
-Saskatchewan.  
+For example, in Saskatchewan the land is flat, and it is not surrounded by water.  
+They grow wheat in Saskatchewan.  
 BritishColumbiahasmountains.  
-Ihave neverbeentoBritishColumbia, but I
-hear that it is very beautiful.  
-Nova Scotia is on the Atlantic Ocean, so there are many
-fishermen out there.  
+Ihave neverbeentoBritishColumbia, but I hear that it is very beautiful.  
+Nova Scotia is on the Atlantic Ocean, so there are many fishermen out there.  
 The people in the provinces are even different from each other.  
-In
-Quebec,many ofthe people speak French.  
-Inthe MaritimeProvinces,thepeople like to play
-theirownkindofmusic.  
-Theyplayfiddlesandaccordions,andmanyofthemdance very well.
+In Quebec, many ofthe people speak French.  
+Inthe MaritimeProvinces,thepeople like to play theirownkindofmusic.  
+Theyplayfiddlesandaccordions,andmanyofthemdance very well.  
 Nunavut is in the north, so life is quite different there.  
-The people who live in the new
-territory of Nunavut are very close to wildlife.  
+The people who live in the new territory of Nunavut are very close to wildlife.  
 They do a lot of hunting and fishing.  
-It can
-get very cold up in the Arctic where Nunavut is.  
+It can get very cold up in the Arctic where Nunavut is.  
 I live in Ontario.  
-Even within Ontario life can
-be quite different.  
+Even within Ontario life can be quite different.  
 The capital of Ontario is Toronto.  
-Toronto is a very busy citywith lots of
-apartments,officesandshops.  
+Toronto is a very busy citywith lots of apartments,officesandshops.  
 Torontoisanexcitingplace,and it has a lottooffer.  
-There are
-theatresandrestaurantstosuiteverytaste.  
+There are theatresandrestaurantstosuiteverytaste.  
 Theculturein Torontois verydiverse.  
-Ifyoudrive
-a fewmiles north ofToronto, you willfind places that are tranquilandpeaceful.  
-Many people
-leave Toronto on the weekends and drive to their cottages where they find rest and
-relaxation.  
+Ifyoudrive a fewmiles north ofToronto, you willfind places that are tranquilandpeaceful.  
+Many people leave Toronto on the weekends and drive to their cottages where they find rest and relaxation.  
 Canada is made up of many different cultures.  
-People ofmanydifferent ethnic
-backgrounds live inharmony in Canada.  
+People ofmanydifferent ethnic backgrounds live inharmony in Canada.  
 Thatis why I like Canada.  
-In Canada, we celebrate
-our differences.*
+In Canada, we celebrate our differences.*
 
 ## 89 Food.
 
->*What kinds of food do you like to eat? I am lucky, because in Canada there are many foods to
-choose from.  
+>*What kinds of food do you like to eat? I am lucky, because in Canada there are many foods to choose from.  
 I like to eat hot dogs, hamburgers, and steak.  
 These are all meat products.  
-I also
-like cheese, ice cream and yogurt.  
+I also like cheese, ice cream and yogurt.  
 These are all dairy products.  
 I like vegetables.  
-My favorite
-vegetables are broccoli, cabbage, carrots and peas.  
+My favorite vegetables are broccoli, cabbage, carrots and peas.  
 I eat a lot of fruit.  
-I eat whichever fruit is in
-season.  
+I eat whichever fruit is in season.  
 In strawberry season, I eat a lot of strawberries.  
-In peach season, I eat many peaches.
+In peach season, I eat many peaches.  
 Sometimes, my mother will make a peach pie.  
 Many different crops grow in Canada.  
-We have
-many orchards and farms.  
+We have many orchards and farms.  
 Fresh fruit and vegetables are plentiful in Canada.  
-Meat and fish are
-also plentiful here.  
+Meat and fish are also plentiful here.  
 In Canada, we have a lot of different foods to choose from.  
-In my city, there
-are a lot of Italian restaurants.  
+In my city, there are a lot of Italian restaurants.  
 My favorite food at the Italian restaurant is pizza.  
-My parents
-would rather have spaghetti or lasagna.  
-There are Greek restaurants, Mexican restaurants and
-Chinese restaurants; in fact, there are restaurants from most cultures.  
-I can go around from
-restaurant to restaurant and pretend that I am traveling the world and trying all the different
-foods from around the world.  
+My parents would rather have spaghetti or lasagna.  
+There are Greek restaurants, Mexican restaurants and Chinese restaurants; in fact, there are restaurants from most cultures.  
+I can go around from restaurant to restaurant and pretend that I am traveling the world and trying all the different foods from around the world.  
 Sometimes I eat things that aren't good for me.  
-I eat potato
-chips and candies.  
+I eat potato chips and candies.  
 These foods aren't part of a nutritious diet, but they are fun to eat.*
 
 ## 90 The Zoo.
 
 >*My class took a trip to the Toronto Zoo.  
 I had a wonderful time there.  
-My favorite animals
-werethe lions.  
+My favorite animals werethe lions.  
 They look very powerful and strong.  
 They saythatthelionis the king of the
 forest, and I think that title suits him.  
 The monkeys were funny.  
-They were looking at us
-just as much as we looked atthem.  
-They were swinging from branches and doing tricks to
-impress us.  
+They were looking at us just as much as we looked atthem.  
+They were swinging from branches and doing tricks to impress us.  
 There was a baby monkey that was clinging to its mother's back.  
-It was very
-cute.Thetigerswerepacingbackandforth.  
+It was very cute.Thetigerswerepacingbackandforth.  
 Theyseemedrestless.  
-The stripes ona tiger are
-very beautiful.  
+The stripes ona tiger are very beautiful.  
 Wewatched the tall giraffes as they nibbled leaves offthe tallest trees.  
-We
-spoke to a colorful parrot that spoke back to us.  
-We saw exotic animals that we had never
-seen before.  
+We spoke to a colorful parrot that spoke back to us.  
+We saw exotic animals that we had never seen before.  
 Some of them were very strange.  
-There were different types of bears there.
+There were different types of bears there.  
 There were black bears.  
 I saw a black bear once when I was camping up north.  
-We saw
-polarbears.  
+We saw polarbears.  
 Polarbears arewhite.  
 They likethe cold.  
 We even sawpanda bears.  
-One ofmy
-friends bought a toy panda bear from the gift shop because she thought that the pandas
-weresocute.  
+One ofmy friends bought a toy panda bear from the gift shop because she thought that the pandas weresocute.  
 Wesawslitherysnakes.  
 Someofthe snakes hadverybright skins.  
 Mostofthe
 girls were afraid ofthe snakes.  
-The zoo keeper was looking after the snakes, and one of
-them hissed at him.  
+The zoo keeper was looking after the snakes, and one of them hissed at him.  
 He has to be very careful when heworkswiththesnakes.  
-Thelastthing
-that we saw atthe zoo was the elephant.  
+Thelastthing that we saw atthe zoo was the elephant.  
 He was enormous.  
-He looked at us; then he raised
-his trunk and made a loud sound.  
+He looked at us; then he raised his trunk and made a loud sound.  
 It made us jump.*
 
 ## 91 The Museum.
 
 >*The museum was very interesting.  
-There were so many things in the museum that I would need
-more time to really see everything.  
+There were so many things in the museum that I would need more time to really see everything.  
 There were clothes from the past.  
-I don't know how people
-wore some of those things.  
+I don't know how people wore some of those things.  
 They look like they would be uncomfortable.  
-I like to wear my jeans.
+I like to wear my jeans.  
 There were things from wars.  
-There were bullets, and cannons and even uniforms from the
-soldiers.  
-I don't think that war is a good thing, but it is good to remember the past and honor the
-people who died for your country.  
+There were bullets, and cannons and even uniforms from the soldiers.  
+I don't think that war is a good thing, but it is good to remember the past and honor the people who died for your country.  
 There was an old fire truck at the museum.  
-This fire truck was
-pulled by a horse.  
+This fire truck was pulled by a horse.  
 There were some very old photographs of the firemen putting out fires.  
-There
-were rooms in the museum that were set up like an old house.  
-There were antique irons and
-sewing machines.  
+There were rooms in the museum that were set up like an old house.  
+There were antique irons and sewing machines.  
 The women used to clean the clothes with a washboard.  
-There were no
-modern appliances back then.  
+There were no modern appliances back then.  
 I'm glad that we have electricity and modern appliances.  
-The
-things that we have make life so much easier.  
-There were mummies from Egypt at the museum.
+The things that we have make life so much easier.  
+There were mummies from Egypt at the museum.  
 I was fascinated by those.  
 There were artifacts from the Indians.  
-There were arrowheads and
-cradles that the babies slept in.  
-I tried my best to see everything, but it was almost impossible.
+There were arrowheads and cradles that the babies slept in.  
+I tried my best to see everything, but it was almost impossible.  
 The museum is a good place to learn about your past.  
-I tried to imagine my grandparents using
-some of the things that were on display at the museum.*
+I tried to imagine my grandparents using some of the things that were on display at the museum.*
 
 ## 92 The Police.
 
->*My mother always told me that if I was lost I could go up to a policeman and that he would help
-me to find my way home.  
-I never did get lost, but I always remembered what my mother told
-me about the police.  
+>*My mother always told me that if I was lost I could go up to a policeman and that he would help me to find my way home.  
+I never did get lost, but I always remembered what my mother told me about the police.  
 I think policemen look very nice in their uniforms.  
-I see police officers drive
-by in their police cars.  
+I see police officers drive by in their police cars.  
 In my town we even have police officers on bicycles.  
-Policemen and
-policewomen have a job that can sometimes be dangerous.  
-They have to catch people who
-break the law.  
+Policemen and policewomen have a job that can sometimes be dangerous.  
+They have to catch people who break the law.  
 Sometimes, they have to chase people or try to calm people down.  
-To be a police
-officer you need a lot of training.  
+To be a police officer you need a lot of training.  
 It is important to be able to deal with people effectively.  
-A
-police officer came to our school.  
+A police officer came to our school.  
 He had a police dog with him.  
-The officer showed us how the
-dog could track down criminals.  
+The officer showed us how the dog could track down criminals.  
 The dog was very smart.  
-He could even find things that were
-hidden.  
+He could even find things that were hidden.  
 Criminals sometimes hide things that they don't want the police to find.  
-The policeman
-told us that he and his dog were partners.  
-His dog lives at his house with the policeman and his
-family.  
+The policeman told us that he and his dog were partners.  
+His dog lives at his house with the policeman and his family.  
 Sometimes I see police cars on the side of the road.  
-The police stop people who are
-speeding or are not wearing their seatbelts.  
-The police officers warn people or give out tickets.
+The police stop people who are speeding or are not wearing their seatbelts.  
+The police officers warn people or give out tickets.  
 Sometimes they even have to arrest people.  
-Police officers are just doing their job when they
-arrest people.  
+Police officers are just doing their job when they arrest people.  
 Some people need to be arrested and put in jail to make it safer for the rest of us.*
 
 ## 93 Pretending.
@@ -605,343 +539,235 @@ Some people need to be arrested and put in jail to make it safer for the rest of
 >*I like to pretend.  
 I like to make up things that aren't real.  
 I use my imagination.  
-I was pretending
-that I was in a time machine.  
+I was pretending that I was in a time machine.  
 I set the date for a prehistoric time.  
-I turned on the time machine,
-and it buzzed and whirred and spun madly.  
-When it stopped spinning, I opened the door and
-stepped out into a very thick jungle.  
+I turned on the time machine, and it buzzed and whirred and spun madly.  
+When it stopped spinning, I opened the door and stepped out into a very thick jungle.  
 I listened carefully to the sounds of the jungle.  
-I could hear
-strange animal noises, and the leaves were rustling.  
-I wasn't sure if I had gone back in time or
-had just landed in a jungle somewhere in the twenty first century.  
-It didn't take me long to realize
-that I had indeed gone back in time.  
-A very strange bird-like creature with a large beak flew
-overhead.  
+I could hear strange animal noises, and the leaves were rustling.  
+I wasn't sure if I had gone back in time or had just landed in a jungle somewhere in the twenty first century.  
+It didn't take me long to realize that I had indeed gone back in time.  
+A very strange bird-like creature with a large beak flew overhead.  
 I had never seen anything like it in my life.  
-I took a few steps out into the long grass
-and ferns.  
+I took a few steps out into the long grass and ferns.  
 I didn't want to go too far away from my time machine.  
-I heard a noise over on my
-right side.  
+I heard a noise over on my right side.  
 There was a man who looked quite different from me.  
-He was dressed in an animal
-skin, and he carried a big stick.  
+He was dressed in an animal skin, and he carried a big stick.  
 I didn't want him to see me, so I hid behind a tree.  
-He didn't speak
-any language that I could understand.  
-He grunted at someone who must have been in the
-distance.  
+He didn't speak any language that I could understand.  
+He grunted at someone who must have been in the distance.  
 Then, I felt the earth shake beneath my feet.  
-I heard giant thumps on the ground as
-the floor of the jungle shook.  
+I heard giant thumps on the ground as the floor of the jungle shook.  
 The man in the animal skin began to run.  
-I saw why he was running.
+I saw why he was running.  
 A giant dinosaur appeared above the tops of the trees.  
-It was bigger than anything I had ever
-seen.  
+It was bigger than anything I had ever seen.  
 My heart began to pound in my chest.  
 It was coming toward me.  
-I ran toward my time
-machine and jumped in.  
+I ran toward my time machine and jumped in.  
 I set the dial for the twenty-first century.  
-The machine whirred and
-buzzed.  
+The machine whirred and buzzed.  
 My time machine landed in the twenty-first century.  
 I got away just in time.*
 
 ## 94 A Baby.
 
 >*My aunt just had a baby girl.  
-We went to the hospital to visit my aunt and to see the new baby.
+We went to the hospital to visit my aunt and to see the new baby.  
 My aunt was feeling fine, although she was just a bit tired.  
-She walked with us to a big window
-that had lots of babies behind it.  
+She walked with us to a big window that had lots of babies behind it.  
 She pointed to a crib with a baby in it.  
-The baby was wrapped
-in a pink blanket.  
+The baby was wrapped in a pink blanket.  
 We all said how pretty the baby looked.  
-I couldn't believe how tiny the baby
-was.  
+I couldn't believe how tiny the baby was.  
 She was asleep, so we couldn't see her eyes.  
-When the baby went home, we went to visit
-her.  
+When the baby went home, we went to visit her.  
 We heard the baby.  
 She was crying.  
 My aunt said that the baby was hungry.  
-My aunt had
-a baby bottle full of warm milk.  
+My aunt had a baby bottle full of warm milk.  
 She fed the baby with it.  
 The baby was happy after that.  
-My
-aunt patted the baby on the back until the baby burped, and then the baby fell asleep.  
-I held the
-baby.  
+My aunt patted the baby on the back until the baby burped, and then the baby fell asleep.  
+I held the baby.  
 I looked at her tiny fingers and tiny toes.  
 I was very careful with her.  
-She opened her eyes
-and looked at me.  
+She opened her eyes and looked at me.  
 I spoke to the baby, but I knew that she could not understand me.  
-Babies
-have to learn to walk and talk.  
+Babies have to learn to walk and talk.  
 My aunt changed the baby.  
-Babies wear diapers, so they need to
-be changed often.  
+Babies wear diapers, so they need to be changed often.  
 The baby has a lot of toys, but she is still too young to play with them.  
-My
-aunt says that it won't be long before the baby is crawling and trying to talk.  
+My aunt says that it won't be long before the baby is crawling and trying to talk.  
 Babies are cute.  
-I
-have seen pictures of myself when I was a baby, and it's hard to believe that I was once that small.*
+I have seen pictures of myself when I was a baby, and it's hard to believe that I was once that small.*
 
 ## 95 A Wedding.
 
 >*The church bells are ringing.  
-I am inside the church waiting for my cousin to walk down the aisle.
+I am inside the church waiting for my cousin to walk down the aisle.  
 Today is her wedding day.  
 She is a bride.  
 The organist is playing a song on the organ.  
-We all
-stand up and watch my cousin walk down the aisle.  
+We all stand up and watch my cousin walk down the aisle.  
 She is arm in arm with her father.  
-She is
-dressed in a long white dress and a veil.  
+She is dressed in a long white dress and a veil.  
 She looks so beautiful.  
 She looks like a princess.  
-The
-man who she is going to marry is standing at the front of the church.  
+The man who she is going to marry is standing at the front of the church.  
 He is the groom.  
-He looks
-nice too.  
+He looks nice too.  
 He is wearing a suit, and he has a flower in his lapel.  
-The minister says words to the
-couple which will make them man and wife.  
-The bride and groom smile at each other, but they
-seem to be a little bit nervous.  
-The give each other gold rings to wear to symbolize that they are
-married.  
-They kiss each other and walk out of the church as the organist plays joyous music.
+The minister says words to the couple which will make them man and wife.  
+The bride and groom smile at each other, but they seem to be a little bit nervous.  
+The give each other gold rings to wear to symbolize that they are married.  
+They kiss each other and walk out of the church as the organist plays joyous music.  
 Some of the people in the church cried at the wedding, but not because they were sad.  
-Everyone
-in the church is very happy for the couple.  
-A photographer takes pictures of the happy couple.
-We wish them well and look forward to the reception where we will have a dinner, and we will
-dance and have a good time until it is very late.  
-The bride will throw her bouquet of flowers, and
-it is said that whoever catches the bouquet will be the next bride.  
-The next day, the bride and
-groom will leave for their honeymoon.  
-My cousin and her husband are going to Mexico for their
-honeymoon.*
+Everyone in the church is very happy for the couple.  
+A photographer takes pictures of the happy couple.  
+We wish them well and look forward to the reception where we will have a dinner, and we will dance and have a good time until it is very late.  
+The bride will throw her bouquet of flowers, and it is said that whoever catches the bouquet will be the next bride.  
+The next day, the bride and groom will leave for their honeymoon.  
+My cousin and her husband are going to Mexico for their honeymoon.*
 
 ## 96 My Dad.
 
 >*My dad is the man whom I respect the most in my life.  
-He works very hard to make the money
-that supports us.  
+He works very hard to make the money that supports us.  
 My mother has a job too, and she also works very hard.  
-My dad is the principal
-of a high school.  
+My dad is the principal of a high school.  
 He works at the school all day, and often has to go to meetings at night.  
-He
-deals with parents, students and staff.  
+He deals with parents, students and staff.  
 There is always something that he has to deal with.  
-He
-has a lot on his mind.  
-It doesn't matter how much work my dad has to do; he always has time for
-my brothers, my sister and me.  
-If I go to him with a problem, he will sit down and discuss it with
-me.  
+He has a lot on his mind.  
+It doesn't matter how much work my dad has to do; he always has time for my brothers, my sister and me.  
+If I go to him with a problem, he will sit down and discuss it with me.  
 He doesn't yell.  
-He is always very logical, and he tries to think of the best way to deal with
-things.  
+He is always very logical, and he tries to think of the best way to deal with things.  
 My dad is a very patient man.  
-Once, I spilled some ink on some papers that he was
-working on.  
+Once, I spilled some ink on some papers that he was working on.  
 I thought that he would be mad, but he didn't get angry.  
-He said that it was okay.
+He said that it was okay.  
 He takes time out to do things with us.  
 He has taken my brothers fishing.  
-He takes me to the
-arena to skate, and he helps my sister to write her essays and assignments.  
-He always makes us
-laugh, and he makes us feel like we are very special to him.  
-He is a very good father, and on
-Father's Day I always buy him a card that tells him just how much he means to me.  
-I think it is
-important to have good parents.  
-I hope that when I have children I will be a good parent like my
-parents are to me.  
+He takes me to the arena to skate, and he helps my sister to write her essays and assignments.  
+He always makes us laugh, and he makes us feel like we are very special to him.  
+He is a very good father, and on Father's Day I always buy him a card that tells him just how much he means to me.  
+I think it is important to have good parents.  
+I hope that when I have children I will be a good parent like my parents are to me.  
 Parents give children the foundation that they need to live good lives.*
 
 ## 97 My Mother.
 
 >*My mother does so many things.  
-She has a job at a dress store; she cooks our meals; she cleans
-the house; she feeds the pets, and she still finds time to spend with us.  
-My mother is always
-busy, but she says that her favorite time is time that she spends with us.  
-My mother works from
-Monday to Friday.  
+She has a job at a dress store; she cooks our meals; she cleans the house; she feeds the pets, and she still finds time to spend with us.  
+My mother is always busy, but she says that her favorite time is time that she spends with us.  
+My mother works from Monday to Friday.  
 When she comes home from work, she makes something for supper.  
-We
-usually do the dishes, so that she won't have to do them.  
-After supper, she helps us with our
-homework, or she sits down to watch television.  
-Some nights she goes shopping, and she takes
-whoever wants to go with her.  
+We usually do the dishes, so that she won't have to do them.  
+After supper, she helps us with our homework, or she sits down to watch television.  
+Some nights she goes shopping, and she takes whoever wants to go with her.  
 Mothers are a little bit of everything.  
-My mother is like a teacher
-when she helps us with our homework.  
-She is like a nurse when she looks after us when we're ill.
+My mother is like a teacher when she helps us with our homework.  
+She is like a nurse when she looks after us when we're ill.  
 She is like a cook when she makes meals for us.  
-She says that cleaning the house is her least
-favorite thing.  
+She says that cleaning the house is her least favorite thing.  
 She says that the house gets dirty again right after you clean it.  
-She gets my
-father, my brothers, sister and me to help her with the cleaning.  
-My mother washes all our
-clothes, and sometimes she irons them if they need it.  
-My mother says that there are not enough
-hours in a day.  
+She gets my father, my brothers, sister and me to help her with the cleaning.  
+My mother washes all our clothes, and sometimes she irons them if they need it.  
+My mother says that there are not enough hours in a day.  
 We try to help my mother as much as we can.  
-There is a lot of work involved in
-keeping a home neat and organized.  
+There is a lot of work involved in keeping a home neat and organized.  
 Most of my friends' mothers work.  
-Mothers are the people
-who you go to when you need to be comforted.  
-Mothers are the people who can make you feel
-better.  
+Mothers are the people who you go to when you need to be comforted.  
+Mothers are the people who can make you feel better.  
 I'm glad that I have the mother that I have.  
 My mother is caring and funny.  
-She is fun to
-be around.*
+She is fun to be around.*
 
 ## 98 A Surprise.
 
 >*Last Friday my dad came home from work and said that he had a surprise for us.  
-We tried to
-guess what the surprise might be.  
+We tried to guess what the surprise might be.  
 My brother guessed that we were going out for dinner.  
-My
-dad said "no." My other brother asked if my father had tickets to a hockey game.  
-My dad said
-"no." My sister asked if we were going on a trip.  
-My dad said "no." My mother knew what the
-surprise was, so she just stood and smiled at us.  
-I guessed that we might be getting a swimming
-pool.  
-My dad said "no." We were getting very frustrated trying to guess what the surprise might
-be.  
+My dad said "no." My other brother asked if my father had tickets to a hockey game.  
+My dad said "no." My sister asked if we were going on a trip.  
+My dad said "no." My mother knew what the surprise was, so she just stood and smiled at us.  
+I guessed that we might be getting a swimming pool.  
+My dad said "no." We were getting very frustrated trying to guess what the surprise might be.  
 My brother asked how big the surprise was.  
-My dad said that the surprise was quite small.
+My dad said that the surprise was quite small.  
 We were not sure what the surprise could be.  
 "Will we all like it?" I asked.  
-"Yes" my dad replied.
+"Yes" my dad replied.  
 Every one of you will love this surprise.  
 We heard a noise.  
 It was a crying noise.  
-"Your surprise
-wants to see you," my dad said.  
-He opened the door to the bedroom, and a tiny puppy came
-running out.  
+"Your surprise wants to see you," my dad said.  
+He opened the door to the bedroom, and a tiny puppy came running out.  
 We were all very excited.  
 Our surprise was a puppy.  
 It was a little baby spaniel.  
-The
-puppy loved all of us.  
+The puppy loved all of us.  
 She ran around and licked all of our faces.  
-We had always wanted a dog.
+We had always wanted a dog.  
 We take turns feeding the puppy and taking her out for walks.  
-She is growing quickly and will
-soon be an adult dog.  
-We all agree that the puppy was the nicest surprise that my dad could
-have given us.*
+She is growing quickly and will soon be an adult dog.  
+We all agree that the puppy was the nicest surprise that my dad could have given us.*
 
 ## 99 Rhyming Words.
 
 >*Sometimes my friends and I play a game.  
-It's something we made up, so it doesn't have a name.
+It's something we made up, so it doesn't have a name.  
 We like to take words that rhyme.  
 We put them together line by line.  
-Do you get the picture
-now? We're playing the game, and this is how.  
+Do you get the picture now? We're playing the game, and this is how.  
 I might say I like to drive a car.  
-I really don't like
-to go very far.  
+I really don't like to go very far.  
 If I decide to take a walk, I'd go with a friend so that we could talk.  
-Do you see
-that these lines rhyme? Play the game if you have the time.  
-We could talk about school or even
-playing.  
+Do you see that these lines rhyme? Play the game if you have the time.  
+We could talk about school or even playing.  
 Do you know what I am saying? Rhyming words is easy to do.  
-It's fun for me; it can be
-fun for you.  
+It's fun for me; it can be fun for you.  
 Just join in and say something or make it into a song that you can sing.  
-There are so
-many words that rhyme with others.  
-Like "smile" and "mile" and "mothers" and "brothers." I
-could spend all day just making up these things.  
-I could let my imagination fly on wings Up to
-the clouds and back to my mind.  
+There are so many words that rhyme with others.  
+Like "smile" and "mile" and "mothers" and "brothers." I could spend all day just making up these things.  
+I could let my imagination fly on wings Up to the clouds and back to my mind.  
 There are so many rhymes that I can find.  
-There are some
-words that are hard to find rhymes for.  
+There are some words that are hard to find rhymes for.  
 I don't use those words anymore.  
-I like to choose words
-that are easy to rhyme.  
-Like "cat" and "bat" or "lime" and "time." So, give it a try, I know you'll
-have fun.  
+I like to choose words that are easy to rhyme.  
+Like "cat" and "bat" or "lime" and "time." So, give it a try, I know you'll have fun.  
 I'll say "goodbye," my rhyming is done.*
 
 ## 100 Homework
 
 >*Sometimes, my teacher gives us homework.  
-I don't mind doing my homework except when the
-weather is really nice, and all my friends are outside.  
-On those nights, I'd rather be outside with
-them, so I try to get my homework done quickly.  
+I don't mind doing my homework except when the weather is really nice, and all my friends are outside.  
+On those nights, I'd rather be outside with them, so I try to get my homework done quickly.  
 Tonight, I have some English homework.  
-We
-have been reading a book.  
-We have to read a chapter of the book and answer the questions at
-the end of the chapter.  
+We have been reading a book.  
+We have to read a chapter of the book and answer the questions at the end of the chapter.  
 It is an interesting book, so the homework for this is quite easy.  
-My math
-homework is not so easy.  
+My math homework is not so easy.  
 I have to do some addition and subtraction.  
-I don't mind that, but
-there are some problems that need to be solved.  
-The problems involve addition, subtraction and
-multiplication.  
+I don't mind that, but there are some problems that need to be solved.  
+The problems involve addition, subtraction and multiplication.  
 I am not too good with numbers.  
 I need to work harder on my math.  
-I just
-finished a project for history.  
-I had to make a map of Canada with diagrams showing the routes
-of all the explorers.  
-It was an interesting project because I have been to some of the places that
-the explorers went to.  
+I just finished a project for history.  
+I had to make a map of Canada with diagrams showing the routes of all the explorers.  
+It was an interesting project because I have been to some of the places that the explorers went to.  
 I don't have any science homework.  
-At school, we are growing bean
-plants.  
+At school, we are growing bean plants.  
 We go in every day and see how the plants have grown.  
-We write down all the changes
-that occur in the plant every day.  
+We write down all the changes that occur in the plant every day.  
 The only other homework that I have is geography.  
-I have a
-map of Canada, and I have to write the names of all the provinces and their capitals on it.  
-It won't
-take me long to do that because I know all the provinces.  
-When my homework is all done, I will
-go outside and play ball with my friends until it is time to come in.  
+I have a map of Canada, and I have to write the names of all the provinces and their capitals on it.  
+It won't take me long to do that because I know all the provinces.  
+When my homework is all done, I will go outside and play ball with my friends until it is time to come in.  
 I am a good student.  
-I get
-good marks because I like school.  
-My favorite subjects are physical education, English and
-history.  
+I get good marks because I like school.  
+My favorite subjects are physical education, English and history.  
 Math is my least favorite subject, but I'm trying to improve my marks in that.*
-
