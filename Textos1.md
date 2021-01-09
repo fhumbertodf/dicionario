@@ -488,7 +488,8 @@ The dishes have to be washed, and the counters need to be wiped.
 The stove needs to be cleaned, and sometimes the refrigerator and the cupboards need 
 to be cleaned out.  
 You can dust the furniture and sweep up the dirt.  
-You can make the beds. The beds have to be changed too.  
+You can make the beds.  
+The beds have to be changed too.  
 They need to have clean sheets put on them.  
 There are just so many things to do.  
 Household chores take up a lot of time.*
@@ -593,9 +594,11 @@ What does father have for breakfast? What does the family do at supper time? Wha
 ## 023 - Seasons.
 
 >*There are four seasons.  
-Winter is the cold season. It snows in the winter.  
+Winter is the cold season.  
+It snows in the winter.  
 The winds blow, and ice forms on the water.  
-We play hockey on the ice. We play in the snow.  
+We play hockey on the ice.  
+We play in the snow.  
 After winter is the spring.  
 That is when it begins to get warmer.  
 Trees get buds on them.  
@@ -612,7 +615,8 @@ Summer is followed by the fall or autumn.
 The leaves on the trees change colors.  
 They change from green to red, orange and brown.  
 The leaves fall off the trees.  
-The weather gets cooler. The days get shorter.  
+The weather gets cooler.  
+The days get shorter.  
 We go back to school in the fall.  
 Then, winter comes again.  
 The seasons follow one after each other.*
