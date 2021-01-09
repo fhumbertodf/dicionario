@@ -206,140 +206,147 @@ It is a good feeling to share with people who do not have as much as you do.
 My parents have always taught us that Christmas is a time for giving, not receiving.  
 I think they're right.*
 
-## 57: Who What Where and Why.
+## 83 Garden.
 
->*Article #83 Garden
-The garden is very interesting. I sometimes go outside and I watch allthe things that go on
-inthe garden. It smellswonderful intheflower garden. Therearered,white,pinkand yellow
-roses that havea sweet smell. Iwatchthe beesas they takepollenfrom the roses. There are
-tiny bugs that live on the rose bushes. My mother tries to get rid of the little bugs, but it is
-difficult to get rid of them. She is glad to see the red ladybugs, who eat the little bugs. The
-birds like the sunflowers. They like to eat sunflower seeds. There is a birdbath in the
-garden. The blackbirds and swallows go in there totake a drink orhave a bath. I sometimes
-see a robin or a blue jay in there too. In the dirt, there are little holes where the ants go in
-and out. The ants are hard workers. I watch them as they work together as a team to bring
-food to their nests. There are snails in the garden too. They carry their homes on their
-backs. They move slowly and leave a silvery trail as they go. They eat the leaves from my
-mother's plants. My mother also has vegetables growing in her garden. She grows green peas.
-We like to pick those and eat the peas raw, right out of their pods. She grows lettuce and
-tomatoes too. We have so many tomatoes that we always give some to our neighbors. My
-mother sends us outside to pick lettuce and tomatoes whenever we have a salad. My favorite
-vegetables are carrots. Their tops grow above the earth, but the carrots are below the dirt.
-When you pick them, you have to pull the carrots out from under the soil. Weeds also grow in
-the garden. After a good rainfall, it seems that the weeds just spring up. I pull the weeds out
-by their roots so that they won't grow back. Weeds choke the good plants, so we don't want
-them in our garden. Gardeningisagoodhobby. Yougetfreshair,sunshineandexercise. You
-evenget beautiful, colorful flowers and nice freshfood.*
+>*The garden is very interesting. 
+I sometimes go outside and I watch allthe things that go on inthe garden. 
+It smellswonderful intheflower garden. 
+There are red, white, pinkand yellow roses that havea sweet smell. 
+Iwatchthe beesas they takepollenfrom the roses. 
+There are tiny bugs that live on the rose bushes. 
+My mother tries to get rid of the little bugs, but it is difficult to get rid of them. 
+She is glad to see the red ladybugs, who eat the little bugs. 
+The birds like the sunflowers. 
+They like to eat sunflower seeds. 
+There is a birdbath in the garden. 
+The blackbirds and swallows go in there totake a drink orhave a bath. 
+I sometimes see a robin or a blue jay in there too. 
+In the dirt, there are little holes where the ants go in and out. 
+The ants are hard workers. 
+I watch them as they work together as a team to bring food to their nests. 
+There are snails in the garden too. 
+They carry their homes on their backs. 
+They move slowly and leave a silvery trail as they go. 
+They eat the leaves from my mother's plants. 
+My mother also has vegetables growing in her garden. 
+She grows green peas.
+We like to pick those and eat the peas raw, right out of their pods. 
+She grows lettuce and tomatoes too. 
+We have so many tomatoes that we always give some to our neighbors. 
+My mother sends us outside to pick lettuce and tomatoes whenever we have a salad. 
+My favorite vegetables are carrots. 
+Their tops grow above the earth, but the carrots are below the dirt.
+When you pick them, you have to pull the carrots out from under the soil. 
+Weeds also grow in the garden. 
+After a good rainfall, it seems that the weeds just spring up. 
+I pull the weeds out by their roots so that they won't grow back. 
+Weeds choke the good plants, so we don't want them in our garden. 
+Gardening is a good hobby. 
+You get fresh air, sunshine and exercise. 
+You even get beautiful, colorful flowers and nice freshfood.*
 
-## 58: Which Direction.
+## 84 The Pet Store
 
->*Article #83 Garden
-The garden is very interesting. I sometimes go outside and I watch all the things that go on
-in the garden. It smells wonderful in the flower garden. There are red, white, pink and yellow
-roses that have a sweet smell. I watch the bees as they take pollen from the roses. There are
-tiny bugs that live on the rose bushes. My mother tries to get rid of the little bugs, but it is
-difficult to get rid of them. She is glad to see the red ladybugs, who eat the little bugs. The
-birds like the sunflowers. They like to eat sunflower seeds. There is a birdbath in the
-garden. The blackbirds and swallows go in there to take a drink or have a bath. I sometimes
-see a robin or a blue jay in there too. In the dirt, there are little holes where the ants go in
-and out. The ants are hard workers. I watch them as they work together as a team to bring
-food to their nests. There are snails in the garden too. They carry their homes on their
-backs. They move slowly and leave a silvery trail as they go. They eat the leaves from my
-mother's plants. My mother also has vegetables growing in her garden. She grows green peas.
-We like to pick those and eat the peas raw, right out of their pods. She grows lettuce and
-tomatoes too. We have so many tomatoes that we always give some to our neighbors. My
-mother sends us outside to pick lettuce and tomatoes whenever we have a salad. My favorite
-vegetables are carrots. Their tops grow above the earth, but the carrots are below the dirt.
-When you pick them, you have to pull the carrots out from under the soil. Weeds also grow in
-the garden. After a good rainfall, it seems that the weeds just spring up. I pull the weeds out
-by their roots so that they won't grow back. Weeds choke the good plants, so we don't want
-them in our garden. Gardening is a good hobby. You get fresh air, sunshine and exercise. You
-even get beautiful, colorful flowers and nice fresh food.*
+>*On Saturday, my parents took us to the pet store. 
+They had everything that you would need if you had a pet. 
+They had dog food, collars and leashes for dogs. 
+They had treats to give your dog, and brushes to brush your dog. 
+For cats, they had food, toys, and litter boxes. 
+For birds, they had seed and cages. 
+There was a section for fish. 
+They had fish in big tanks and little bowls. 
+In the big tanks, there were colorful fish swimming around. 
+The girl who worked there said that they were tropical fish. 
+There were goldfish in the smaller fishbowls. 
+I saw the girl get a goldfish out with a little net. 
+She sold it to a boy who said he had another goldfish at home. 
+There was a very large cage with a parrot in it. 
+I walked up to the cage, and the parrot said "hello." 
+I was surprised that the parrot could talk. 
+It could say a few things. 
+It said, "I love you," "pretty bird," and "bye-bye." 
+I told my mother that I would like a parrot, but she said that parrots need a lot of care and attention. 
+At the back of the store there were some puppies.
+They seemed glad to see me. 
+I stuck my hand into the cage, and one of them licked my hand.
+They were very lively. 
+They were running around and chasing their own tails. 
+In the next cage,
+there were two kittens. 
+One of them was playing with a toy, and the other one was asleep.
+The kittens were very small. 
+The one that was sleeping was curled up into a ball. 
+I couldn't even see her face. 
+I didn't want to leave the pet store. 
+I was wishing that I could take all of the animals home with me.*
 
-## 59: The Office.
+## 85 My First Day of School
 
->*Article #84 The Pet Store
-On Saturday, my parents took us to the pet store. They had everything that you would need
-if you had a pet. They had dog food, collars and leashes for dogs. They had treats to give your
-dog, and brushes to brush your dog. For cats, they had food, toys, and litter boxes. For birds,
-they had seed and cages. There was a section for fish. They had fish in big tanks and little
-bowls. In the big tanks, there were colorful fish swimming around. The girl who worked there
-said that they were tropical fish. There were goldfish in the smaller fishbowls. I saw the girl
-get a goldfish out with a little net. She sold it to a boy who said he had another goldfish at
-home. There was a very large cage with a parrot in it. I walked up to the cage, and the parrot
-said "hello." I was surprised that the parrot could talk. It could say a few things. It said, "I love
-you," "pretty bird," and "bye-bye." I told my mother that I would like a parrot, but she said that
-parrots need a lot of care and attention. At the back of the store there were some puppies.
-They seemed glad to see me. I stuck my hand into the cage, and one of them licked my hand.
-They were very lively. They were running around and chasing their own tails. In the next cage,
-there were two kittens. One of them was playing with a toy, and the other one was asleep.
-The kittens were very small. The one that was sleeping was curled up into a ball. I couldn't
-even see her face. I didn't want to leave the pet store. I was wishing that I could take all of the
-animals home with me.*
+>*I remember my first day of school. 
+I was excited, but I was afraid. 
+I held my mother's hand as we walked to the school. 
+When we got near the school, I wouldn't let her hold my hand anymore. 
+I didn't want to look like a baby. 
+We got to the school. 
+The school looked very big and frightening. 
+There were children outside on the playground. 
+They all looked very big. 
+I looked atthem, and some ofthem looked at me. 
+I felt very small. 
+My mother and I went into the schooland found the kindergarten room.
+There were children in there. 
+Most of them were the same size as me. 
+My mother spoke to the kindergarten teacher. 
+The teacher was very nice. 
+She said my name, and she introduced me to some of the other children. 
+I already knew some of the children because they lived near me. 
+I began to play with some of the things that were in the classroom. 
+There were toy trucks, coloring books, and even a doll house. 
+I soon forgotto be scared, and I began to play with the other children. 
+I didn't even notice that my mother had left the room. 
+In school we sang songs, played some games and listenedas the teacher read us a story. 
+I had a lot of fun on my first day of school. 
+I even drew a picture of my teacher. 
+I took the picture home, and my mother put it on the refrigerator. 
+I like school. 
+It is a good place to meet new friends and learn all aboutthe world.*
 
-## 60: Money.
+## 86 Transportation (2).
 
->*Article #84 The Pet Store
-On Saturday, my parents took us to the pet store. They had everything that you would need
-if you had a pet. They had dog food, collars and leashes for dogs. They had treats to give your
-dog, and brushes to brush your dog. For cats, they had food, toys, and litter boxes. For birds,
-they had seed and cages. There was a section for fish. They had fish in big tanks and little
-bowls. In the big tanks, there were colorful fish swimmingaround. The girl who worked there
-said that they were tropical fish. There were goldfish in the smaller fishbowls. I saw the girl
-get a goldfish out with a little net. She sold it to a boy who said he had another goldfish at
-home. There was a very large cage with a parrot in it. I walked up to the cage, and the parrot
-said "hello." I was surprised that the parrot could talk. It could say a few things. It said, "I love
-you," "pretty bird," and "bye-bye." I told my mother that I would like a parrot, but she said that
-parrots need a lot of care and attention. At the back of the store there were some puppies.
-They seemed glad to see me. I stuck my hand into the cage, and one of them licked my hand.
-They were very lively. They were running around and chasing their own tails. In the next cage,
-there were two kittens. One of them was playing with a toy, and the other one was asleep.
-The kittens were very small. The one that was sleeping was curled up into a ball. I couldn't
-even see her face. I didn't want to leave the pet store. I was wishing that I could take all of the
-animals home withme.*
-
-## 61: Manners.
-
->*Article #85 My First Day of School
-I remember my first day of school. I was excited, but I was afraid. I held my mother's hand
-as we walked to the school. When we got near the school, I wouldn't let her hold my hand
-anymore. I didn't want to look like a baby. We got to the school. The school looked very big
-and frightening. There were children outside on the playground. They all looked very big. I
-looked atthem, and some ofthem looked at me. Ifelt very small. My mother and I wentinto
-theschoolandfoundthekindergartenroom. Therewerechildreninthere. Mostofthemwere
-the same size as me. My mother spoke to the kindergarten teacher. The teacher was very
-nice. She said my name, and she introduced me to some of the other children. I already
-knew some of the children because they lived near me. I began to play with some of the
-things that were in the classroom. There were toy trucks, coloring books, and even a doll
-house. I soon forgotto be scared, and I began to play with the other children. I didn't even
-notice that my mother had left the room. In school we sang songs, played some games and
-listenedas the teacher read us a story. I had a lot of fun on my first day of school. I even drew
-a picture of my teacher. I took the picture home, and my mother put it on the refrigerator. I
-like school. Itis a good place to meet new friends and learn all aboutthe world.*
-
-## 62: The Two Sexes.
-
->*Article #86 Transportation (2)
-People move from place toplace. There are lots of ways that youcan move aroundfrom one
-place toanother.Sometimes you can just move yourfeet and walk. Walking is good for you.
-Some places are too far to walk to. You might have to ride a bicycle orride on a skateboard.
-Some places are too far away to ride your bicycle to. You might have to drive in a car, or a
-van,or evenatruck. My fatherhasa car. Myunclehasa van. Ihave never been in a big truck.
-Trucks are usually used to carry big loads from one city to another. I would like to be a truck
-driver. I would travel all over and sit high up in the cab. I have been in a taxi cab. Once, my
-mother and I took a taxi to the hospital. There was a special meter in the taxi. When we
-finished our taxi ride, the driver looked at the meter to find out how much money we owed
-him. I once rode a horse. I satin the saddle and held on tight to the reins. The horse ran very
-fast. It was a bumpy ride, and I was afraid that I would fall off the horse. Not too many
-people around here use horses for transportation. They used to use horses for
-transportation in theolddays. If you wantto travel very far away, you have to goon a train, a
-plane, or a boat. If you are in a hurry, itis bestto take a plane. Planes fly through the air very
-fast. Trainsgoalongthetracks. Sometimes I canhearthetrainwhistlefrommyhouse. Boats
-take a longtimetocross the ocean. Great big boats that cross the oceans are called ships. If
-you like to take it easy and look out atthe water,then ships are a good way to travel. They
-say that the world is a lot smaller now because of transportation. People can travel to all
-parts of the world quickly and easily. The world is not really smaller, but it has become easy
-to get to faraway places.*
+>*People move from place toplace. 
+There are lots of ways that youcan move aroundfrom one place toanother.
+Sometimes you can just move yourfeet and walk. 
+Walking is good for you.
+Some places are too far to walk to. 
+You might have to ride a bicycle orride on a skateboard.
+Some places are too far away to ride your bicycle to. 
+You might have to drive in a car, or a van,or evenatruck. 
+My fatherhasa car. 
+Myunclehasa van. 
+I have never been in a big truck.
+Trucks are usually used to carry big loads from one city to another. 
+I would like to be a truck driver. 
+I would travel all over and sit high up in the cab. 
+I have been in a taxi cab. 
+Once, my mother and I took a taxi to the hospital. 
+There was a special meter in the taxi. 
+When we finished our taxi ride, the driver looked at the meter to find out how much money we owed him. 
+I once rode a horse. 
+I satin the saddle and held on tight to the reins. 
+The horse ran very fast. 
+It was a bumpy ride, and I was afraid that I would fall off the horse. 
+Not too many people around here use horses for transportation. 
+They used to use horses for transportation in theolddays. 
+If you wantto travel very far away, you have to goon a train, a plane, or a boat. 
+If you are in a hurry, itis bestto take a plane. 
+Planes fly through the air very fast. 
+Trains goa long the tracks. Sometimes I canhearthetrainwhistlefrommyhouse. 
+Boats take a longtimetocross the ocean. 
+Great big boats that cross the oceans are called ships. 
+If you like to take it easy and look out atthe water, then ships are a good way to travel. 
+They say that the world is a lot smaller now because of transportation. 
+People can travel to all parts of the world quickly and easily. 
+The world is not really smaller, but it has become easy to get to faraway places.*
 
 ## 63: Me.
 
