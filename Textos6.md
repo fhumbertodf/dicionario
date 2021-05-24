@@ -470,8 +470,10 @@ No matter how worn out she is, I'll always keep her and cherish her as a part of
 
 >*I am curious about many things.  
 I would like to find the answers to a lot of questions that I have.  
-What holds the stars up in the sky? Why does ice form on the top of the lake when it is cold? 
-Is there life on other planets? Why do we not fall off the face of the earth? 
+What holds the stars up in the sky?  
+Why does ice form on the top of the lake when it is cold? 
+Is there life on other planets?  
+Why do we not fall off the face of the earth? 
 How do caterpillars turn into butterflies? 
 All of these things are mysteries to me.  
 There are so many questions that are unanswered.  
