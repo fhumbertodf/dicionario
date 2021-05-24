@@ -1,5 +1,7 @@
-Article #126 Hot and Cold
-I notice that whenever it is summer, people complain about the heat, but whenever
+
+## 126 Hot and Cold
+
+>*I notice that whenever it is summer, people complain about the heat, but whenever
 it is winter, people complain about the cold.  
 It seems that people are never
 satisfied.  
@@ -39,8 +41,11 @@ It is nicer when the heat is high, but the humidity is low.
 It would be
 better if I lived somewhere where it was hot, but not humid.  
 That would be just
-perfect.Article #127 Walk a Mile in My Shoes
-Have you ever heard the saying "walk a mile in my shoes?" I think it is a very good
+perfect.*
+
+## 127 Walk a Mile in My Shoes
+
+>*Have you ever heard the saying "walk a mile in my shoes?" I think it is a very good
 saying.  
 Do you know what it means? It means, that before you judge someone, you
 should put yourself in his or her position.  
@@ -73,8 +78,11 @@ same things.
 So, before you are quick to judge someone, stop and think about what it is that they
 might have gone through.  
 You won't always understand why people do what they
-do, but you can try to understand and put yourself in their position.Article #128 If I Could Go Back in My Life
-If I could go back in my life and do some things differently, this is what I would do:
+do, but you can try to understand and put yourself in their position.*
+
+## 128 If I Could Go Back in My Life
+
+>*If I could go back in my life and do some things differently, this is what I would do:
 I would not waste so many hours in front of the television set.  
 I would get out and
 enjoy my own life, rather than watching actors in shows.  
@@ -109,9 +117,11 @@ forward to what is coming up that I don't take the time to enjoy the day that I 
 living in.  
 That's what I would do if I could go back in my life.  
 In fact, I think I'll
-just make a habit of doing all of those things all through my life.  
-Article #129 Joking
-Joking is good.  
+just make a habit of doing all of those things all through my life.*
+
+## 129 Joking
+
+>*Joking is good.  
 Jokes can be very funny.  
 Jokes can also be hurtful.  
 Jokes can be
@@ -166,8 +176,11 @@ a joke.
 Why does a cow wear a bell? - because its horns don't work Do you get
 it? Do you think it is funny? Well, maybe it's not that funny.  
 I told you that it was
-difficult being a comedian.Article #130 Drugs
-There are two different types of drugs.  
+difficult being a comedian.*
+
+## 130 Drugs
+
+>*There are two different types of drugs.  
 There are legal drugs and illegal
 drugs.  
 Legal drugs are the type of drugs that the doctor gives you when you are
@@ -208,8 +221,11 @@ them that their entire life could be ruined.
 In America, they had a saying.  
 "Just say
 no to drugs." It is a good saying, but I think I would rather say, "I'm just too smart
-to take drugs."Article #131 Divorce
-Mary's parents just got a divorce.  
+to take drugs."*
+
+## 131 Divorce
+
+>*Mary's parents just got a divorce.  
 Mary is very upset.  
 She thinks that her parents
 don't love her anymore.  
@@ -250,8 +266,11 @@ Life is an adventure.
 If your parents get a divorce, just be understanding.
 Know that they love you and that this is a hard time for them.  
 It is a hard time for
-you too, but these things have a way of working themselves out in the end.Article #132 If my Fish Could Talk
-I have a goldfish.  
+you too, but these things have a way of working themselves out in the end.*
+
+## 132 If my Fish Could Talk
+
+>*I have a goldfish.  
 He swims around in his bowl all day.  
 He looks bored.  
 I look
@@ -292,8 +311,11 @@ goldfish talks.
 He seems very happy now with his nice new home, and his new
 friends.  
 I don't think goldfish can smile either, but it looks like my goldfish has a
-smile on his face.Article #133 The Best Teacher
-I have had a lot of teachers.  
+smile on his face.*
+
+## 133 The Best Teacher
+
+>*I have had a lot of teachers.  
 Some of them were good, and some of them were
 boring.  
 There is one teacher whom I remember very well.
@@ -341,8 +363,11 @@ Alban,
 I realized that I really did have an interest in it.  
 He was my favorite teacher, and I
 will always be grateful to him for making me aware of just how interesting history
-really is.Article #134 Weather
-Sometimes, I watch the weatherman on television.  
+really is.*
+
+## 134 Weather
+
+>*Sometimes, I watch the weatherman on television.  
 It is fascinating to watch him
 point to different areas of the country on the map.  
 He tells us where the weather
@@ -384,8 +409,11 @@ we plan our lives and activities around the weather.
 So, if you are planning on
 walking home tonight, keep an eye on the sky.  
 Are those rain clouds up there? You
-might need an umbrella.Article #135 How to Avoid Catching a Cold
-How many colds do you catch in a year? Most of my friends catch quite a few
+might need an umbrella.*
+
+## 135 How to Avoid Catching a Cold
+
+>*How many colds do you catch in a year? Most of my friends catch quite a few
 colds.  
 They cough, sniffle and sneeze.  
 They carry around tissues and blow their
@@ -436,8 +464,11 @@ cause colds.
 If you eat good foods and stay fit, your body will be able to fight off
 the germs that cause colds and other diseases.  
 It is not always possible to avoid
-colds, but if you do catch a cold, drink plenty of fluids and get a lot of rest.Article #136 The Future
-I sometimes wonder what life will be like in the future.  
+colds, but if you do catch a cold, drink plenty of fluids and get a lot of rest.*
+
+## 136 The Future
+
+>*I sometimes wonder what life will be like in the future.  
 Life has changed so much
 in just the past few years.  
 I'm sure that there are still big changes that are coming.
@@ -480,8 +511,11 @@ a color television.
 Nobody owned a computer.  
 It doesn't take long for things to
 change a lot.  
-Who knows what amazing things are in store for us?Article #137 Giving a Speech
-I had to give a speech last week.  
+Who knows what amazing things are in store for us?*
+
+## 137 Giving a Speech
+
+>*I had to give a speech last week.  
 I gave a speech to three hundred people.  
 I had to
 speak in front of a group of students.  
@@ -531,8 +565,11 @@ Sometimes I do feel a little flutter of nervousness, but I just ignore it
 and do the best that I can.  
 Giving a speech is not as scary as it appears to
 be.  
-Anyone can do it with a little practice.Article #138 Moving to Another Country
-My friend Steve moved to another country.  
+Anyone can do it with a little practice.*
+
+## 138 Moving to Another Country
+
+>*My friend Steve moved to another country.  
 He had lived in Canada all his life, and
 he moved to Japan.  
 Life in Japan was very different for Steve than what he was
@@ -580,8 +617,11 @@ I'm sure
 that he would get over his culture shock very fast if he moved there.  
 Moving to a
 new country can be difficult, but if you are willing to learn, it can be a very
-rewarding experience.Article #139 Look for the Beauty
-I have learned that things don't always go the way that they were planned.  
+rewarding experience.*
+
+## 139 Look for the Beauty
+
+>*I have learned that things don't always go the way that they were planned.  
 If
 something doesn't happen the way that I want it to, I try to make the best of the
 situation.  
@@ -635,8 +675,11 @@ You'll find something good about almost everyone that you
 meet if you look hard enough.  
 If something doesn't work out the way you planned
 it, just make the best of the situation.  
-Look for the beauty in everything.Article #140 My Doll
-When I was an infant, I got a rag doll.  
+Look for the beauty in everything.*
+
+## 140 My Doll
+
+>*When I was an infant, I got a rag doll.  
 It was a very plain, little doll, and it wore a
 clown outfit and a clown's hat.  
 I used to take that doll to bed with me every night.  
@@ -681,8 +724,11 @@ She sits in a
 special chair in the corner.
 I'll always have that doll.  
 No matter how worn out she is, I'll always keep her and
-cherish her as a part of my early childhood.Article #141 I am Curious
-I am curious about many things.  
+cherish her as a part of my early childhood.*
+
+## 141 I am Curious
+
+>*I am curious about many things.  
 I would like to find the answers to a lot of questions
 that I have.  
 What holds the stars up in the sky? Why does ice form on the top of
@@ -708,8 +754,11 @@ Some questions never get answered.
 It is good to
 be curious.  
 People who are curious about things are the ones who learn a lot, and
-some curious people go on to invent things and make important discoveries.Article #142 Creative People
-Some people are just born to create.  
+some curious people go on to invent things and make important discoveries.*
+
+## 142 Creative People
+
+>*Some people are just born to create.  
 That's what I think.  
 Some people just have the
 need to write stories, compose beautiful music, or paint pictures.  
@@ -760,8 +809,11 @@ books have even been made into movies.
 We are lucky to have creative people who
 share their gifts with us.  
 If you are lucky enough to be creative, you should use your
-talents to create works of art that we all can share.Article #143 Career Choices
-What do you want to be when you grow up? There are so many things that you can
+talents to create works of art that we all can share.*
+
+## 143 Career Choices
+
+>*What do you want to be when you grow up? There are so many things that you can
 be.  
 You might want to work in the field of law.  
 You could be a police officer.
@@ -826,8 +878,11 @@ fisherman.
 You could make clothes or build bridges.  
 You could wash windows or
 be a bricklayer.  
-The possibilities are endless.Article #144 I Need Glasses
-I have been having trouble seeing the blackboard.  
+The possibilities are endless.*
+
+## 144 I Need Glasses
+
+>*I have been having trouble seeing the blackboard.  
 Everything is blurry.  
 I keep
 getting headaches.  
@@ -870,8 +925,11 @@ Now I don't get
 headaches anymore.  
 I'm glad that I have my glasses.  
 Everything is a lot clearer
-now.Article #145 I am Clumsy
-My mother says that I am clumsy.  
+now.*
+
+## 145 I am Clumsy
+
+>*My mother says that I am clumsy.  
 My father says that I am clumsy.  
 I know that I
 am clumsy.  
@@ -910,8 +968,11 @@ maybe that's why I'm so clumsy.
 Maybe it's just a stage that I am going through.  
 If
 it is, I hope it is over soon.  
-Being clumsy is no fun at all.Article #146 Home Alone
-I remember the first time that my parents left me home alone.  
+Being clumsy is no fun at all.*
+
+## 146 Home Alone
+
+>*I remember the first time that my parents left me home alone.  
 I was very grown up,
 and I thought that I would be just fine.  
 I was fine for a while.  
@@ -963,8 +1024,11 @@ I am still alert and listen for
 anything suspicious, but I know that there are lots of noises that are harmless.  
 That
 tree that taps on my window still frightens me sometimes, but I'm a lot braver now
-than I was the first time that I stayed home alone.Article #147 Family
-What does the word "family" mean to you? The easiest way to define family is to
+than I was the first time that I stayed home alone.*
+
+## 147 Family
+
+>*What does the word "family" mean to you? The easiest way to define family is to
 talk about who you are related to.  
 Usually, there is a mom and a dad and children
 who are brothers and sisters.  
@@ -997,8 +1061,11 @@ my mom and dad to live with and do things like vacations together.
 We had a lot of
 fun and there were sometimes of tears, too.  
 Above all, we love one another! Family
-is a wonderful thing! I am so lucky!Article #148 My First Job
-My first "real" job was during my last year of high school.  
+is a wonderful thing! I am so lucky!*
+
+## 148 My First Job
+
+>*My first "real" job was during my last year of high school.  
 I had taken classes in
 various business subjects.  
 In that last year of high school, we could do a "co-op".
@@ -1036,8 +1103,11 @@ That wasn't good because I spent a lot of the money that I earned in
 those shops! I worked at the tailor shop for almost a year.  
 It was a good experience
 and helped me get my next job with the United States Navy.  
-That was fun, too!Article #149 First Trip Away From Home
-Today I am going to my friend's house.  
+That was fun, too!*
+
+## 149 First Trip Away From Home
+
+>*Today I am going to my friend's house.  
 Her name is Valerie.  
 This is going to be my
 first trip away from home, without my parents.  
@@ -1068,8 +1138,11 @@ because I want to buy lots of candy.
 (I won't tell my mom that!)  Oh, dear! I hear
 Dad yelling, "Let's go!" I haven't even finished packing my things yet.  
 I guess I
-better stop writing this now and get busy fast! Bye!Article #150 My Job
-I work at a conservation park called Ball's Falls.  
+better stop writing this now and get busy fast! Bye!*
+
+## 150 My Job
+
+>*I work at a conservation park called Ball's Falls.  
 I've only worked there for three
 weeks now.  
 I am a Tour Guide, and I tell people the history of all the old buildings
@@ -1100,4 +1173,4 @@ p.m.
 I also like the people I work with.  
 They are very nice.  
 Come to Ball's Falls,
-and I'll give you a tour!
+and I'll give you a tour!*
