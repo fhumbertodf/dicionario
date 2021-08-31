@@ -209,10 +209,10 @@ I think they're right.*
 ## 83: Garden.
 
 >*The garden is very interesting.  
-I sometimes go outside and I watch allthe things that go on inthe garden.  
-It smellswonderful intheflower garden.  
-There are red, white, pinkand yellow roses that havea sweet smell.  
-Iwatchthe beesas they takepollenfrom the roses.  
+I sometimes go outside and I watch all the things that go on in the garden.  
+It smells wonderful in the flower garden.  
+There are red, white, pinkand yellow roses that have a sweet smell.  
+I watch the bees as they take pollen from the roses.  
 There are tiny bugs that live on the rose bushes.  
 My mother tries to get rid of the little bugs, but it is difficult to get rid of them.  
 She is glad to see the red ladybugs, who eat the little bugs.  
@@ -308,20 +308,20 @@ I had a lot of fun on my first day of school.
 I even drew a picture of my teacher.  
 I took the picture home, and my mother put it on the refrigerator.  
 I like school.  
-It is a good place to meet new friends and learn all aboutthe world.*
+It is a good place to meet new friends and learn all about the world.*
 
 ## 86 Transportation (2).
 
->*People move from place toplace.  
-There are lots of ways that youcan move aroundfrom one place toanother.  
-Sometimes you can just move yourfeet and walk.  
+>*People move from place to place.  
+There are lots of ways that you can move around from one place to another.  
+Sometimes you can just move your feet and walk.  
 Walking is good for you.  
 Some places are too far to walk to.  
-You might have to ride a bicycle orride on a skateboard.  
+You might have to ride a bicycle or ride on a skateboard.  
 Some places are too far away to ride your bicycle to.  
-You might have to drive in a car, or a van,or evenatruck.  
-My fatherhasa car.  
-Myunclehasa van.  
+You might have to drive in a car, or a van, or even a truck.  
+My father has a car.  
+My uncle has a van.  
 I have never been in a big truck.  
 Trucks are usually used to carry big loads from one city to another.  
 I would like to be a truck driver.  
@@ -340,10 +340,10 @@ If you wantto travel very far away, you have to goon a train, a plane, or a boat
 If you are in a hurry, itis bestto take a plane.  
 Planes fly through the air very fast.  
 Trains goa long the tracks.  
-Sometimes I canhearthetrainwhistlefrommyhouse.  
-Boats take a longtimetocross the ocean.  
+Sometimes I can hear the train whistle from my house.  
+Boats take a long time to cross the ocean.  
 Great big boats that cross the oceans are called ships.  
-If you like to take it easy and look out atthe water, then ships are a good way to travel.  
+If you like to take it easy and look out at the water, then ships are a good way to travel.  
 They say that the world is a lot smaller now because of transportation.  
 People can travel to all parts of the world quickly and easily.  
 The world is not really smaller, but it has become easy to get to faraway places.*
