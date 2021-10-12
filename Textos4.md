@@ -413,7 +413,8 @@ In Canada, we celebrate our differences.*
 
 ## 89 Food.
 
->*What kinds of food do you like to eat? I am lucky, because in Canada there are many foods to choose from.  
+>*What kinds of food do you like to eat?  
+I am lucky, because in Canada there are many foods to choose from.  
 I like to eat hot dogs, hamburgers, and steak.  
 These are all meat products.  
 I also like cheese, ice cream and yogurt.  
