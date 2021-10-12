@@ -724,13 +724,16 @@ We all agree that the puppy was the nicest surprise that my dad could have given
 It's something we made up, so it doesn't have a name.  
 We like to take words that rhyme.  
 We put them together line by line.  
-Do you get the picture now? We're playing the game, and this is how.  
+Do you get the picture now?  
+We're playing the game, and this is how.  
 I might say I like to drive a car.  
 I really don't like to go very far.  
 If I decide to take a walk, I'd go with a friend so that we could talk.  
-Do you see that these lines rhyme? Play the game if you have the time.  
+Do you see that these lines rhyme?  
+Play the game if you have the time.  
 We could talk about school or even playing.  
-Do you know what I am saying? Rhyming words is easy to do.  
+Do you know what I am saying?  
+Rhyming words is easy to do.  
 It's fun for me; it can be fun for you.  
 Just join in and say something or make it into a song that you can sing.  
 There are so many words that rhyme with others.  
