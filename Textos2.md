@@ -646,7 +646,8 @@ They are very sour.
 Have you ever picked strawberries?  
 Strawberries do not grow on trees.  
 You have to bend down to pick strawberries.  
-Have you ever tried strawberry shortcake? It is very good.  
+Have you ever tried strawberry shortcake?  
+It is very good.  
 Grapes grow on vines.  
 People use grapes to make wine.  
 There are many types of berries.  
