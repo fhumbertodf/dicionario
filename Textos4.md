@@ -444,36 +444,35 @@ These foods aren't part of a nutritious diet, but they are fun to eat.*
 
 >*My class took a trip to the Toronto Zoo.  
 I had a wonderful time there.  
-My favorite animals werethe lions.  
+My favorite animals were the lions.  
 They look very powerful and strong.  
-They saythatthelionis the king of the
-forest, and I think that title suits him.  
+They say that the lion is the king of the forest, and I think that title suits him.  
 The monkeys were funny.  
-They were looking at us just as much as we looked atthem.  
+They were looking at us just as much as we looked at them.  
 They were swinging from branches and doing tricks to impress us.  
 There was a baby monkey that was clinging to its mother's back.  
-It was very cute.Thetigerswerepacingbackandforth.  
-Theyseemedrestless.  
-The stripes ona tiger are very beautiful.  
-Wewatched the tall giraffes as they nibbled leaves offthe tallest trees.  
+It was very cute.  
+The tigers were pacing back and forth.  
+They seemed restless.  
+The stripes on a tiger are very beautiful.  
+We watched the tall giraffes as they nibbled leaves off the tallest trees.  
 We spoke to a colorful parrot that spoke back to us.  
 We saw exotic animals that we had never seen before.  
 Some of them were very strange.  
 There were different types of bears there.  
 There were black bears.  
 I saw a black bear once when I was camping up north.  
-We saw polarbears.  
-Polarbears arewhite.  
-They likethe cold.  
-We even sawpanda bears.  
-One ofmy friends bought a toy panda bear from the gift shop because she thought that the pandas weresocute.  
-Wesawslitherysnakes.  
-Someofthe snakes hadverybright skins.  
-Mostofthe
-girls were afraid ofthe snakes.  
+We saw polar bears.  
+Polar bears are white.  
+They like the cold.  
+We even saw panda bears.  
+One of my friends bought a toy panda bear from the gift shop because she thought that the pandas were so cute.  
+We saw slithery snakes.  
+Some of the snakes had very bright skins.  
+Most of the girls were afraid of the snakes.  
 The zoo keeper was looking after the snakes, and one of them hissed at him.  
-He has to be very careful when heworkswiththesnakes.  
-Thelastthing that we saw atthe zoo was the elephant.  
+He has to be very careful when he works with the snakes.  
+The last thing that we saw at the zoo was the elephant.  
 He was enormous.  
 He looked at us; then he raised his trunk and made a loud sound.  
 It made us jump.*
