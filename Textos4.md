@@ -354,27 +354,26 @@ The world is not really smaller, but it has become easy to get to faraway places
 My mother says that I watch too much television.  
 I watch cartoons on Saturday mornings.  
 Cartoons make me laugh.  
-My brother and I each have our
-favorite cartoons.  
+My brother and I each have our favorite cartoons.  
 We have trouble deciding which cartoons we will watch.  
-On Saturday afternoons,weliketowatchsports.  
-Mybrotherreallylikestowatchbaseball, but usually my mother tells us to go out and play on a Saturday afternoon.  
-On week nights, wehave our ownfavoriteshows.  
-Ilikeshowsaboutouterspaceandmonsters.  
+On Saturday afternoons, we like to watch sports.  
+My brother really likes to watch baseball, but usually my mother tells us to go out and play on a Saturday afternoon.  
+On week nights, we have our own favorite shows.  
+I like shows about outer space and monsters.  
 My brother likes comedies.  
 He likes to laugh.  
 My mother likes shows about real life situations.  
-Shelikes towatchthe news.  
-She says thatthe news is important.  
+She likes to watch the news.  
+She says that the news is important.  
 She watches the news and weather to find out what is going on in the world.  
 Sometimes she watches real life shows about doctors or policemen.  
 My father doesn't watch television.  
-He says that he would rather read a good book orthe newspaper.  
+He says that he would rather read a good book or the newspaper.  
 My dad gets all his news from the newspaper.  
 My favorite thing is to sit in front of the television with a bag of popcorn and a bottle of pop.  
 I sit there and change the channels with the remote control.  
-I change channels andwatch a fewdifferent showsatonce.  
-Mymotherwon'tletmewatch too much television.  
+I change channels and watch a few different shows at once.  
+My mother won't let me watch too much television.  
 She doesn't want me to get lazy.  
 Television is good if you don't spend too much time watching it.  
 You can learn a lot from television if you watch the educational channels.  
