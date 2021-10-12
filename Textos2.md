@@ -632,3 +632,267 @@ It was very furry.
 My mother said that it used to shed fur all over the house.  
 Pets are a lot of fun, but they are a lot of work too.  
 To be a good pet owner, you have to be very responsible.*
+
+## 51: Parties.
+
+>*Parties can be a lot of fun.  
+People get invited to parties.  
+You can have a party because it is a special occasion, or just because you want to have a party.  
+Sometimes, people wear paper hats at parties.  
+These are called party hats.  
+Some people decorate with streamers and balloons.  
+At some parties, there is a cake.  
+Sometimes, there are just snacks and drinks.  
+At some parties, people play games.  
+There are also parties where people just stand around and talk.  
+People wear different things to parties.  
+You can go to some parties in casual clothes.  
+At other parties, you need to be dressed up in good clothes.  
+There are other parties where you are supposed to wear a costume.  
+There are many different kinds of parties.  
+There are Christmas parties, birthday parties, going away parties, and parties for no reason at all.  
+I have been to parties for people who are retiring, or for people who have just had a new baby.  
+There are hundreds of reasons for having a party.  
+At some parties, you take a gift.  
+If it is a birthday party, then you take a gift and a birthday card to the person who is having the birthday.  
+Sometimes, people will ask you to bring food or drinks to the party.  
+All parties are different.  
+It is nice to be invited to parties.*
+
+## 52: Grocery Shopping.
+
+>*What do you see when you go to the grocery store?  
+The aisles are filled with food.  
+There are also refrigerators and freezers filled with food.  
+There are sometimes things in bins in the middle of the aisles.  
+There are different departments in the grocery store.  
+There is the bakery.  
+In the bakery, there are sweet things such as cakes, pies, cookies and tarts.  
+There are also things that you would eat with your dinner like bread and buns.  
+There are other things in the bakery department like bagels and biscuits.  
+The baker works in the bakery.  
+There is the canned goods section.  
+This is where you might find sauces and soups.  
+Vegetables and fruits also come in cans.  
+There is the section for dairy products.  
+Here you would find milk and cream.  
+The dairy section would also have cheese and butter.  
+Yogurt is also found in the dairy section.  
+In the meat department, there is beef and pork.  
+Poultry is also found in the meat department.  
+Poultry is chicken, duck and goose.  
+There are also cold cuts in the meat department.  
+Cold cuts are the meats that are sliced up for sandwiches.  
+Some examples of cold cuts are ham and baloney.  
+The butcher works in the meat department.  
+The produce department is full of fruits and vegetables.  
+Clerks spray water on the fruit and vegetables to keep them fresh.  
+There is a section in the grocery store for personal hygiene.  
+This is where you would find shampoo and toothpaste.  
+Soap and skin products would also be in this section.  
+There is even a section for your pets.  
+You can buy cat food and dog food.  
+There are toys for cats and dogs.*
+
+## 53: Differences.
+
+>*Are you tall or short?  
+Are you big or small?  
+People come in many different shapes and sizes.  
+Some people wear size small clothes.  
+Other people wear size medium clothes.  
+There are people who wear large size clothes.  
+Some people even wear extra large clothes.  
+Some people are thin.  
+Some people are fat.  
+Some people are in between.  
+There are people with short hair.  
+Other people have long hair.  
+Some people have no hair at all.  
+No two people are exactly alike.  
+Some people have long legs.  
+I have short legs.  
+I don't walk as fast as a person with long legs.  
+I am not a tall person.  
+In fact, I am quite short.  
+My feet are a size seven.  
+My mother has size five feet.  
+My father has size twelve feet.  
+We are all different sizes.  
+It is not a bad thing.  
+It is a good thing that we are all unique.*
+
+## 54: The Restaurant.
+
+>*When you go to a restaurant you might see a sign that says, "Please wait to be seated."  
+A host or hostess will ask you how many people are in your party.  
+Then they will want to know if you want to sit in the smoking or non-smoking section.  
+The host or hostess will take you to your seat.  
+You might sit at a table or at a booth.  
+The host or hostess will give you a menu to look at.  
+Sometimes, there are different menus for different meals.  
+There can be a breakfast menu, a lunch menu and a dinner menu.  
+Sometimes, there is also a wine list and a dessert menu.  
+The food and the prices of the food are listed on the menu.  
+On your table, there will be cutlery.  
+Cutlery is the knives, forks and spoons.  
+There will also be a napkin.  
+You are supposed to put your napkin on your lap when you eat.  
+Your waiter or waitress will take your order.  
+You might want an appetizer before your meal.  
+Some people want a salad or soup before their meal.  
+After your meal, you might have a dessert, or tea, or coffee.  
+When it is time to go, you will pay your bill and leave a tip for the waiter or waitress.*
+
+## 55: Traffic.
+
+>*Traffic moves along on the streets and highways.  
+There are rules that drivers must follow to make the traffic flow smoothly.  
+You must wear a seatbelt.  
+The seatbelt helps to keep you safe.  
+You must stop at all stop signs.  
+You must also stop at a red light.  
+A green light means go, and a yellow light means to be careful.  
+If you see a sign that says school crossing, you have to be careful because you are near 
+a school, and children might be crossing the street.  
+Some places are crosswalks.  
+Those are places where people cross the street.  
+People who are walking have the right of way.  
+If you hear a siren behind you, you must pull over.  
+An emergency vehicle like a police car or an ambulance might need to get somewhere fast.  
+When a school bus puts on its flashing signals, you have to stop.  
+You can't go past the school bus because children may be crossing the street from the bus.  
+You should always obey the speed limit.  
+It is not good to drive too fast.  
+People should never drink and drive.  
+Driving is a serious business.  
+You have to obey all the rules to be a good driver.*
+
+## 56: Music.
+
+>*If you were in an orchestra, what would you play?  
+Would you play a tuba, a trumpet or a saxophone?  
+Perhaps you would prefer a stringed instrument like a violin or a cello.  
+Maybe you would enjoy percussion more.  
+You could play the kettle drum.  
+There are instruments that have keyboards.  
+A piano and an organ have keyboards.  
+There are instruments that have strings on them.  
+A guitar, banjo and mandolin have strings on them.  
+There are instruments that you blow into.  
+A flute, a French horn and a harmonica are all instruments that you blow into.  
+There are instruments that you hit with a stick.  
+A drum and a cymbal are two things that you would hit with a stick.  
+If you are in an orchestra, you have to watch the conductor.  
+He will lead you through the piece of music.  
+You might just want to be in a band for fun.  
+You could join a rock band or a dance band.  
+Some people learn to read music.  
+Music notes are written on a staff.  
+Each note represents a sound.  
+There are whole notes, half notes, quarter notes and eighth notes.  
+Each one of these is held for a different number of beats.  
+It is good to learn about music.  
+You have to learn your scales, and learn about sharps and flats.  
+If you want to learn how to play an instrument, it is best to take music lessons.*
+
+## 57: Who What Where and Why.
+
+>*These are important words.  
+They are all words that begin questions.  
+"Who" is about a person.  
+Who is the girl with the blue dress on?  
+Who stole my watch?  
+Who will come with me to the game?  
+Who is driving us to the party?  
+"What" is about a thing.  
+What is that big thing on the sidewalk?  
+What should I do when I get to your house?  
+What kind of clothes should I wear to the party?  
+What shall I buy you for your birthday?  
+"Where" is about a place.  
+Where are you going for your vacation?  
+Where did I leave my glasses?  
+Where did my brother go?  
+Where on earth is Timmins?  
+"Why" is the word that asks for an explanation.  
+Why did you take the last piece of pie?  
+Why is the world round?  
+Why should I give you any money?  
+Why did the chicken cross the street?  
+They say that you should answer all of these questions if you are writing a story.  
+You have to give the who, what, where and why to write a good story.*
+
+## 58: Which Direction.
+
+>*Which direction should I go in?  
+Should I go up?  
+If I go up, I will head toward the sky.  
+I can go up the stairs.  
+Should I go down?  
+I can go down the stairs to the basement.  
+I can climb down into a hole.  
+Should I go left or right?  
+I am right-handed, so I know which way right is.  
+Should I go backwards?  
+I would be going away from the things that I am facing now if I went backwards.  
+If I went backwards from the thing that I am facing, I would go away from it.  
+If I went backwards from the thing that I am facing, I would go away from it.  
+Should I go forward?  
+I will just go straight ahead if I go forward.  
+If I am facing something and I go forward, then I will go toward the thing that I am facing.  
+Maybe I should go sideways, but which side, left or right?  
+It sounds very complicated, but it is not.  
+Directions are very easy to follow if you just stop and think about them.*
+
+## 59: The Office.
+
+>*Some people work in an office.  
+There are special tools that people in an office need to do their work.  
+There is a computer in the office.  
+There is a telephone.  
+Most of the time, the secretary answers the telephone.  
+The secretary sits at a desk.  
+The secretary has pens and pencils on the desk.  
+The secretary writes on a note pad.  
+Some other things that you would find in an office would include the following: a stapler to staple pages together, a photocopier to copy pages, a pencil sharpener to sharpen 
+pencils, a water cooler where the employees could get a drink of water, a hole punch to make holes in sheets of paper, and liquid paper which is used to blank out errors on a 
+page.  
+Some offices have many employees in them.  
+All of the employees have their own desks.  
+Other offices just have one person at a desk.  
+In some offices, there is a secretary or a receptionist, and then there is the boss in another room.  
+There are often many important papers in an office.  
+Important papers can be called documents.  
+You might have to sign a document or fill out a form in an office.  
+Some offices have bookshelves filled with books.  
+The books are filled with information that the people in the office need.  
+You will have to visit an office sometime.  
+Maybe it will be a doctor's office or a lawyer's office.  
+There are many different types of offices.*
+
+## 60: Money.
+
+>*I keep my money in the bank.  
+I have saved up my money.  
+I saved all my pennies in a jar.  
+A penny is only worth one cent.  
+I have nickels.  
+A nickel is worth five cents.  
+A dime is worth ten cents.  
+A quarter is worth twenty-five cents.  
+A quarter is a quarter of a dollar.  
+Four quarters make up a dollar.  
+A dollar is worth one hundred cents.  
+I saved up all of my dollars.  
+Our dollars used to be paper, but now they are coins.  
+We call our dollars loonies.  
+It is a funny name.  
+We also have two dollar coins.  
+We call those toonies.  
+We have five dollar bills and ten dollar bills.  
+If you are lucky you will have twenty dollar bills, fifty dollar bills and even hundred dollar bills.  
+Our bills in Canada are different colours.  
+That makes them easy to recognize if you go somewhere to spend them.  
+It is wise to save your money.  
+If you save enough, you could have hundreds or thousands of dollars.*
