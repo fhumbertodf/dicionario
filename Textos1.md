@@ -734,8 +734,7 @@ We learn where there are deserts and mountains.
 I know the names of all the continents and all the oceans.  
 Mathematics is my least favorite subject.  
 I am not very good with numbers.  
-I am good at addition and subtraction,  
-but I am not good at division and multiplication.  
+I am good at addition and subtraction, but I am not good at division and multiplication.  
 In my school we learn to speak French.  
 We learn French because Canada has French and English-speaking citizens.  
 English literature is a good subject.  
