@@ -350,7 +350,8 @@ The world is not really smaller, but it has become easy to get to faraway places
 
 ## 87 Television.
 
->*Do you watch television? My mother says that I watch too much television.  
+>*Do you watch television?  
+My mother says that I watch too much television.  
 I watch cartoons on Saturday mornings.  
 Cartoons make me laugh.  
 My brother and I each have our
