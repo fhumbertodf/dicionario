@@ -1,267 +1,3 @@
-## 51: Parties.
-
->*Parties can be a lot of fun.  
-People get invited to parties.  
-You can have a party because it is a special occasion, or just because you want to have a party.  
-Sometimes, people wear paper hats at parties.  
-These are called party hats.  
-Some people decorate with streamers and balloons.  
-At some parties, there is a cake.  
-Sometimes, there are just snacks and drinks.  
-At some parties, people play games.  
-There are also parties where people just stand around and talk.  
-People wear different things to parties.  
-You can go to some parties in casual clothes.  
-At other parties, you need to be dressed up in good clothes.  
-There are other parties where you are supposed to wear a costume.  
-There are many different kinds of parties.  
-There are Christmas parties, birthday parties, going away parties, and parties for no reason at all.  
-I have been to parties for people who are retiring, or for people who have just had a new baby.  
-There are hundreds of reasons for having a party.  
-At some parties, you take a gift.  
-If it is a birthday party, then you take a gift and a birthday card to the person who is having the birthday.  
-Sometimes, people will ask you to bring food or drinks to the party.  
-All parties are different.  
-It is nice to be invited to parties.*
-
-## 52: Grocery Shopping.
-
->*What do you see when you go to the grocery store?  
-The aisles are filled with food.  
-There are also refrigerators and freezers filled with food.  
-There are sometimes things in bins in the middle of the aisles.  
-There are different departments in the grocery store.  
-There is the bakery.  
-In the bakery, there are sweet things such as cakes, pies, cookies and tarts.  
-There are also things that you would eat with your dinner like bread and buns.  
-There are other things in the bakery department like bagels and biscuits.  
-The baker works in the bakery.  
-There is the canned goods section.  
-This is where you might find sauces and soups.  
-Vegetables and fruits also come in cans.  
-There is the section for dairy products.  
-Here you would find milk and cream.  
-The dairy section would also have cheese and butter.  
-Yogurt is also found in the dairy section.  
-In the meat department, there is beef and pork.  
-Poultry is also found in the meat department.  
-Poultry is chicken, duck and goose.  
-There are also cold cuts in the meat department.  
-Cold cuts are the meats that are sliced up for sandwiches.  
-Some examples of cold cuts are ham and baloney.  
-The butcher works in the meat department.  
-The produce department is full of fruits and vegetables.  
-Clerks spray water on the fruit and vegetables to keep them fresh.  
-There is a section in the grocery store for personal hygiene.  
-This is where you would find shampoo and toothpaste.  
-Soap and skin products would also be in this section.  
-There is even a section for your pets.  
-You can buy cat food and dog food.  
-There are toys for cats and dogs.*
-
-## 53: Differences.
-
->*Are you tall or short?  
-Are you big or small?  
-People come in many different shapes and sizes.  
-Some people wear size small clothes.  
-Other people wear size medium clothes.  
-There are people who wear large size clothes.  
-Some people even wear extra large clothes.  
-Some people are thin.  
-Some people are fat.  
-Some people are in between.  
-There are people with short hair.  
-Other people have long hair.  
-Some people have no hair at all.  
-No two people are exactly alike.  
-Some people have long legs.  
-I have short legs.  
-I don't walk as fast as a person with long legs.  
-I am not a tall person.  
-In fact, I am quite short.  
-My feet are a size seven.  
-My mother has size five feet.  
-My father has size twelve feet.  
-We are all different sizes.  
-It is not a bad thing.  
-It is a good thing that we are all unique.*
-
-## 54: The Restaurant.
-
->*When you go to a restaurant you might see a sign that says, "Please wait to be seated."  
-A host or hostess will ask you how many people are in your party.  
-Then they will want to know if you want to sit in the smoking or non-smoking section.  
-The host or hostess will take you to your seat.  
-You might sit at a table or at a booth.  
-The host or hostess will give you a menu to look at.  
-Sometimes, there are different menus for different meals.  
-There can be a breakfast menu, a lunch menu and a dinner menu.  
-Sometimes, there is also a wine list and a dessert menu.  
-The food and the prices of the food are listed on the menu.  
-On your table, there will be cutlery.  
-Cutlery is the knives, forks and spoons.  
-There will also be a napkin.  
-You are supposed to put your napkin on your lap when you eat.  
-Your waiter or waitress will take your order.  
-You might want an appetizer before your meal.  
-Some people want a salad or soup before their meal.  
-After your meal, you might have a dessert, or tea, or coffee.  
-When it is time to go, you will pay your bill and leave a tip for the waiter or waitress.*
-
-## 55: Traffic.
-
->*Traffic moves along on the streets and highways.  
-There are rules that drivers must follow to make the traffic flow smoothly.  
-You must wear a seatbelt.  
-The seatbelt helps to keep you safe.  
-You must stop at all stop signs.  
-You must also stop at a red light.  
-A green light means go, and a yellow light means to be careful.  
-If you see a sign that says school crossing, you have to be careful because you are near 
-a school, and children might be crossing the street.  
-Some places are crosswalks.  
-Those are places where people cross the street.  
-People who are walking have the right of way.  
-If you hear a siren behind you, you must pull over.  
-An emergency vehicle like a police car or an ambulance might need to get somewhere fast.  
-When a school bus puts on its flashing signals, you have to stop.  
-You can't go past the school bus because children may be crossing the street from the bus.  
-You should always obey the speed limit.  
-It is not good to drive too fast.  
-People should never drink and drive.  
-Driving is a serious business.  
-You have to obey all the rules to be a good driver.*
-
-## 56: Music.
-
->*If you were in an orchestra, what would you play?  
-Would you play a tuba, a trumpet or a saxophone?  
-Perhaps you would prefer a stringed instrument like a violin or a cello.  
-Maybe you would enjoy percussion more.  
-You could play the kettle drum.  
-There are instruments that have keyboards.  
-A piano and an organ have keyboards.  
-There are instruments that have strings on them.  
-A guitar, banjo and mandolin have strings on them.  
-There are instruments that you blow into.  
-A flute, a French horn and a harmonica are all instruments that you blow into.  
-There are instruments that you hit with a stick.  
-A drum and a cymbal are two things that you would hit with a stick.  
-If you are in an orchestra, you have to watch the conductor.  
-He will lead you through the piece of music.  
-You might just want to be in a band for fun.  
-You could join a rock band or a dance band.  
-Some people learn to read music.  
-Music notes are written on a staff.  
-Each note represents a sound.  
-There are whole notes, half notes, quarter notes and eighth notes.  
-Each one of these is held for a different number of beats.  
-It is good to learn about music.  
-You have to learn your scales, and learn about sharps and flats.  
-If you want to learn how to play an instrument, it is best to take music lessons.*
-
-## 57: Who What Where and Why.
-
->*These are important words.  
-They are all words that begin questions.  
-"Who" is about a person.  
-Who is the girl with the blue dress on?  
-Who stole my watch?  
-Who will come with me to the game?  
-Who is driving us to the party?  
-"What" is about a thing.  
-What is that big thing on the sidewalk?  
-What should I do when I get to your house?  
-What kind of clothes should I wear to the party?  
-What shall I buy you for your birthday?  
-"Where" is about a place.  
-Where are you going for your vacation?  
-Where did I leave my glasses?  
-Where did my brother go?  
-Where on earth is Timmins?  
-"Why" is the word that asks for an explanation.  
-Why did you take the last piece of pie?  
-Why is the world round?  
-Why should I give you any money?  
-Why did the chicken cross the street?  
-They say that you should answer all of these questions if you are writing a story.  
-You have to give the who, what, where and why to write a good story.*
-
-## 58: Which Direction.
-
->*Which direction should I go in?  
-Should I go up?  
-If I go up, I will head toward the sky.  
-I can go up the stairs.  
-Should I go down?  
-I can go down the stairs to the basement.  
-I can climb down into a hole.  
-Should I go left or right?  
-I am right-handed, so I know which way right is.  
-Should I go backwards?  
-I would be going away from the things that I am facing now if I went backwards.  
-If I went backwards from the thing that I am facing, I would go away from it.  
-If I went backwards from the thing that I am facing, I would go away from it.  
-Should I go forward?  
-I will just go straight ahead if I go forward.  
-If I am facing something and I go forward, then I will go toward the thing that I am facing.  
-Maybe I should go sideways, but which side, left or right?  
-It sounds very complicated, but it is not.  
-Directions are very easy to follow if you just stop and think about them.*
-
-## 59: The Office.
-
->*Some people work in an office.  
-There are special tools that people in an office need to do their work.  
-There is a computer in the office.  
-There is a telephone.  
-Most of the time, the secretary answers the telephone.  
-The secretary sits at a desk.  
-The secretary has pens and pencils on the desk.  
-The secretary writes on a note pad.  
-Some other things that you would find in an office would include the following: a stapler to staple pages together, a photocopier to copy pages, a pencil sharpener to sharpen 
-pencils, a water cooler where the employees could get a drink of water, a hole punch to make holes in sheets of paper, and liquid paper which is used to blank out errors on a 
-page.  
-Some offices have many employees in them.  
-All of the employees have their own desks.  
-Other offices just have one person at a desk.  
-In some offices, there is a secretary or a receptionist, and then there is the boss in another room.  
-There are often many important papers in an office.  
-Important papers can be called documents.  
-You might have to sign a document or fill out a form in an office.  
-Some offices have bookshelves filled with books.  
-The books are filled with information that the people in the office need.  
-You will have to visit an office sometime.  
-Maybe it will be a doctor's office or a lawyer's office.  
-There are many different types of offices.*
-
-## 60: Money.
-
->*I keep my money in the bank.  
-I have saved up my money.  
-I saved all my pennies in a jar.  
-A penny is only worth one cent.  
-I have nickels.  
-A nickel is worth five cents.  
-A dime is worth ten cents.  
-A quarter is worth twenty-five cents.  
-A quarter is a quarter of a dollar.  
-Four quarters make up a dollar.  
-A dollar is worth one hundred cents.  
-I saved up all of my dollars.  
-Our dollars used to be paper, but now they are coins.  
-We call our dollars loonies.  
-It is a funny name.  
-We also have two dollar coins.  
-We call those toonies.  
-We have five dollar bills and ten dollar bills.  
-If you are lucky you will have twenty dollar bills, fifty dollar bills and even hundred dollar bills.  
-Our bills in Canada are different colours.  
-That makes them easy to recognize if you go somewhere to spend them.  
-It is wise to save your money.  
-If you save enough, you could have hundreds or thousands of dollars.*
-
 ## 61: Manners.
 
 >*It is good to be polite.  
@@ -706,3 +442,482 @@ I did exactly what the doctor told me to do.
 It wasn't very long before I was feeling well again.  
 I think that I might like to be a doctor when I grow up.  
 I would like to make people feel better.*
+
+## 76: The Dentist.
+
+>*My friend's father is a dentist.  
+He has an office near my house.  
+I went to see him on Thursday.  
+His nurse told me to sit in a very big chair.  
+She tied a bib under my chin.  
+The dentist came in.  
+He examined my teeth with some shiny silver tools.  
+He looked at my front teeth and my back teeth.  
+He told me that the back teeth were called molars.  
+He told me to "open wide."  
+He had a little mirror that he used to look at my teeth.  
+He said that I had good strong teeth.  
+He told me that I didn't have any cavities.  
+I told him that I didn't eat a lot of candies and that I always brushed my teeth after every meal.  
+He said that was very good.  
+He asked me if I flossed my teeth, and I said, "Yes, I use dental floss every day."  
+He told me that my teeth were healthy because I took very good care of them.  
+He left and told me to keep up the good work.  
+The dental hygienist came in, and she said that she would clean my teeth for me.  
+She scraped my teeth with a sharp tool, and then she put some polish on my teeth and began to clean them.  
+When she was done, she told me to spit into a bowl, and then I rinsed my mouth out with water.  
+I looked into a mirror and saw that my teeth were very shiny and white.  
+If I take care of my teeth, I'll have them forever.  
+I would like to keep my teeth healthy and white.  
+I like to smile.*
+
+## 77: The School Play.
+
+>*We are putting on a play at school.  
+Some of the students are actors in the play.  
+Some people are building the sets.  
+Some people will sew costumes, and some people will be makeup artists.  
+The teacher is the director of the play.  
+The play will be held on a big stage in the gymnasium.  
+The curtains will open, the lights will go on, and the play will begin.  
+It will be very exciting.  
+All of our families will come to see the play.  
+They will clap when the play is over.  
+My friend is very good at cutting wood and building things.  
+He is helping to build the set.  
+My other friend, Michael, is an artist, so he is painting the set so that it looks like a forest.  
+My friend Marie likes to put makeup on people, so she is a makeup artist.  
+She will put makeup on me so that I will look like an old woman.  
+Some of the mothers helped to sew the costumes.  
+The play is called "Hansel and Gretel."  
+I will play the part of the witch.  
+The boy who plays Hansel has to wear shorts and a shirt.  
+I wear a witch's hat and a black dress.  
+I also carry a broom.  
+Some of the people in my class will be dressed like trees and flowers.  
+This is a musical play, and the trees and flowers will sing to Hansel and Gretel as they 
+walk through the forest.  
+I can hardly wait for opening night.  
+I want my family and friends to see me acting on stage.  
+I hope that they like the play.  
+We have all learned our lines and worked very hard at making this play a success.*
+
+## 78: Emotions.
+
+>*Do you ever think about your emotions?  
+What kinds of things make you sad?  
+I get sad when I get a bad mark in school, or when someone that I like moves away.  
+I sometimes see sad movies that make me cry.  
+I don't like to be sad.  
+I don't like to have a frown on my face.  
+I like to be happy.  
+I am happy most of the time.  
+Parties make me happy.  
+Being with my friends makes me happy.  
+Lots of things make me happy.  
+If someone tells me a joke, I laugh.  
+I enjoy laughing.  
+Funny movies make me laugh.  
+I think that people look the best when they smile.  
+What kinds of things make you mad?  
+I get mad when my brother breaks one of my toys.  
+I try not to show it when I get mad.  
+My parents get mad at me if I come home late.  
+I don't think anger is a good emotion.  
+It is best to stay calm and talk things over.  
+Emotions come from inside you, but they show on your face.  
+People can tell when you are mad, or sad or happy.  
+I prefer to look happy.  
+Sometimes I even smile when I am feeling sad, and the smile makes me feel a little better.*
+
+## 79: My First Job.
+
+>*I just got a job at the grocery store.  
+This is my first job.  
+I will receive a pay cheque every two weeks.  
+I wear a uniform.  
+The uniform has the name of the grocery store on it.  
+I have many jobs at the grocery store.  
+I have to collect all the carts from the parking lot and bring them back into the store.  
+I have to put all the produce out for the people to see.  
+I will be putting out the vegetables.  
+There are carrots, lettuce, cabbages, cucumbers and beans to put out this morning.  
+I also have to put the fruit out on the stands so that it looks nice.  
+The oranges roll away when I put them out, so I have to be careful.  
+I put out the apples, bananas and grapes.  
+I stack boxes up so that people can buy cereal and cookies.  
+I have to be careful, or the boxes will fall.  
+There are cans of things which also need to be placed on the shelves.*
+
+## 80: The Lie.
+
+>*Yesterday I told a lie.  
+I don't feel very good about it.  
+I was bouncing a ball in the kitchen, and the ball bounced up and broke a cup.  
+It was one of my mother's best cups, so I was afraid that she would be mad.  
+I put the broken cup back on the table, and I didn't tell anyone that I had broken it.  
+That night, my mother asked who had broken the cup.  
+My brother said, "not me."  
+My sister said, "I didn't do it."  
+I said, "I didn't break the cup," but I was lying.  
+My mother said that we would all be punished, if someone didn't tell the truth and say who broke the cup.  
+I still did not tell her that I had broken it.  
+She gave us one more chance, and said that she wasn't mad about the cup; she just wanted us to be honest.  
+I still didn't say anything.  
+My brother, sister and I all got sent to our rooms.  
+We had to stay in our rooms all morning.  
+My brother said that it wasn't fair.  
+I felt very bad because my brother and sister were being punished because of me.  
+I went to my mother and told her that I had broken the cup.  
+She said that she was not upset about the broken cup.  
+She knew that it was an accident.  
+She was disappointed in me because I hadn't come forward and told the truth.  
+She said that she wouldn't have punished me if I had been honest with her.  
+I told my brother and sister that I was sorry.  
+I felt bad because they were punished because I was dishonest.  
+I told my mother that I was sorry that I had lied to her.  
+I told her that I had learned a lesson.  
+Honesty is the best policy.  
+It is better to tell the truth.  
+It is not a good feeling when people don't trust you.  
+I have learned that lying just hurts people.  
+Sometimes it is hard to be honest, but it is the best way to be.
+
+## 81: Hobbies
+
+>*A lot of people have hobbies.  
+Hobbies are interesting things that people like to do in their spare time.  
+My father has a hobby.  
+He has a model railroad set that he put together.  
+A tiny electric train runs through make-believe villages and travels through tunnels and over mountains.  
+My father also enjoys sailing.  
+He has a real sailboat that he takes us out on.  
+He is teaching me how to sail.  
+I like to collect things.  
+I collect comic books, stamps and coins.  
+I trade comic books with some of my friends, and sometimes I buy comic books at stores.  
+Some of the very old comic books are worth a lot of money.  
+I have stamps from all over the world.  
+Whenever any of my friends get a letter from a faraway place, they save the stamps for me.  
+I have stamps from England, Japan, Australia and even Russia.  
+I use a magnifying glass to look at the stamps, and I keep them in a special album.  
+I don't have too many coins yet, but I have a very old dime from Canada, and I have a coin with a hole in it from Africa.  
+My mother used to collect dolls when she was a little girl.  
+The dolls wore costumes from different countries.  
+My friend John's hobby is painting.  
+He does oil painting.  
+He has even sold some of his paintings.  
+He is a good artist.  
+My friend Linda sews.  
+She has made clothes for herself and some of her friends.  
+Maybe Linda will be a fashion designer when she gets older.  
+Sometimes people's hobbies lead them into their careers.*
+
+## 82: Christmas.
+
+>*In December, Christmas comes.  
+We get a holiday from school, and our parents get a few days off from work.  
+Our family gets ready for Christmas by decorating the house.  
+We decorate inside and out.  
+On the outside of the house we put up lights that twinkle and glow.  
+We have a wooden Santa Claus and reindeer set that my father puts up on the roof.  
+Inside, we put up a Christmas tree.  
+Some years we have a real tree.  
+Real pine trees smell nice, but you have to be careful that they don't dry out and start a fire.  
+This year we have an artificial tree.  
+We hang tinsel and ornaments on the tree.  
+We also hang strands of lights on the tree and put a star at the top.  
+Everyone thinks that the tree is beautiful when we turn on the lights.  
+We place gifts under the tree.  
+There is a gift for me under the tree.  
+It is wrapped in red paper, and it has a big green bow on it.  
+Red and green are the Christmas colours.  
+On Christmas Eve, my brother and sister and I will hang our stockings near the fireplace.  
+Santa Claus comes down the chimney and fills our stockings full of toys and goodies.  
+On Christmas morning, it is exciting to see what Santa has left for you.  
+My mother will make a big turkey dinner for us on Christmas day.  
+We will have lots of vegetables and good tasting foods to go with the turkey.  
+We will have dessert too.  
+Some of my family like Christmas pudding, but I will just have ice cream.  
+Last year some carolers came to the door.  
+It was snowing outside.  
+They stood in the snow and sang Christmas carols to us.  
+My father gave them some money, and my mother gave them some hot chocolate to warm them up.  
+They had lovely voices, and they sang some of my favorite carols.  
+We also collect food, gifts and money for some of the people in town who cannot afford to have Christmas.  
+My family is collecting things for a poor family who live near here.  
+We had fun deciding which toys to buy for the children in that family.  
+It is a good feeling to share with people who do not have as much as you do.  
+My parents have always taught us that Christmas is a time for giving, not receiving.  
+I think they're right.*
+
+## 83: Garden.
+
+>*The garden is very interesting.  
+I sometimes go outside and I watch all the things that go on in the garden.  
+It smells wonderful in the flower garden.  
+There are red, white, pinkand yellow roses that have a sweet smell.  
+I watch the bees as they take pollen from the roses.  
+There are tiny bugs that live on the rose bushes.  
+My mother tries to get rid of the little bugs, but it is difficult to get rid of them.  
+She is glad to see the red ladybugs, who eat the little bugs.  
+The birds like the sunflowers.  
+They like to eat sunflower seeds.  
+There is a birdbath in the garden.  
+The blackbirds and swallows go in there totake a drink orhave a bath.  
+I sometimes see a robin or a blue jay in there too.  
+In the dirt, there are little holes where the ants go in and out.  
+The ants are hard workers.  
+I watch them as they work together as a team to bring food to their nests.  
+There are snails in the garden too.  
+They carry their homes on their backs.  
+They move slowly and leave a silvery trail as they go.  
+They eat the leaves from my mother's plants.  
+My mother also has vegetables growing in her garden.  
+She grows green peas.  
+We like to pick those and eat the peas raw, right out of their pods.  
+She grows lettuce and tomatoes too.  
+We have so many tomatoes that we always give some to our neighbors.  
+My mother sends us outside to pick lettuce and tomatoes whenever we have a salad.  
+My favorite vegetables are carrots.  
+Their tops grow above the earth, but the carrots are below the dirt.  
+When you pick them, you have to pull the carrots out from under the soil.  
+Weeds also grow in the garden.  
+After a good rainfall, it seems that the weeds just spring up.  
+I pull the weeds out by their roots so that they won't grow back.  
+Weeds choke the good plants, so we don't want them in our garden.  
+Gardening is a good hobby.  
+You get fresh air, sunshine and exercise.  
+You even get beautiful, colorful flowers and nice freshfood.*
+
+## 84 The Pet Store
+
+>*On Saturday, my parents took us to the pet store.  
+They had everything that you would need if you had a pet.  
+They had dog food, collars and leashes for dogs.  
+They had treats to give your dog, and brushes to brush your dog.  
+For cats, they had food, toys, and litter boxes.  
+For birds, they had seed and cages.  
+There was a section for fish.  
+They had fish in big tanks and little bowls.  
+In the big tanks, there were colorful fish swimming around.  
+The girl who worked there said that they were tropical fish.  
+There were goldfish in the smaller fishbowls.  
+I saw the girl get a goldfish out with a little net.  
+She sold it to a boy who said he had another goldfish at home.  
+There was a very large cage with a parrot in it.  
+I walked up to the cage, and the parrot said "hello."  
+I was surprised that the parrot could talk.  
+It could say a few things.  
+It said, "I love you," "pretty bird," and "bye-bye."  
+I told my mother that I would like a parrot, but she said that parrots need a lot of care and attention.  
+At the back of the store there were some puppies.  
+They seemed glad to see me.  
+I stuck my hand into the cage, and one of them licked my hand.  
+They were very lively.  
+They were running around and chasing their own tails.  
+In the next cage, there were two kittens.  
+One of them was playing with a toy, and the other one was asleep.  
+The kittens were very small.  
+The one that was sleeping was curled up into a ball.  
+I couldn't even see her face.  
+I didn't want to leave the pet store.  
+I was wishing that I could take all of the animals home with me.*
+
+## 85 My First Day of School
+
+>*I remember my first day of school.  
+I was excited, but I was afraid.  
+I held my mother's hand as we walked to the school.  
+When we got near the school, I wouldn't let her hold my hand anymore.  
+I didn't want to look like a baby.  
+We got to the school.  
+The school looked very big and frightening.  
+There were children outside on the playground.  
+They all looked very big.  
+I looked atthem, and some ofthem looked at me.  
+I felt very small.  
+My mother and I went into the schooland found the kindergarten room.  
+There were children in there.  
+Most of them were the same size as me.  
+My mother spoke to the kindergarten teacher.  
+The teacher was very nice.  
+She said my name, and she introduced me to some of the other children.  
+I already knew some of the children because they lived near me.  
+I began to play with some of the things that were in the classroom.  
+There were toy trucks, coloring books, and even a doll house.  
+I soon forgotto be scared, and I began to play with the other children.  
+I didn't even notice that my mother had left the room.  
+In school we sang songs, played some games and listenedas the teacher read us a story.  
+I had a lot of fun on my first day of school.  
+I even drew a picture of my teacher.  
+I took the picture home, and my mother put it on the refrigerator.  
+I like school.  
+It is a good place to meet new friends and learn all about the world.*
+
+## 86 Transportation (2).
+
+>*People move from place to place.  
+There are lots of ways that you can move around from one place to another.  
+Sometimes you can just move your feet and walk.  
+Walking is good for you.  
+Some places are too far to walk to.  
+You might have to ride a bicycle or ride on a skateboard.  
+Some places are too far away to ride your bicycle to.  
+You might have to drive in a car, or a van, or even a truck.  
+My father has a car.  
+My uncle has a van.  
+I have never been in a big truck.  
+Trucks are usually used to carry big loads from one city to another.  
+I would like to be a truck driver.  
+I would travel all over and sit high up in the cab.  
+I have been in a taxi cab.  
+Once, my mother and I took a taxi to the hospital.  
+There was a special meter in the taxi.  
+When we finished our taxi ride, the driver looked at the meter to find out how much money we owed him.  
+I once rode a horse.  
+I satin the saddle and held on tight to the reins.  
+The horse ran very fast.  
+It was a bumpy ride, and I was afraid that I would fall off the horse.  
+Not too many people around here use horses for transportation.  
+They used to use horses for transportation in theolddays.  
+If you wantto travel very far away, you have to goon a train, a plane, or a boat.  
+If you are in a hurry, it is bestto take a plane.  
+Planes fly through the air very fast.  
+Trains goa long the tracks.  
+Sometimes I can hear the train whistle from my house.  
+Boats take a long time to cross the ocean.  
+Great big boats that cross the oceans are called ships.  
+If you like to take it easy and look out at the water, then ships are a good way to travel.  
+They say that the world is a lot smaller now because of transportation.  
+People can travel to all parts of the world quickly and easily.  
+The world is not really smaller, but it has become easy to get to faraway places.*
+
+## 87 Television.
+
+>*Do you watch television?  
+My mother says that I watch too much television.  
+I watch cartoons on Saturday mornings.  
+Cartoons make me laugh.  
+My brother and I each have our favorite cartoons.  
+We have trouble deciding which cartoons we will watch.  
+On Saturday afternoons, we like to watch sports.  
+My brother really likes to watch baseball, but usually my mother tells us to go out and play on a Saturday afternoon.  
+On week nights, we have our own favorite shows.  
+I like shows about outer space and monsters.  
+My brother likes comedies.  
+He likes to laugh.  
+My mother likes shows about real life situations.  
+She likes to watch the news.  
+She says that the news is important.  
+She watches the news and weather to find out what is going on in the world.  
+Sometimes she watches real life shows about doctors or policemen.  
+My father doesn't watch television.  
+He says that he would rather read a good book or the newspaper.  
+My dad gets all his news from the newspaper.  
+My favorite thing is to sit in front of the television with a bag of popcorn and a bottle of pop.  
+I sit there and change the channels with the remote control.  
+I change channels and watch a few different shows at once.  
+My mother won't let me watch too much television.  
+She doesn't want me to get lazy.  
+Television is good if you don't spend too much time watching it.  
+You can learn a lot from television if you watch the educational channels.  
+I learned about dinosaurs and rainforests last week just from watching television.*
+
+## 88 My Country.
+
+>*I live in Canada.  
+It is a very large country that is made up of ten provinces and three territories.  
+Most of the provinces and territories are quite unique.  
+For example, in Saskatchewan the land is flat, and it is not surrounded by water.  
+They grow wheat in Saskatchewan.  
+British Columbia has mountains.  
+I have never been to British Columbia, but I hear that it is very beautiful.  
+Nova Scotia is on the Atlantic Ocean, so there are many fishermen out there.  
+The people in the provinces are even different from each other.  
+In Quebec, many of the people speak French.  
+In the Maritime Provinces, the people like to play their own kind of music.  
+They play fiddles and accordions, and many of them dance very well.  
+Nunavut is in the north, so life is quite different there.  
+The people who live in the new territory of Nunavut are very close to wildlife.  
+They do a lot of hunting and fishing.  
+It can get very cold up in the Arctic where Nunavut is.  
+I live in Ontario.  
+Even within Ontario life can be quite different.  
+The capital of Ontario is Toronto.  
+Toronto is a very busy city with lots of apartments, offices and shops.  
+Toronto is an exciting place, and it has a lot to offer.  
+There are theatres and restaurants to suit every taste.  
+The culture in Toronto is very diverse.  
+If you drive a few miles north of Toronto, you will find places that are tranquil and peaceful.  
+Many people leave Toronto on the weekends and drive to their cottages where they find rest and relaxation.  
+Canada is made up of many different cultures.  
+People of many different ethnic backgrounds live in harmony in Canada.  
+That is why I like Canada.  
+In Canada, we celebrate our differences.*
+
+## 89 Food.
+
+>*What kinds of food do you like to eat?  
+I am lucky, because in Canada there are many foods to choose from.  
+I like to eat hot dogs, hamburgers, and steak.  
+These are all meat products.  
+I also like cheese, ice cream and yogurt.  
+These are all dairy products.  
+I like vegetables.  
+My favorite vegetables are broccoli, cabbage, carrots and peas.  
+I eat a lot of fruit.  
+I eat whichever fruit is in season.  
+In strawberry season, I eat a lot of strawberries.  
+In peach season, I eat many peaches.  
+Sometimes, my mother will make a peach pie.  
+Many different crops grow in Canada.  
+We have many orchards and farms.  
+Fresh fruit and vegetables are plentiful in Canada.  
+Meat and fish are also plentiful here.  
+In Canada, we have a lot of different foods to choose from.  
+In my city, there are a lot of Italian restaurants.  
+My favorite food at the Italian restaurant is pizza.  
+My parents would rather have spaghetti or lasagna.  
+There are Greek restaurants, Mexican restaurants and Chinese restaurants; in fact, there are restaurants from most cultures.  
+I can go around from restaurant to restaurant and pretend that I am traveling the world and trying all the different foods from around the world.  
+Sometimes I eat things that aren't good for me.  
+I eat potato chips and candies.  
+These foods aren't part of a nutritious diet, but they are fun to eat.*
+
+## 90 The Zoo.
+
+>*My class took a trip to the Toronto Zoo.  
+I had a wonderful time there.  
+My favorite animals were the lions.  
+They look very powerful and strong.  
+They say that the lion is the king of the forest, and I think that title suits him.  
+The monkeys were funny.  
+They were looking at us just as much as we looked at them.  
+They were swinging from branches and doing tricks to impress us.  
+There was a baby monkey that was clinging to its mother's back.  
+It was very cute.  
+The tigers were pacing back and forth.  
+They seemed restless.  
+The stripes on a tiger are very beautiful.  
+We watched the tall giraffes as they nibbled leaves off the tallest trees.  
+We spoke to a colorful parrot that spoke back to us.  
+We saw exotic animals that we had never seen before.  
+Some of them were very strange.  
+There were different types of bears there.  
+There were black bears.  
+I saw a black bear once when I was camping up north.  
+We saw polar bears.  
+Polar bears are white.  
+They like the cold.  
+We even saw panda bears.  
+One of my friends bought a toy panda bear from the gift shop because she thought that the pandas were so cute.  
+We saw slithery snakes.  
+Some of the snakes had very bright skins.  
+Most of the girls were afraid of the snakes.  
+The zoo keeper was looking after the snakes, and one of them hissed at him.  
+He has to be very careful when he works with the snakes.  
+The last thing that we saw at the zoo was the elephant.  
+He was enormous.  
+He looked at us; then he raised his trunk and made a loud sound.  
+It made us jump.*
