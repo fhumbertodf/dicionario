@@ -1,5 +1,6 @@
-1. The Cyclone
-Dorothy lived in the midst of the great Kansas prairies, with
+## 1. The Cyclone
+
+>*Dorothy lived in the midst of the great Kansas prairies, with
 Uncle Henry, who was a farmer, and Aunt Em, who was the farmer’s
 wife. Their house was small, for the lumber to build it had to be
 carried by wagon many miles. There were four walls, a floor and a
@@ -96,9 +97,11 @@ worrying and resolved to wait calmly and see what the future would bring.
 At last she crawled over the swaying floor to her bed, and lay down upon it;
 and Toto followed and lay down beside her.
 In spite of the swaying of the house and the wailing of the
-wind, Dorothy soon closed her eyes and fell fast asleep.
-2. The Council with the Munchkins
-She was awakened by a shock, so sudden and severe that if
+wind, Dorothy soon closed her eyes and fell fast asleep.*
+
+## 2. The Council with the Munchkins
+
+>*She was awakened by a shock, so sudden and severe that if
 Dorothy had not been lying on the soft bed she might have been hurt.
 As it was, the jar made her catch her breath and wonder what had happened;
 and Toto put his cold little nose into her face and whined dismally.
@@ -3559,4 +3562,4 @@ when she looked up and saw Dorothy running toward her.
 213arms and covering her face with kisses. "Where in the world did
 you come from?"
 "From the Land of Oz," said Dorothy gravely. "And here is
-Toto, too. And oh, Aunt Em! I’m so glad to be at home again!"
+Toto, too. And oh, Aunt Em! I’m so glad to be at home again!"*
