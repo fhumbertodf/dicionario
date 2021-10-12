@@ -57,7 +57,6 @@ This is where you would find shampoo and toothpaste.
 Soap and skin products would also be in this section.  
 There is even a section for your pets.  
 You can buy cat food and dog food.  
-Grocery Shopping
 There are toys for cats and dogs.*
 
 ## 53: Differences.
