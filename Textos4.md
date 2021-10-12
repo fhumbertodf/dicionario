@@ -386,13 +386,13 @@ It is a very large country that is made up of ten provinces and three territorie
 Most of the provinces and territories are quite unique.  
 For example, in Saskatchewan the land is flat, and it is not surrounded by water.  
 They grow wheat in Saskatchewan.  
-BritishColumbiahasmountains.  
-Ihave neverbeentoBritishColumbia, but I hear that it is very beautiful.  
+British Columbia has mountains.  
+I have never been to British Columbia, but I hear that it is very beautiful.  
 Nova Scotia is on the Atlantic Ocean, so there are many fishermen out there.  
 The people in the provinces are even different from each other.  
-In Quebec, many ofthe people speak French.  
-Inthe MaritimeProvinces,thepeople like to play theirownkindofmusic.  
-Theyplayfiddlesandaccordions,andmanyofthemdance very well.  
+In Quebec, many of the people speak French.  
+In the Maritime Provinces, the people like to play their own kind of music.  
+They play fiddles and accordions, and many of them dance very well.  
 Nunavut is in the north, so life is quite different there.  
 The people who live in the new territory of Nunavut are very close to wildlife.  
 They do a lot of hunting and fishing.  
@@ -400,15 +400,15 @@ It can get very cold up in the Arctic where Nunavut is.
 I live in Ontario.  
 Even within Ontario life can be quite different.  
 The capital of Ontario is Toronto.  
-Toronto is a very busy citywith lots of apartments,officesandshops.  
-Torontoisanexcitingplace,and it has a lottooffer.  
-There are theatresandrestaurantstosuiteverytaste.  
-Theculturein Torontois verydiverse.  
-Ifyoudrive a fewmiles north ofToronto, you willfind places that are tranquilandpeaceful.  
+Toronto is a very busy city with lots of apartments, offices and shops.  
+Toronto is an exciting place, and it has a lot to offer.  
+There are theatres and restaurants to suit every taste.  
+The culture in Toronto is very diverse.  
+If you drive a few miles north of Toronto, you will find places that are tranquil and peaceful.  
 Many people leave Toronto on the weekends and drive to their cottages where they find rest and relaxation.  
 Canada is made up of many different cultures.  
-People ofmanydifferent ethnic backgrounds live inharmony in Canada.  
-Thatis why I like Canada.  
+People of many different ethnic backgrounds live in harmony in Canada.  
+That is why I like Canada.  
 In Canada, we celebrate our differences.*
 
 ## 89 Food.
