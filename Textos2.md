@@ -366,7 +366,8 @@ We don't get off work or school for all of these days, but many of them are holi
 
 ## 37 - Diseases.
 
->*Some diseases are very deadly, and some are not so serious.  
+>*There are many diseases.  
+Some diseases are very deadly, and some are not so serious.  
 Most people catch a cold sometimes.  
 A cold makes you cough and sneeze.  
 Colds can be passed on from person to person.  
