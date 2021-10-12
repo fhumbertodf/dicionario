@@ -337,7 +337,7 @@ It was a bumpy ride, and I was afraid that I would fall off the horse.
 Not too many people around here use horses for transportation.  
 They used to use horses for transportation in theolddays.  
 If you wantto travel very far away, you have to goon a train, a plane, or a boat.  
-If you are in a hurry, itis bestto take a plane.  
+If you are in a hurry, it is bestto take a plane.  
 Planes fly through the air very fast.  
 Trains goa long the tracks.  
 Sometimes I can hear the train whistle from my house.  
