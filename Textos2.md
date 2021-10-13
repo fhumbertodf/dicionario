@@ -837,7 +837,6 @@ I am right-handed, so I know which way right is.
 Should I go backwards?  
 I would be going away from the things that I am facing now if I went backwards.  
 If I went backwards from the thing that I am facing, I would go away from it.  
-If I went backwards from the thing that I am facing, I would go away from it.  
 Should I go forward?  
 I will just go straight ahead if I go forward.  
 If I am facing something and I go forward, then I will go toward the thing that I am facing.  
