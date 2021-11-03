@@ -143,7 +143,7 @@ Milo is a very big cat.
 Milo cannot have kittens.  
 She is fixed.  
 Milo likes to eat.  
-Milo likes to play outside  
+Milo likes to play outside.  
 Milo likes to hunt for birds.  
 Milo likes to hunt for mice.  
 She likes her ears scratched.  
