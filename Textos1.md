@@ -361,7 +361,7 @@ What was the grandmother's job in World War II? When Remembrance Day? What does 
 My mom buys candy.  
 My Mom buys potato chips.  
 My Mom buys chocolate bars.  
-It is for the trick or treat.  
+It is for the trick or treaters.  
 My Mom buys me a costume.  
 It is a ghost costume.  
 I am going to be scary.  
