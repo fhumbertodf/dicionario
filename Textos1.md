@@ -312,7 +312,7 @@ Back to work.*
 ## 013 - Susan's Wedding Day.
 
 >*Susan is getting married.  
-Her fiancé name is Michael.  
+Her fiancee's name is Michael.  
 They are in love.  
 They are getting married today.  
 Susan wakes up early.  
