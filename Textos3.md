@@ -656,7 +656,7 @@ I think they're right.*
 >*The garden is very interesting.  
 I sometimes go outside and I watch all the things that go on in the garden.  
 It smells wonderful in the flower garden.  
-There are red, white, pinkand yellow roses that have a sweet smell.  
+There are red, white, pink and yellow roses that have a sweet smell.  
 I watch the bees as they take pollen from the roses.  
 There are tiny bugs that live on the rose bushes.  
 My mother tries to get rid of the little bugs, but it is difficult to get rid of them.  
@@ -664,7 +664,7 @@ She is glad to see the red ladybugs, who eat the little bugs.
 The birds like the sunflowers.  
 They like to eat sunflower seeds.  
 There is a birdbath in the garden.  
-The blackbirds and swallows go in there totake a drink orhave a bath.  
+The blackbirds and swallows go in there to take a drink or have a bath.  
 I sometimes see a robin or a blue jay in there too.  
 In the dirt, there are little holes where the ants go in and out.  
 The ants are hard workers.  
@@ -735,9 +735,9 @@ We got to the school.
 The school looked very big and frightening.  
 There were children outside on the playground.  
 They all looked very big.  
-I looked atthem, and some ofthem looked at me.  
+I looked at them, and some of them looked at me.  
 I felt very small.  
-My mother and I went into the schooland found the kindergarten room.  
+My mother and I went into the school and found the kindergarten room.  
 There were children in there.  
 Most of them were the same size as me.  
 My mother spoke to the kindergarten teacher.  
@@ -746,9 +746,9 @@ She said my name, and she introduced me to some of the other children.
 I already knew some of the children because they lived near me.  
 I began to play with some of the things that were in the classroom.  
 There were toy trucks, coloring books, and even a doll house.  
-I soon forgotto be scared, and I began to play with the other children.  
+I soon forgot to be scared, and I began to play with the other children.  
 I didn't even notice that my mother had left the room.  
-In school we sang songs, played some games and listenedas the teacher read us a story.  
+In school we sang songs, played some games and listened as the teacher read us a story.  
 I had a lot of fun on my first day of school.  
 I even drew a picture of my teacher.  
 I took the picture home, and my mother put it on the refrigerator.  
@@ -776,15 +776,15 @@ Once, my mother and I took a taxi to the hospital.
 There was a special meter in the taxi.  
 When we finished our taxi ride, the driver looked at the meter to find out how much money we owed him.  
 I once rode a horse.  
-I satin the saddle and held on tight to the reins.  
+I sat in the saddle and held on tight to the reins.  
 The horse ran very fast.  
 It was a bumpy ride, and I was afraid that I would fall off the horse.  
 Not too many people around here use horses for transportation.  
-They used to use horses for transportation in theolddays.  
-If you wantto travel very far away, you have to goon a train, a plane, or a boat.  
-If you are in a hurry, it is bestto take a plane.  
+They used to use horses for transportation in the old days.  
+If you want to travel very far away, you have to go on a train, a plane, or a boat.  
+If you are in a hurry, it is best to take a plane.  
 Planes fly through the air very fast.  
-Trains goa long the tracks.  
+Trains go along the tracks.  
 Sometimes I can hear the train whistle from my house.  
 Boats take a long time to cross the ocean.  
 Great big boats that cross the oceans are called ships.  
@@ -878,7 +878,7 @@ Meat and fish are also plentiful here.
 In Canada, we have a lot of different foods to choose from.  
 In my city, there are a lot of Italian restaurants.  
 My favorite food at the Italian restaurant is pizza.  
-My parents would rather have spaghetti or lasagna.  
+My parents would rather have spaghetti or lasagne.  
 There are Greek restaurants, Mexican restaurants and Chinese restaurants; in fact, there are restaurants from most cultures.  
 I can go around from restaurant to restaurant and pretend that I am traveling the world and trying all the different foods from around the world.  
 Sometimes I eat things that aren't good for me.  
