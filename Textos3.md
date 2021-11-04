@@ -581,7 +581,7 @@ Honesty is the best policy.
 It is better to tell the truth.  
 It is not a good feeling when people don't trust you.  
 I have learned that lying just hurts people.  
-Sometimes it is hard to be honest, but it is the best way to be.
+Sometimes it is hard to be honest, but it is the best way to be.*
 
 ## 81: Hobbies
 
