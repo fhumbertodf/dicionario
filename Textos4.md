@@ -300,7 +300,7 @@ I get good marks because I like school.
 My favorite subjects are physical education, English and history.  
 Math is my least favorite subject, but I'm trying to improve my marks in that.*
 
-Learn English via Listening Level 1 - Lesson 101 | Opposites.
+## 101 Opposites.
 
 Some things are opposites of each other.  
 The opposite of black is white.  
@@ -334,7 +334,7 @@ I might love to swim, or I might hate to swim.
 It is interesting to see how many opposites you can think up.  
 I could say hello, but I think it's time to say goodbye.
 
-Learn English via Listening Level 1 - Lesson 102 | Niagara Falls.
+## 102 Niagara Falls.
 
 In my town there is a paperboy who just got an award for his actions.  
 This boy delivered the local newspaper every morning.  
@@ -367,7 +367,7 @@ The police said that the boy was an example of a very good citizen.
 The paperboy and the man are very good friends.  
 The man will never forget what the paperboy did for him.
 
-Learn English via Listening Level 1 - Lesson 103 | Niagara Falls.
+## 103 Niagara Falls.
 
 I live in Niagara Falls.  
 Niagara Falls is a famous place.  
@@ -402,7 +402,7 @@ I stay behind the railings when I look at the falls.
 I know just how powerful the falls are.  
 It is interesting to discover all the stories that there are about Niagara Falls.
 
-Learn English via Listening Level 1 - Lesson 104 | The Library.
+## 104 The Library.
 
 One of my favorite places is the library.  
 I go there to get books for school, and I go there to get books for pleasure.  
@@ -440,7 +440,7 @@ He likes books about trains.
 I have liked books ever since I was very small.  
 My mother says that reading is a good habit to get into.
 
-Learn English via Listening Level 1 - Lesson 25: 105 | When I Grow Up.
+## 105 When I Grow Up.
 
 I have been thinking about what I'd like to be when I grow up.  
 There are so many choices.  
@@ -473,7 +473,7 @@ Some require a little bit of training, and some require a lot of training.
 It's all up to me.  
 I can be whatever I want to be.
 
-Learn English via Listening Level 1 - Lesson 106 | Favorite Colours.
+## 106 Favorite Colours.
 
 My very favorite colour is purple.  
 There are not a lot of things that are purple.  
@@ -511,7 +511,7 @@ Nature used all these colours to make the beautiful earth.
 We are fortunate to be surrounded by beauty.  
 We should do our part to make sure that nature stays beautiful and clean.
 
-Learn English via Listening Level 1 - Lesson 107 | Making Friends.
+## 107 Making Friends.
 
 I used to be very shy.  
 I would not go up to someone that I did not know and say hello.  
@@ -541,7 +541,7 @@ That was a few years ago.
 She is still one of my best friends.  
 Just think, if she hadn't been lost we might never have become friends.
 
-Learn English via Listening Level 1 - Lesson 108 | Getting Old.
+## 108 Getting Old.
 
 My grandfather is getting old.  
 When I was younger, my grandfather would carry me on his shoulders, and we would go 
@@ -578,7 +578,7 @@ He jokes about his old bones.
 I spend a lot of time with my grandfather.  
 I hope that he is around for a long time.
 
-Learn English via Listening Level 1 - Lesson 109 | Time.
+##  109 Time.
 
 Time is something that you should never waste.  
 Once an hour is gone, it is gone forever.  
@@ -611,7 +611,7 @@ Time is something that we can't see, but it is a big factor in our lives.
 How many times a day do you look at a watch or a clock?  
 I bet you'd be surprised at just how many times you do.
 
-Learn English via Listening Level 1 - Lesson 110 | Amy.
+## 110 Amy.
 
 Amy was a girl who came into our classroom.  
 She had many things wrong with her.  
@@ -649,7 +649,7 @@ I saw a brave girl who wouldn't give up.
 Whenever I think my problems are too big to handle, I think of Amy and I remember her 
 smile.
 
-Learn English via Listening Level 1 - Lesson 111 | Memories.
+## 111 Memories.
 
 Somebody once asked me what the most valuable things that I owned were.  
 I thought about that for a long time.  
@@ -677,8 +677,7 @@ ordinary days.
 Memories are so precious.  
 Cherish your memories, and keep them in a place close to your heart.
 
-
-Learn English via Listening Level 1 - Lesson 112 | Roommate Wanted.
+## 112 Roommate Wanted.
 
 Spacious two bedroom apartment with kitchen facilities.  
 On the bus route to Brock University.  
@@ -728,7 +727,7 @@ References required.
 $700 per month.  
 Call 905-111-1111 and ask for Mr. Bridges.
 
-Learn English via Listening Level 1 - Lesson 113 | Places to Live.
+## 113 Places to Live.
 
 I live in a house.  
 My house is in a town.  
@@ -752,7 +751,7 @@ Many people who are about the same age as he is live there.
 I would like to live in a palace.  
 I think you have to be a king or a queen, or a prince or a princess to live in a palace.
 
-Learn English via Listening Level 1 - Lesson 114 | The Bathroom.
+## 114 The Bathroom.
 
 There is a bathtub in my bathroom.  
 On the wall over the bathtub there is a shower head.  
@@ -777,7 +776,7 @@ There are toothbrushes and dental floss for our teeth.
 We only have one bathroom, so we line up to use it.  
 It is good to have more than one bathroom in a house.
 
-Learn English via Listening Level 1 - Lesson 115 | The Bedroom (End).
+## 115 The Bedroom (End).
 
 My bed is nice and soft.  
 I have a pretty bedspread on my bed.  
