@@ -332,7 +332,36 @@ I wouldn't want a book to fall on me.
 I would be afraid of being swept away by a big gust of wind.  
 I think I'd rather be my size.*
 
-## 212 Do People Have the Right to Smoke in Public?
+## 212 If I were a Giant
+
+>*If I were a giant, I wouldn't be able to fit in my house.  
+I'd have to live in a building that had a high ceiling, but I'd probably have a hard time getting through the door.  
+I'd have to make my own clothes, but where would I get a giant needle and thread to sew with? I couldn't ride in a car or a plane.  
+I suppose I would just have to take giant steps to get from place to place.  
+I would have to be very careful not to step on anybody or anything.  
+When I talked, people would cover their ears.  
+My voice would sound very loud to them.  
+I wouldn't find shoes to cover my feet.  
+I wouldn't find a knife and fork to eat my dinner with.  
+I might have to use a rake as a fork.  
+My dinner would be huge.  
+What would I cook my dinner in? 
+I certainly wouldn't find an oven big enough to put my dinner in.  
+If I sneezed, it would be like a hurricane.  
+If I fell down, it would be like an earthquake.  
+I wouldn't have any friends because everyone would be too tiny for me to talk to.  
+I think that being a giant would be very lonely.  
+I couldn't have just one apple.  
+I would have to have a lot of apples to fill me up.  
+I would have to drink gallons and gallons of water to quench my thirst.  
+I could never relax under a tree.  
+I would be taller than all the trees.   
+I don't think that being a giant would be fun.  
+I won't ever make a wish to be a giant.  
+I would rather be my height.  
+I'm very happy the way I am.*
+
+## 213 Do People Have the Right to Smoke in Public?
 
 >*My father used to smoke.  
 He got very ill.  
@@ -364,63 +393,7 @@ People should be educated about the dangers of smoking.
 Smoking should be banned in public places, but eventually I would like to believe that fewer people will smoke.  
 It would be nice to live in a smoke free environment.*
 
-## 213 If I were a Giant
-
->*If I were a giant, I wouldn't be able to fit in my house.  
-I'd have to live in a building that had a high ceiling, but I'd probably have a hard time getting through the door.  
-I'd have to make my own clothes, but where would I get a giant needle and thread to sew with? I couldn't ride in a car or a plane.  
-I suppose I would just have to take giant steps to get from place to place.  
-I would have to be very careful not to step on anybody or anything.  
-When I talked, people would cover their ears.  
-My voice would sound very loud to them.  
-I wouldn't find shoes to cover my feet.  
-I wouldn't find a knife and fork to eat my dinner with.  
-I might have to use a rake as a fork.  
-My dinner would be huge.  
-What would I cook my dinner in? 
-I certainly wouldn't find an oven big enough to put my dinner in.  
-If I sneezed, it would be like a hurricane.  
-If I fell down, it would be like an earthquake.  
-I wouldn't have any friends because everyone would be too tiny for me to talk to.  
-I think that being a giant would be very lonely.  
-I couldn't have just one apple.  
-I would have to have a lot of apples to fill me up.  
-I would have to drink gallons and gallons of water to quench my thirst.  
-I could never relax under a tree.  
-I would be taller than all the trees.   
-I don't think that being a giant would be fun.  
-I won't ever make a wish to be a giant.  
-I would rather be my height.  
-I'm very happy the way I am.*
-
-## 214 Superstitions
-
->*I am not superstitious, are you? Yesterday was Friday the thirteenth.  
-Some people think that Friday the thirteenth is an unlucky day.  
-I think that it is just like any other day.  
-Some people believe that if a black cat crosses your path, you will have bad luck.  
-I don't believe that either.  
-My mother always gets upset if I open an umbrella in the house.  
-She says that it is bad luck.  
-She is probably right about that one because an open umbrella would take up a lot of space, and you might knock things over.  
-If your left hand is itchy, you are supposed to get money.  
-I have had an itchy left hand before, but I haven't received any money because of it.  
-It is bad luck to walk under a ladder.  
-This is probably true because you might knock somebody off the ladder, or have a can of paint fall on top of you.  
-If you are acting in a play, it is bad luck if someone says "good luck" to you.  
-This is very confusing.  
-You are supposed to tell an actor to "break a leg." 
-It doesn't mean that you want the actor to break his leg.  
-It means good luck to the actor.  
-Actors have a lot of superstitions that are very unusual.  
-I am not superstitious.  
-I don't believe in superstitions at all.  
-It is just fun to learn about superstitions.  
-Some of them are very old and have been passed down from generation to generation.  
-I once did a project at school on superstitions.  
-It was a very interesting topic, and I got a good mark for it.*
-
-## 215 My Favorite Bedtime Story
+## 214 My Favorite Bedtime Story
 
 >*Every night when I was little, my mother would read me a bedtime story.  
 My favorite story was Tom's Midnight Garden.  
@@ -446,7 +419,7 @@ I really enjoyed Tom's Midnight Garden and I was very sad when my mother and I c
 I felt that I had visited the magical garden with Tom.  
 It is a book that I will remember all of my life.*
 
-## 216 If I Found a Magic Lamp
+## 215 If I Found a Magic Lamp
 
 >*If I was walking down the beach on day, and I happened to bump my toe on a magic lamp, I would pick it up and rub it.  
 If it was a real magic lamp (but I don't believe that there really is a magic lamp), a genie would pop out in a cloud of smoke, and he would call me master.
@@ -476,6 +449,33 @@ I can do my fair share in my community to help others.
 That's how I can get my three wishes, not through a magic lamp.  
 I can only get what I want through self-determination and hard work.  
 That is the key to getting your wishes fulfilled.*
+
+## 216 Superstitions
+
+>*I am not superstitious, are you? Yesterday was Friday the thirteenth.  
+Some people think that Friday the thirteenth is an unlucky day.  
+I think that it is just like any other day.  
+Some people believe that if a black cat crosses your path, you will have bad luck.  
+I don't believe that either.  
+My mother always gets upset if I open an umbrella in the house.  
+She says that it is bad luck.  
+She is probably right about that one because an open umbrella would take up a lot of space, and you might knock things over.  
+If your left hand is itchy, you are supposed to get money.  
+I have had an itchy left hand before, but I haven't received any money because of it.  
+It is bad luck to walk under a ladder.  
+This is probably true because you might knock somebody off the ladder, or have a can of paint fall on top of you.  
+If you are acting in a play, it is bad luck if someone says "good luck" to you.  
+This is very confusing.  
+You are supposed to tell an actor to "break a leg." 
+It doesn't mean that you want the actor to break his leg.  
+It means good luck to the actor.  
+Actors have a lot of superstitions that are very unusual.  
+I am not superstitious.  
+I don't believe in superstitions at all.  
+It is just fun to learn about superstitions.  
+Some of them are very old and have been passed down from generation to generation.  
+I once did a project at school on superstitions.  
+It was a very interesting topic, and I got a good mark for it.*
 
 ## 217 Help
 
