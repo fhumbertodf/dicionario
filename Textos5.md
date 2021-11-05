@@ -8,21 +8,21 @@ I explained to my mother that I would only use food coloring.
 The green would not last forever.  
 My mother said that dyeing your hair was a silly fad.  
 She said that I would not look good with green hair.  
-I said that if I couldn't dye my hair green, maybe I could get a nose ring.
-My mother said "no."  
+I said that if I couldn't dye my hair green, maybe I could get a nose ring.  
+My mother said "no."    
 I said that maybe a tattoo on my arm would be nice.  
-My mother said, "no way."  
+My mother said, "no way."    
 My mother said that she did some crazy things when she was a young girl.  
 She said that she used to iron her hair to make it straight.  
 That sounds quite boring to me.  
 My friend Joan came over.  
 Her hair is dyed bright pink.  
-My father said, "nice hair, Joan."  
+My father said, "nice hair, Joan."    
 I don't think that he really meant it.  
 My mother says that when I am an adult I can dye my hair whatever crazy color I like, but for now she would like me to leave my hair its natural color.  
 I tried to tell her that all my friends were doing it.  
-My mother asked, "if all your friends were jumping off a cliff, would you do it too?"  
-I said "no."  
+My mother asked, "if all your friends were jumping off a cliff, would you do it too?"    
+I said "no."    
 I think I'll have to wait to have green hair, but maybe by the time I'm old enough to dye my hair green, I won't want it that color.  
 My mother says that fads change all the time.  
 One day something might be popular, and the next day it's not in style at all.  
@@ -34,7 +34,7 @@ I wonder what the fad will be next month.*
 >*Some people don't like other people just because they look different.  
 I think that is silly.  
 I don't think that it is fair to judge someone by the way they look.  
-Some people look very nice, but they are mean or cruel.
+Some people look very nice, but they are mean or cruel.  
 Some people look very ordinary, but they are incredibly nice.  
 I remember when I was in grade one; I saw a girl across the room.  
 She had a mean look on her face.  
@@ -53,7 +53,7 @@ That girl became my best friend.
 Now when I look at her I see what is inside her.  
 Sometimes she doesn't smile, but I know what she is like.  
 She is a kind and funny person.  
-I have learned that you can't "judge a book by its cover."  
+I have learned that you can't "judge a book by its cover."    
 It is not fair to dislike someone just because they don't look like you want them to look.  
 You have to get to know a person.  
 It doesn't matter to me what color a person's skin is.  
@@ -64,10 +64,10 @@ I judge people by how they treat me, and I try to treat people like I would want
 
 >*It is going to be my father's birthday.  
 What can I give him? I don't have much money.  
-I have looked all through the stores, and I have not found anything that I think he would like, or that I can afford.
+I have looked all through the stores, and I have not found anything that I think he would like, or that I can afford.  
 I have thought very hard about what to buy for him.  
 I thought that he might like some candy, but my father really doesn't eat many sweets.  
-I thought that he might like a new shirt, but he has lots of clothes.
+I thought that he might like a new shirt, but he has lots of clothes.  
 I can't afford a new car or computer for him.  
 I was watching him on the weekend.  
 He cut the grass, washed the car, took out the garbage, weeded the garden and watered the plants.  
@@ -94,7 +94,7 @@ I'm glad my dad liked his gift.*
 >*Many people make resolutions.  
 They resolve to be better people.  
 Some people decide that they will lose weight so that they can be healthier.  
-Some people decide to give up smoking.
+Some people decide to give up smoking.  
 They also want to be healthier.  
 There are all kinds of resolutions that people make.  
 Some people try not to lose their tempers.  
@@ -110,7 +110,7 @@ I find that I just break them.
 I just work day by day to break my bad habits.  
 I know that I eat too many sweets.  
 Every day, I just try to resist them.  
-I think that every day is a new day regardless of whether it is New Year's Day or not.
+I think that every day is a new day regardless of whether it is New Year's Day or not.  
 Bad habits are hard to break.  
 The best thing is never to start any bad habits.  
 I don't know if my brother will ever stop biting his nails, but I know that each January he intends to stop.  
@@ -130,7 +130,7 @@ I would travel above rivers, and follow them as they wound along and emptied int
 I would fly above parks, and I would call out to the children as I flew high above them.  
 I would dip and dive as I flew.  
 I would soar up high and dive down low so that I could almost touch the treetops.  
-Have you ever flown? 
+Have you ever flown?   
 I know that you can't fly like a bird, but you might have taken an airplane ride.  
 When you're in an airplane, you pass through clouds.  
 It is exciting to take an airplane ride.  
@@ -149,7 +149,7 @@ Those people are the ones who become your good friends.
 Did you ever wonder why certain people do become your good friends? Friends usually have something in common.  
 Often, friends enjoy doing the same things as each other.  
 Maybe they like the same sports, or the same music, or maybe they can even talk about problems or schoolwork.  
-Friends usually find a common bond.
+Friends usually find a common bond.  
 Friends share ideas and listen to each other.  
 Sometimes, people who don't have similar interests even become friends.  
 You can learn a lot from a person who likes different things than you.  
@@ -196,7 +196,7 @@ I was blinded.
 I couldn't see where I was going.  
 I stopped and held out my hands.  
 When I stopped, the bag fell off my face.  
-I looked at John.
+I looked at John.  
 He was laughing very hard.  
 He was laughing so hard that tears were rolling down his cheeks.  
 He said that I looked very funny with the brown paper bag stuck to my face.  
@@ -277,14 +277,14 @@ Hospitals can be a bit frightening, but the doctors and nurses are very nice, an
 My cat came into the room and sat on my lap.  
 She was quite content, and she sat there purring.  
 My cat likes to drink water, and sometimes she drinks milk.  
-I would never give her tea to drink.
+I would never give her tea to drink.  
 Cats just don't drink tea.  
 We were sitting there quietly when suddenly my cat stood up.  
 She was looking at something on the floor.  
 She crouched down low and got ready to pounce.  
 It was a huge centipede.  
 I think that centipedes are ugly.  
-They have many legs, and they move very fast.
+They have many legs, and they move very fast.  
 I would hate to have one crawl over me.  
 I was surprised that she caught the centipede.  
 She put her paw on it, and then she reached down and ate the centipede.  
@@ -295,7 +295,8 @@ My cat looked at me and jumped back up in my chair.
 She stuck her face in my teacup and took a big drink of tea.  
 I was shocked.  
 I had never seen a cat drink tea before.  
-I think that the centipede must have tasted so bad that my cat just needed something to wash the taste out of her mouth Guess what? I didn't finish my tea.  
+I think that the centipede must have tasted so bad that my cat just needed something to wash the taste out of her mouth Guess what?   
+I didn't finish my tea.  
 I threw it out and washed out the cup.  
 My cat has never had a drink of tea since that day.  
 She has also never eaten another centipede.  
@@ -307,7 +308,7 @@ If a centipede walks by, she just pretends that she doesn't see it.*
 You would have to be careful that nobody stepped on you.  
 You would have to watch out for cats, dogs and birds.  
 It would be very dangerous, but just think of the things that you could do.  
-You could live in dollhouse, or even a shoebox.
+You could live in dollhouse, or even a shoebox.  
 You could use a bottle cap for a plate.  
 You would have to wear dolls' clothes.  
 A stamp would make a lovely picture to hang on your wall.  
@@ -336,7 +337,8 @@ I think I'd rather be my size.*
 
 >*If I were a giant, I wouldn't be able to fit in my house.  
 I'd have to live in a building that had a high ceiling, but I'd probably have a hard time getting through the door.  
-I'd have to make my own clothes, but where would I get a giant needle and thread to sew with? I couldn't ride in a car or a plane.  
+I'd have to make my own clothes, but where would I get a giant needle and thread to sew with?   
+I couldn't ride in a car or a plane.  
 I suppose I would just have to take giant steps to get from place to place.  
 I would have to be very careful not to step on anybody or anything.  
 When I talked, people would cover their ears.  
@@ -355,7 +357,7 @@ I couldn't have just one apple.
 I would have to have a lot of apples to fill me up.  
 I would have to drink gallons and gallons of water to quench my thirst.  
 I could never relax under a tree.  
-I would be taller than all the trees.   
+I would be taller than all the trees.  
 I don't think that being a giant would be fun.  
 I won't ever make a wish to be a giant.  
 I would rather be my height.  
@@ -398,18 +400,18 @@ It would be nice to live in a smoke free environment.*
 >*Every night when I was little, my mother would read me a bedtime story.  
 My favorite story was Tom's Midnight Garden.  
 This was a story by Philippa Pearce.  
-It was quite a long book, and it took quite a few nights for my mother to read the entire book to me.
-In Tom's Midnight Garden Tom moves to the city to stay with his aunt and uncle.
+It was quite a long book, and it took quite a few nights for my mother to read the entire book to me.  
+In Tom's Midnight Garden Tom moves to the city to stay with his aunt and uncle.  
 He is very bored at their apartment.  
 They have no children, so Tom has nothing to do.  
-One night, the clock strikes thirteen times.
+One night, the clock strikes thirteen times.  
 Tom knows that this is impossible.  
 A clock can only strike up to twelve times.  
-He sneaks downstairs and goes outside.
-When he gets outside, there is a wonderful garden that wasn't there the day before.
+He sneaks downstairs and goes outside.  
+When he gets outside, there is a wonderful garden that wasn't there the day before.  
 The next day, Tom goes outside and finds that there is no garden.  
 The garden only seems to appear at night.  
-Every night, Tom slips out to this wonderful garden, and he meets some people in the garden.
+Every night, Tom slips out to this wonderful garden, and he meets some people in the garden.  
 He meets a girl named Hattie.  
 Hattie and Tom become very good friends in this garden.  
 Some very strange things happen in this book.  
@@ -422,7 +424,7 @@ It is a book that I will remember all of my life.*
 ## 215 If I Found a Magic Lamp
 
 >*If I was walking down the beach on day, and I happened to bump my toe on a magic lamp, I would pick it up and rub it.  
-If it was a real magic lamp (but I don't believe that there really is a magic lamp), a genie would pop out in a cloud of smoke, and he would call me master.
+If it was a real magic lamp (but I don't believe that there really is a magic lamp), a genie would pop out in a cloud of smoke, and he would call me master.  
 He would say that he would grant me three wishes.  
 I would have to think very hard about those wishes because I wouldn't want to waste them.  
 I don't think I'd want millions of dollars.  
@@ -445,7 +447,7 @@ I can still work toward getting my wishes.
 I can eat well and exercise to stay healthy.  
 I can be involved with a lot of things and be with my friends to stay happy.  
 I can volunteer my time to different organizations to help achieve world peace.  
-I can do my fair share in my community to help others.
+I can do my fair share in my community to help others.  
 That's how I can get my three wishes, not through a magic lamp.  
 I can only get what I want through self-determination and hard work.  
 That is the key to getting your wishes fulfilled.*
@@ -466,7 +468,7 @@ It is bad luck to walk under a ladder.
 This is probably true because you might knock somebody off the ladder, or have a can of paint fall on top of you.  
 If you are acting in a play, it is bad luck if someone says "good luck" to you.  
 This is very confusing.  
-You are supposed to tell an actor to "break a leg." 
+You are supposed to tell an actor to "break a leg."   
 It doesn't mean that you want the actor to break his leg.  
 It means good luck to the actor.  
 Actors have a lot of superstitions that are very unusual.  
@@ -486,7 +488,7 @@ I have read stories where very young boys or girls have called the police and sa
 If you see a fire, you should call the fire department.  
 A lot of tragedies have been prevented because the calls have been made quickly.  
 It is important that emergency vehicles arrive very quickly.  
-That is why those vehicles have sirens.
+That is why those vehicles have sirens.  
 When their sirens go, it means to get out of the way.  
 Policemen, firemen and ambulance attendants are trained to handle very difficult situations.  
 They often save peoples' lives.  
@@ -708,7 +710,7 @@ My favorite thing that I did was to sort through the old trunk that she had up t
 The trunk had a rusty latch on it.  
 It was a bit difficult to open, but my grandmother got a knife and pried the latch open.  
 The trunk was full of all kinds of things.  
-There were lots of clothes.   
+There were lots of clothes.  
 Some of the clothes had been my grandmother's.  
 There was a blue velvet dress that she had worn to a dance when she and my grandfather were dating.  
 It was a beautiful dress, but there were a few moth holes in it.  
@@ -736,9 +738,9 @@ I still say that the trunk was full of treasures.*
 
 >*I notice that whenever it is summer, people complain about the heat, but whenever it is winter, people complain about the cold.  
 It seems that people are never satisfied.  
-I don't like the winter.
+I don't like the winter.  
 It is usually much too cold for me.  
-My teeth chatter, and my fingers turn numb whenever the weather gets cold.
+My teeth chatter, and my fingers turn numb whenever the weather gets cold.  
 It is hard for me to warm up once I start to freeze.  
 I try to wear layers of clothes, but winter winds go through my clothes no matter how much I wear.  
 My feet feel like they are blocks of ice on a cold January day when I walk home from school.  
@@ -786,7 +788,7 @@ You won't always understand why people do what they do, but you can try to under
 >*If I could go back in my life and do some things differently, this is what I would do:
 I would not waste so many hours in front of the television set.  
 I would get out and enjoy my own life, rather than watching actors in shows.  
-I would be a little more considerate of other people.
+I would be a little more considerate of other people.  
 I would realize that my mother has more to do than pick up after me.  
 I would pay more attention in school.  
 Tests are easier when you have paid attention, rather than fooling around in class.  
@@ -818,10 +820,9 @@ Those jokes are not funny.
 They are hurtful.  
 It is not right to tell racist jokes.  
 Many jokes use bad language or are about questionable subject matter.  
-These jokes are also not acceptable.
+These jokes are also not acceptable.  
 Many people are highly offended by rude jokes.  
-What some people find funny,
-others will not.  
+What some people find funny, others will not.  
 Comedy is a very personal thing.  
 Some people like slapstick comedy.
 That is the kind of comedy that the Three Stooges use.  
@@ -859,11 +860,11 @@ People who sell drugs on the street are criminals.
 If they get caught, they will be sent to jail.  
 They sell drugs to get money.  
 They don't care that people's lives are ruined from taking drugs.  
-If you take illegal drugs, you can become addicted to them.
+If you take illegal drugs, you can become addicted to them.  
 That means that you just have to have the drug no matter what.  
 Some people steal from other people to get money to buy drugs.  
 Drugs affect your mind.  
-If you take drugs, you will not be able to think clearly.
+If you take drugs, you will not be able to think clearly.  
 Your marks in school will drop.  
 Your memory won't be very good.  
 Your personality won't be the same.  
