@@ -302,11 +302,10 @@ Math is my least favorite subject, but I'm trying to improve my marks in that.*
 
 ## 101 Opposites.
 
-Some things are opposites of each other.  
+>*Some things are opposites of each other.  
 The opposite of black is white.  
 The opposite of happy is sad.  
-If I am at the opposite side of the room from you, it means that I am at the other side of 
-the room than you are on.  
+If I am at the opposite side of the room from you, it means that I am at the other side of the room than you are on.  
 The opposite of up is down and the opposite of left is right.  
 Do you know what the opposite of young would be?  
 Old is the opposite of young.  
@@ -332,22 +331,20 @@ A jet plane is fast, but a turtle is slow.
 I can go out in the day, or I can go out at night.  
 I might love to swim, or I might hate to swim.  
 It is interesting to see how many opposites you can think up.  
-I could say hello, but I think it's time to say goodbye.
+I could say hello, but I think it's time to say goodbye.*
 
 ## 102 Niagara Falls.
 
-In my town there is a paperboy who just got an award for his actions.  
+>*In my town there is a paperboy who just got an award for his actions.  
 This boy delivered the local newspaper every morning.  
 One of the people to whom he delivered the paper was an elderly man.  
 This man lived alone.  
 The paperboy had often spoken to the man, so he knew that the man lived alone.  
 The paperboy always left the newspaper in the man's mailbox.  
-One morning the boy noticed that the man had not picked up his newspaper or his mail 
-from the day before.  
+One morning the boy noticed that the man had not picked up his newspaper or his mail from the day before.  
 The boy felt that something was not right.  
 All day at school the boy had a feeling that something might be wrong with the man.  
-After school, the boy went back to the man's house to see if he had taken his mail and 
-newspapers.  
+After school, the boy went back to the man's house to see if he had taken his mail and newspapers.  
 The newspapers and mail were still in the mailbox.  
 The boy knocked on the man's door.  
 He could hear a faint voice, but could not hear what the person was saying.  
@@ -365,18 +362,17 @@ The boy got an award.
 The man said that the boy was a hero.  
 The police said that the boy was an example of a very good citizen.  
 The paperboy and the man are very good friends.  
-The man will never forget what the paperboy did for him.
+The man will never forget what the paperboy did for him.*
 
 ## 103 Niagara Falls.
 
-I live in Niagara Falls.  
+>*I live in Niagara Falls.  
 Niagara Falls is a famous place.  
 A lot of tourists visit here every year.  
 Most of the tourists come to see the waterfalls.  
 The waterfalls are very beautiful and powerful.  
 At night they shine lights on the falls that make them even more dramatic.  
-Tourists line up against the railings to watch the water as it tumbles into the Niagara 
-River.  
+Tourists line up against the railings to watch the water as it tumbles into the Niagara River.  
 There are other things in Niagara Falls that the tourists like to visit.  
 There are a lot of gift shops and museums.  
 There are many hotels that the tourists can stay at.  
@@ -384,27 +380,23 @@ Tourism is very important to Niagara Falls.
 Many people work in the tourism industry.  
 There are many jobs in the tourism industry.  
 You can take a special bus and tour Niagara Falls.  
-You can ride in a horse-drawn carriage in Niagara-on-the-Lake, or you can take a balloon 
-ride over the falls from the American side.  
+You can ride in a horse-drawn carriage in Niagara-on-the-Lake, or you can take a balloon ride over the falls from the American side.  
 You can even ride in a helicopter over the falls.  
 Niagara Falls is very busy in the summertime.  
 Summer is the time when most tourists visit here.  
-Sometimes the tourists think it raining near the falls, but it is only the mist that rises from 
-the mighty waterfalls.  
+Sometimes the tourists think it raining near the falls, but it is only the mist that rises from the mighty waterfalls.  
 There are many legends and stories connected to Niagara Falls.  
 There is a special legend called "The Maid of the Mist."  
-There are stories about the daredevils who thought that they were more powerful than 
-the falls.  
-Some of them went over the falls in barrels, and others walked on tightropes over the 
-falls.  
+There are stories about the daredevils who thought that they were more powerful than the falls.  
+Some of them went over the falls in barrels, and others walked on tightropes over the falls.  
 Both of those things are very dangerous.  
 I stay behind the railings when I look at the falls.  
 I know just how powerful the falls are.  
-It is interesting to discover all the stories that there are about Niagara Falls.
+It is interesting to discover all the stories that there are about Niagara Falls.*
 
 ## 104 The Library.
 
-One of my favorite places is the library.  
+>*One of my favorite places is the library.  
 I go there to get books for school, and I go there to get books for pleasure.  
 I often read mysteries for fun.  
 In the summer, I read lots of mysteries.  
@@ -438,11 +430,11 @@ He found the instructions in a book.
 My little brother reads children's books.  
 He likes books about trains.  
 I have liked books ever since I was very small.  
-My mother says that reading is a good habit to get into.
+My mother says that reading is a good habit to get into.*
 
 ## 105 When I Grow Up.
 
-I have been thinking about what I'd like to be when I grow up.  
+>*I have been thinking about what I'd like to be when I grow up.  
 There are so many choices.  
 I could be a principal like my father.  
 I could be a teacher.  
@@ -471,11 +463,11 @@ The world is full of jobs.
 Some of the jobs require a lot of education.  
 Some require a little bit of training, and some require a lot of training.  
 It's all up to me.  
-I can be whatever I want to be.
+I can be whatever I want to be.*
 
 ## 106 Favorite Colours.
 
-My very favorite colour is purple.  
+>*My very favorite colour is purple.  
 There are not a lot of things that are purple.  
 Some grapes are purple.  
 Sometimes the sky looks purple.  
@@ -509,11 +501,11 @@ Sometimes the sky is red at night or in the morning.
 Artists use all these colours to make beautiful paintings.  
 Nature used all these colours to make the beautiful earth.  
 We are fortunate to be surrounded by beauty.  
-We should do our part to make sure that nature stays beautiful and clean.
+We should do our part to make sure that nature stays beautiful and clean.*
 
 ## 107 Making Friends.
 
-I used to be very shy.  
+>*I used to be very shy.  
 I would not go up to someone that I did not know and say hello.  
 I was afraid that people would not want to talk to me.  
 I have changed.  
@@ -526,8 +518,7 @@ You will soon realize that you have something in common with that person.
 Whenever I start talking to a new person I find that there is some interest that we share.  
 Maybe we know some of the same people, or we went to the same school.  
 Often we find that we like the same music or the same movies.  
-It is easy to have a conversation with someone once you find a topic that you both can 
-relate to.  
+It is easy to have a conversation with someone once you find a topic that you both can relate to.  
 The most important part to making friends is to listen to what the other person says.  
 If you take an interest in them, they are sure to take an interest in you.  
 I have learned many things from meeting people.  
@@ -539,13 +530,12 @@ I told her to come with me.
 We began talking, and we became very good friends.  
 That was a few years ago.  
 She is still one of my best friends.  
-Just think, if she hadn't been lost we might never have become friends.
+Just think, if she hadn't been lost we might never have become friends.*
 
 ## 108 Getting Old.
 
-My grandfather is getting old.  
-When I was younger, my grandfather would carry me on his shoulders, and we would go 
-for a walk.  
+>*My grandfather is getting old.  
+When I was younger, my grandfather would carry me on his shoulders, and we would go for a walk.  
 Now, my grandfather cannot put me on his shoulders.  
 He has a hard time walking, and he uses a cane.  
 My grandfather used to have lots of hair.  
@@ -555,8 +545,7 @@ It is more wrinkled.
 My grandfather takes more naps than he used to.  
 He goes to the doctor's, and he takes pills for his heart.  
 I love my grandfather very much.  
-I don't like the fact that he is getting older, but my mother says that growing older is just 
-a fact of life.  
+I don't like the fact that he is getting older, but my mother says that growing older is just a fact of life.  
 She says that we will all get older.  
 Sometimes my grandfather forgets things.  
 My mother says to be patient.  
@@ -571,8 +560,7 @@ Now his eyesight is bad, and he can't see very well.
 My grandfather tells me stories about when he was a boy.  
 The world was a very different place then he tells me.  
 His stories are interesting.  
-Sometimes I wish we could trade places for a day so that I would know what it felt like to 
-be old.  
+Sometimes I wish we could trade places for a day so that I would know what it felt like to be old.*  
 My grandfather doesn't complain. 
 He jokes about his old bones.  
 I spend a lot of time with my grandfather.  
@@ -580,7 +568,7 @@ I hope that he is around for a long time.
 
 ##  109 Time.
 
-Time is something that you should never waste.  
+>*Time is something that you should never waste.  
 Once an hour is gone, it is gone forever.  
 You should make the most of every minute.  
 Time is a funny thing.  
@@ -596,8 +584,7 @@ Weeks turn into months, and months turn into years.
 We measure our lives by time.  
 We are very concerned with time.  
 Even little children are very conscious of time.  
-Little children often want to appear older, so if you ask a three-year-old how old he is, he 
-will often say three and a half.  
+Little children often want to appear older, so if you ask a three-year-old how old he is, he will often say three and a half.  
 Many of our sayings are based on time.  
 "Give me a minute."  
 "Hold on a second."  
@@ -609,16 +596,15 @@ We are a society that lives by the clock.
 We almost all wear watches, and we glance at our watches a lot.  
 Time is something that we can't see, but it is a big factor in our lives.  
 How many times a day do you look at a watch or a clock?  
-I bet you'd be surprised at just how many times you do.
+I bet you'd be surprised at just how many times you do.*
 
 ## 110 Amy.
 
-Amy was a girl who came into our classroom.  
+>*Amy was a girl who came into our classroom.  
 She had many things wrong with her.  
 Amy was in a wheelchair, and she couldn't talk.  
 She couldn't make her hands and feet do what she wanted them to do.  
-We wondered why Amy would even be in our class, because she really couldn't do much 
-of anything.  
+We wondered why Amy would even be in our class, because she really couldn't do much of anything.  
 Amy had a teaching assistant who had to stay with her all the time.  
 One day the teaching assistant got called away.  
 I had to look after Amy.  
@@ -630,13 +616,11 @@ I never realized before that she had such a nice smile.
 Amy made a noise.  
 It seemed like she wanted a crayon that was lying beside her.  
 I put the crayon into her hand.  
-She had trouble holding it, but eventually she got the crayon into her hand well enough 
-so that she could make marks on the paper that was on the tray in front of her.  
+She had trouble holding it, but eventually she got the crayon into her hand well enough so that she could make marks on the paper that was on the tray in front of her.  
 Amy spent a long time making marks on the paper.  
 She tried so hard to create whatever it was that she was drawing.  
 She worked for a long time.  
-I just watched her, and I gave her a lot of credit for not giving up when she obviously had 
-so many problems.  
+I just watched her, and I gave her a lot of credit for not giving up when she obviously had so many problems.  
 When she was finally done, she picked up the paper with great difficulty.  
 With a look of pride on her face, she handed me the picture.  
 It was for me.  
@@ -646,16 +630,14 @@ I told her I loved the picture.
 I still have that picture, although I'm not sure what it is a picture of.  
 I learned a lot from Amy that day.  
 I saw a brave girl who wouldn't give up.  
-Whenever I think my problems are too big to handle, I think of Amy and I remember her 
-smile.
+Whenever I think my problems are too big to handle, I think of Amy and I remember her smile.*
 
 ## 111 Memories.
 
-Somebody once asked me what the most valuable things that I owned were.  
+>*Somebody once asked me what the most valuable things that I owned were.  
 I thought about that for a long time.  
 Then I realized that most of the things that I had could be replaced.  
-What I would not be able to replace were the photographs that I had of my friends and 
-family.  
+What I would not be able to replace were the photographs that I had of my friends and family.  
 Photographs are memories that are captured on film.  
 Some of the photographs are of people who are no longer with us.  
 I would hate to lose them.  
@@ -664,22 +646,18 @@ They are all we have sometimes to link us to days gone by.
 I remember the good times.  
 I try to relive them in my mind sometimes.  
 I remember the sad times.  
-Some of the sad memories are painful, but they are all a part of my life, and I don't want 
-to lose any of my memories.  
-People come into our lives and people leave our lives, but most people leave a memory 
-for us.  
-I have lots of memories, and when I look at my photographs, the memories come 
-flooding back into my brain.  
+Some of the sad memories are painful, but they are all a part of my life, and I don't want to lose any of my memories.  
+People come into our lives and people leave our lives, but most people leave a memory for us.  
+I have lots of memories, and when I look at my photographs, the memories come flooding back into my brain.  
 I remember what people were like when they were younger.  
 I remember vacations that I took.  
-I remember days that seemed ordinary at the time, but you never get to relive even the 
-ordinary days.  
+I remember days that seemed ordinary at the time, but you never get to relive even the ordinary days.  
 Memories are so precious.  
-Cherish your memories, and keep them in a place close to your heart.
+Cherish your memories, and keep them in a place close to your heart.*
 
 ## 112 Roommate Wanted.
 
-Spacious two bedroom apartment with kitchen facilities.  
+>*Spacious two bedroom apartment with kitchen facilities.  
 On the bus route to Brock University.  
 Looking for quiet female roommate.  
 Must be a non-smoker.  
@@ -687,49 +665,40 @@ Available from Sept. 1.
 $300 a month.  
 Hydro is included.  
 Call Barb after 5.  
-905-111-1111  
-For Sale  
-Ten speed men's bike for sale.  
+905-111-1111 For Sale Ten speed men's bike for sale.  
 Excellent condition.  
 $100 or best offer.  
-Call Fred 905-111-1111  
-Apartment for Rent  
-Three bedroom apartment in the downtown area.  
+Call Fred 905-111-1111 Apartment for Rent Three bedroom apartment in the downtown area.  
 $450 a month.  
 Within walking distance to stores and bus route.  
 Utilities not included.  
 Call (905) 111-1111.  
 Please leave a message on the machine, and I will get back to you.  
-Roommate Wanted  
-Responsible, quiet roommate wanted to share two bedroom apartment.  
+Roommate Wanted Responsible, quiet roommate wanted to share two bedroom apartment.  
 Some furniture included.  
 First and last month's rent required.  
 $300 a month.  
 Utilities included.  
 Call before 6.  
-905-111-1111  
-Ask for George.  
-Help Wanted  
-Friendly reliable person wanted to work part time hours at shoe store.  
+905-111-1111 Ask for George.  
+Help Wanted Friendly reliable person wanted to work part time hours at shoe store.  
 No experience necessary. We will train you.  
 Please leave resume at Friendly Feet Shoe Store, 34 Main Street, Niagara Falls.  
-For Sale  
-Textbooks for sale.  
+For Sale Textbooks for sale.  
 Included are 2nd year English and American history texts. Excellent condition.  
 For complete list of texts, call Marie at (905) 111-1111 anytime after 5.  
-Upper Half of Duplex for Rent  
-Within walking distance to Brock University.  
+Upper Half of Duplex for Rent Within walking distance to Brock University.  
 Two bedrooms and balcony.  
 Laundry facilities in basement.  
 Very spacious and clean.  
 Hydro not included.  
 References required.  
 $700 per month.  
-Call 905-111-1111 and ask for Mr. Bridges.
+Call 905-111-1111 and ask for Mr. Bridges.*
 
 ## 113 Places to Live.
 
-I live in a house.  
+>*I live in a house.  
 My house is in a town.  
 My uncle lives in an apartment building.  
 His apartment building is in a busy city.  
@@ -749,11 +718,11 @@ My friends live in a cottage by a lake.
 My grandfather lives in a retirement home.  
 Many people who are about the same age as he is live there.  
 I would like to live in a palace.  
-I think you have to be a king or a queen, or a prince or a princess to live in a palace.
+I think you have to be a king or a queen, or a prince or a princess to live in a palace.*
 
 ## 114 The Bathroom.
 
-There is a bathtub in my bathroom.  
+>*There is a bathtub in my bathroom.  
 On the wall over the bathtub there is a shower head.  
 We have a shower curtain hanging on the rod over the bathtub.  
 If we want to take a shower, we close the curtain.  
@@ -774,19 +743,18 @@ There is also hair spray and gel.
 There are brushes and combs for our hair.  
 There are toothbrushes and dental floss for our teeth.  
 We only have one bathroom, so we line up to use it.  
-It is good to have more than one bathroom in a house.
+It is good to have more than one bathroom in a house.*
 
 ## 115 The Bedroom (End).
 
-My bed is nice and soft.  
+>*My bed is nice and soft.  
 I have a pretty bedspread on my bed.  
 I have sheets and a blanket on my bed also.  
 I use two feather pillows.  
 My pillows have pillowcases on them.  
 My dresser has a mirror on it.  
 I have a lamp on top of my dresser.  
-I also have some picture frames with pictures of my friends and family on top of my 
-dresser.  
+I also have some picture frames with pictures of my friends and family on top of my dresser.  
 There is an alarm clock beside my bed so that I can wake up on time in the morning.  
 I keep many clothes in my dresser drawers.  
 The drawers are nice and deep.  
@@ -803,4 +771,4 @@ There are curtains on my bedroom window.
 My bedroom is very cozy.  
 At night, I turn off the lamp and get under the covers.  
 I set my alarm clock for seven o'clock.  
-I lay my head on the pillow, and I fall asleep.
+I lay my head on the pillow, and I fall asleep.*
