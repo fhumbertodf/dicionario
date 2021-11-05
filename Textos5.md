@@ -2,7 +2,7 @@
 
 >*Many of my friends have dyed their hair different colors.  
 I don't mean normal hair colors like brown or black.  
-My friends have dyed their hair orange, purple and blue.
+My friends have dyed their hair orange, purple and blue.  
 I told my mother that I would like to dye my hair green.  
 I explained to my mother that I would only use food coloring.  
 The green would not last forever.  
