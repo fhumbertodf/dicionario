@@ -63,7 +63,8 @@ I judge people by how they treat me, and I try to treat people like I would want
 ## 203 The Birthday Gift
 
 >*It is going to be my father's birthday.  
-What can I give him? I don't have much money.  
+What can I give him?  
+I don't have much money.  
 I have looked all through the stores, and I have not found anything that I think he would like, or that I can afford.  
 I have thought very hard about what to buy for him.  
 I thought that he might like some candy, but my father really doesn't eat many sweets.  
@@ -142,11 +143,13 @@ But I can still use my imagination and spread my wings and soar high above the w
 
 ## 206 What I Look for in a Friend
 
->*What is it that makes somebody your friend? Some people are nice, and you have fun with them.  
+>*What is it that makes somebody your friend?  
+Some people are nice, and you have fun with them.  
 Some people are nice to talk to, but they don't become special to you.  
 Some people become very close to you.  
 Those people are the ones who become your good friends.  
-Did you ever wonder why certain people do become your good friends? Friends usually have something in common.  
+Did you ever wonder why certain people do become your good friends?  
+Friends usually have something in common.  
 Often, friends enjoy doing the same things as each other.  
 Maybe they like the same sports, or the same music, or maybe they can even talk about problems or schoolwork.  
 Friends usually find a common bond.  
@@ -437,7 +440,8 @@ Some people would want fame.
 Some people would want talent.  
 Some people would wish for happiness.  
 That might be a good thing to wish for.  
-Yes, maybe I'd wish for health and happiness, but what would my third wish be? I could wish for something enormous, something global.  
+Yes, maybe I'd wish for health and happiness, but what would my third wish be?  
+I could wish for something enormous, something global.  
 I could wish for world peace.  
 That would be a wonderful thing if somebody could grant me that.  
 Yes, that would probably be my third wish.  
@@ -454,7 +458,8 @@ That is the key to getting your wishes fulfilled.*
 
 ## 216 Superstitions
 
->*I am not superstitious, are you? Yesterday was Friday the thirteenth.  
+>*I am not superstitious, are you?  
+Yesterday was Friday the thirteenth.  
 Some people think that Friday the thirteenth is an unlucky day.  
 I think that it is just like any other day.  
 Some people believe that if a black cat crosses your path, you will have bad luck.  
@@ -481,7 +486,8 @@ It was a very interesting topic, and I got a good mark for it.*
 
 ## 217 Help
 
->*Did you ever have to call for help? Were you ever in a situation that was an emergency? 
+>*Did you ever have to call for help?  
+Were you ever in a situation that was an emergency? 
 >It is good to know what to do in case of an emergency.  
 You should always know how to get in touch with the police and fire departments.  
 I have read stories where very young boys or girls have called the police and saved their friend's or family member's lives because they knew just who to get hold of.  
