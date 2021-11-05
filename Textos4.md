@@ -665,10 +665,13 @@ Available from Sept. 1.
 $300 a month.  
 Hydro is included.  
 Call Barb after 5.  
-905-111-1111 For Sale Ten speed men's bike for sale.  
+905-111-1111. 
+For Sale Ten speed men's bike for sale.  
 Excellent condition.  
 $100 or best offer.  
-Call Fred 905-111-1111 Apartment for Rent Three bedroom apartment in the downtown area.  
+Call Fred 905-111-1111.
+Apartment for Rent.
+Three bedroom apartment in the downtown area.  
 $450 a month.  
 Within walking distance to stores and bus route.  
 Utilities not included.  
@@ -680,12 +683,15 @@ First and last month's rent required.
 $300 a month.  
 Utilities included.  
 Call before 6.  
-905-111-1111 Ask for George.  
+905-111-1111 
+Ask for George.  
 Help Wanted Friendly reliable person wanted to work part time hours at shoe store.  
-No experience necessary. We will train you.  
+No experience necessary. 
+We will train you.  
 Please leave resume at Friendly Feet Shoe Store, 34 Main Street, Niagara Falls.  
 For Sale Textbooks for sale.  
-Included are 2nd year English and American history texts. Excellent condition.  
+Included are 2nd year English and American history texts. 
+Excellent condition.  
 For complete list of texts, call Marie at (905) 111-1111 anytime after 5.  
 Upper Half of Duplex for Rent Within walking distance to Brock University.  
 Two bedrooms and balcony.  
