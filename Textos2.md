@@ -854,9 +854,7 @@ Most of the time, the secretary answers the telephone.
 The secretary sits at a desk.  
 The secretary has pens and pencils on the desk.  
 The secretary writes on a note pad.  
-Some other things that you would find in an office would include the following: a stapler to staple pages together, a photocopier to copy pages, a pencil sharpener to sharpen 
-pencils, a water cooler where the employees could get a drink of water, a hole punch to make holes in sheets of paper, and liquid paper which is used to blank out errors on a 
-page.  
+Some other things that you would find in an office would include the following: a stapler to staple pages together, a photocopier to copy pages, a pencil sharpener to sharpen pencils, a water cooler where the employees could get a drink of water, a hole punch to make holes in sheets of paper, and liquid paper which is used to blank out errors on a page.  
 Some offices have many employees in them.  
 All of the employees have their own desks.  
 Other offices just have one person at a desk.  
