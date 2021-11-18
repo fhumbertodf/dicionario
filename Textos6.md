@@ -119,167 +119,166 @@ You might need an umbrella.*
 
 ## 235 - How to Avoid Catching a Cold.
 
->*How many colds do you catch in a year? 
-Most of my friends catch quite a few colds.  
-They cough, sniffle and sneeze.  
-They carry around tissues and blow their noses all the time.  
-Their eyes water, and they have scratchy throats.
-I don't get many colds.  
-In fact, I can go for a whole year and never catch a cold.  
-That is why I consider myself an expert on how not to catch a cold.  
-I'll tell you how to avoid catching a cold.  
-I think that you need to take a lot of vitamin C.  
-I eat a lot of fruits and vegetables.  
-I drink fruit juice too.  
-I also take vitamin C pills.  
-Whenever I begin to feel a cold coming on, I make sure that I have taken my vitamin C pill, and I drink a lot of orange juice.  
-That usually knocks the cold right out of my system.  
-I make sure that I get a lot of fresh air.  
+>*How many colds do you catch in a year?   
+Most of my friends catch quite a few colds.   
+They cough, sniffle and sneeze.   
+They carry around tissues and blow their noses all the time.   
+Their eyes water, and they have scratchy throats.   
+I don't get many colds.   
+In fact, I can go for a whole year and never catch a cold.   
+That is why I consider myself an expert on how not to catch a cold.   
+I'll tell you how to avoid catching a cold.   
+I think that you need to take a lot of vitamin C.   
+I eat a lot of fruits and vegetables.   
+I drink fruit juice too.   
+I also take vitamin C pills.   
+Whenever I begin to feel a cold coming on, I make sure that I have taken my vitamin C pill, and I drink a lot of orange juice.   
+That usually knocks the cold right out of my system.   
+I make sure that I get a lot of fresh air.   
 In the winter, a lot of buildings are shut up tight so that the air is stale, and people's germs circulate through the buildings.   
-I get outside and breathe in fresh clean air.  
-If somebody is rude enough to cough or sneeze right in front of me without covering his or her mouth, I just hold my breath for a second.  
-I'm not sure if this works or not, but I don't want to breathe in anybody's cold germs.  
-Many germs are passed through hands.  
-It is important to wash your hands thoroughly if you touch anything in a public place.  
-If I hold a banister while I am walking down the stairs, I think of all the people who have used that banister, and I make sure that I wash my hands before
-I eat.  
-Doorknobs also have a lot of germs on them.  
-Money is another thing that is passed from hand to hand and is covered with germs.  
-Sometimes, I see people stick money into their mouths.
-Just think of all the germs that you would be putting into your mouth if you did that.  
-If you just give it a little bit of thought, you can avoid a lot of the germs that cause colds.  
-If you eat good foods and stay fit, your body will be able to fight off the germs that cause colds and other diseases.  
+I get outside and breathe in fresh clean air.   
+If somebody is rude enough to cough or sneeze right in front of me without covering his or her mouth, I just hold my breath for a second.    
+I'm not sure if this works or not, but I don't want to breathe in anybody's cold germs.   
+Many germs are passed through hands.   
+It is important to wash your hands thoroughly if you touch anything in a public place.   
+If I hold a banister while I am walking down the stairs, I think of all the people who have used that banister, and I make sure that I wash my hands before I eat.   
+Doorknobs also have a lot of germs on them.   
+Money is another thing that is passed from hand to hand and is covered with germs.   
+Sometimes, I see people stick money into their mouths.   
+Just think of all the germs that you would be putting into your mouth if you did that.   
+If you just give it a little bit of thought, you can avoid a lot of the germs that cause colds.   
+If you eat good foods and stay fit, your body will be able to fight off the germs that cause colds and other diseases.   
 It is not always possible to avoid colds, but if you do catch a cold, drink plenty of fluids and get a lot of rest.*
 
 ## 236 - The Future.
 
->*I sometimes wonder what life will be like in the future.  
-Life has changed so much in just the past few years.  
-I'm sure that there are still big changes that are coming.
-Do you think we'll still drive cars?
-Maybe we'll get into computerized vehicles that we won't have to drive.  
-We'll just push a few buttons, and the vehicles will take us to wherever we have to go.  
-Maybe there won't be roads.  
-We might just fly through space to get where we want to go.  
-Instead of telephones, we'll just use our computers.  
-We'll be able to see each other when we talk.  
-That type of thing is already happening.  
-Maybe we won't have to cook our meals.  
-We might be able to push buttons to order whatever we want.  
-A nice roast beef dinner, or an ice cream sundae, might just pop out of a machine.  
-It would be nice to have a robot to clean the house for you.  
-In the past few years, computers have been extremely important.  
-People used to write to each other through the mail.  
-Now, people communicate so much more frequently through E-mail.  
-Most of my friends own computers.  
-If we had all of these things to do the work for us, what would we do? We would still need people to program the computers.  
-We could spend more time being creative, rather than doing everyday chores.  
-The future holds many surprises.  
-I'm sure that technology will become even more and more amazing.  
-When my parents were young, they had never even seen a color television.  
-Nobody owned a computer.  
-It doesn't take long for things to change a lot.  
+>*I sometimes wonder what life will be like in the future.   
+Life has changed so much in just the past few years.   
+I'm sure that there are still big changes that are coming.   
+Do you think we'll still drive cars?   
+Maybe we'll get into computerized vehicles that we won't have to drive.   
+We'll just push a few buttons, and the vehicles will take us to wherever we have to go.   
+Maybe there won't be roads.   
+We might just fly through space to get where we want to go.   
+Instead of telephones, we'll just use our computers.   
+We'll be able to see each other when we talk.   
+That type of thing is already happening.   
+Maybe we won't have to cook our meals.   
+We might be able to push buttons to order whatever we want.   
+A nice roast beef dinner, or an ice cream sundae, might just pop out of a machine.   
+It would be nice to have a robot to clean the house for you.   
+In the past few years, computers have been extremely important.   
+People used to write to each other through the mail.   
+Now, people communicate so much more frequently through E-mail.   
+Most of my friends own computers.   
+If we had all of these things to do the work for us, what would we do?   
+We would still need people to program the computers.   
+We could spend more time being creative, rather than doing everyday chores.   
+The future holds many surprises.   
+I'm sure that technology will become even more and more amazing.   
+When my parents were young, they had never even seen a color television.   
+Nobody owned a computer.   
+It doesn't take long for things to change a lot.   
 Who knows what amazing things are in store for us?*
 
 ## 237 - Giving a Speech.
 
->*I had to give a speech last week.  
-I gave a speech to three hundred people.  
-I had to speak in front of a group of students.  
-I had to tell them about a campaign that we were having to raise money for cancer research.  
-Giving a speech can be a difficult thing.
-When you stand in front of a big crowd, you can get very nervous.  
-Some people feel like they have weak knees.  
-Their legs feel as if they are made of rubber.  
-Their heart beats very hard inside of their chest.  
-Their palms get sweaty.
-Some people even become short of breath.  
-For some people, giving a speech is their worst fear.  
-When you give a speech, everyone is looking at you.  
-They are waiting to hear what you have to say.  
-When you have three hundred people looking at you; you have six hundred eyes that are on you.  
-It is a little frightening when you think of it that way.  
-Before I give a speech, I take three big breaths.  
-I calm myself, and I remind myself that what I have to say is important.  
-I like to be sure of what I am going to say, so I practice my speech in front of a mirror at home.  
-I like to look like I am relaxed and friendly.  
-They say that practice makes perfect; so the more speeches that you give, the better you will become at it.  
-Whenever I have to give a speech, I imagine that the audience is just one big person.  
-I look out into the audience until I find a friendly, smiling face.  
-I focus on that person, and I pretend that I am just talking to them.  
-I have become used to giving speeches.  
-I am more relaxed now than I used to be.  
-People tell me that I do not look nervous at all.  
-I like to hear that.  
-Sometimes I do feel a little flutter of nervousness, but I just ignore it and do the best that I can.  
-Giving a speech is not as scary as it appears to be.  
+>*I had to give a speech last week.   
+I gave a speech to three hundred people.   
+I had to speak in front of a group of students.   
+I had to tell them about a campaign that we were having to raise money for cancer research.   
+Giving a speech can be a difficult thing.   
+When you stand in front of a big crowd, you can get very nervous.   
+Some people feel like they have weak knees.   
+Their legs feel as if they are made of rubber.   
+Their heart beats very hard inside of their chest.   
+Their palms get sweaty.   
+Some people even become short of breath.   
+For some people, giving a speech is their worst fear.   
+When you give a speech, everyone is looking at you.   
+They are waiting to hear what you have to say.   
+When you have three hundred people looking at you; you have six hundred eyes that are on you.   
+It is a little frightening when you think of it that way.   
+Before I give a speech, I take three big breaths.   
+I calm myself, and I remind myself that what I have to say is important.   
+I like to be sure of what I am going to say, so I practice my speech in front of a mirror at home.   
+I like to look like I am relaxed and friendly.   
+They say that practice makes perfect; so the more speeches that you give, the better you will become at it.   
+Whenever I have to give a speech, I imagine that the audience is just one big person.   
+I look out into the audience until I find a friendly, smiling face.   
+I focus on that person, and I pretend that I am just talking to them.   
+I have become used to giving speeches.   
+I am more relaxed now than I used to be.   
+People tell me that I do not look nervous at all.   
+I like to hear that.   
+Sometimes I do feel a little flutter of nervousness, but I just ignore it and do the best that I can.   
+Giving a speech is not as scary as it appears to be.   
 Anyone can do it with a little practice.*
 
 ## 238 - Moving to Another Country.
 
->*My friend Steve moved to another country.  
-He had lived in Canada all his life, and he moved to Japan.  
-Life in Japan was very different for Steve than what he was used to.  
-At first, Steve suffered from culture shock.  
-His whole life seemed different.  
-He was not used to the way of life in Japan.  
-Steve was not used to the large crowds of people that walked up and down the streets in Japan.  
-In his hometown in Canada, the streets were fairly quiet.  
-Steve had to get used to the food.  
-In Japan, the people eat a lot of fish.  
-Steve had never eaten much fish before.  
-Steve wanted pizza, but it was expensive in Japan.
-Steve said that he had to adjust his eating habits.  
-The people in Japan have different customs than we do here in Canada.  
-Steve didn't want to offend anyone, so he had to learn the customs.  
-He had to learn about what Japanese people considered polite and rude.  
-Sometimes, in a foreign country you can do something to insult someone without even realizing that you are being rude.  
-At first, Steve had trouble with the language.  
-He said that the only way to really learn the language is to talk to people.  
-Steve talked to a lot of people.  
-He made a lot of mistakes, but people were patient with him, and they tried to help him with his Japanese.  
-It wasn't long before Steve felt more comfortable in his new surroundings.  
-You have to be willing to learn new customs and a new language if you move to another country.  
-Steve feels very comfortable in Japan, and in Canada now.  
-He is thinking about going to another country now.  
-He thinks that he might like to try and live in Italy.  
-I'm sure that he would get over his culture shock very fast if he moved there.  
+>*My friend Steve moved to another country.   
+He had lived in Canada all his life, and he moved to Japan.    
+Life in Japan was very different for Steve than what he was used to.   
+At first, Steve suffered from culture shock.   
+His whole life seemed different.   
+He was not used to the way of life in Japan.   
+Steve was not used to the large crowds of people that walked up and down the streets in Japan.   
+In his hometown in Canada, the streets were fairly quiet.   
+Steve had to get used to the food.   
+In Japan, the people eat a lot of fish.   
+Steve had never eaten much fish before.   
+Steve wanted pizza, but it was expensive in Japan.   
+Steve said that he had to adjust his eating habits.   
+The people in Japan have different customs than we do here in Canada.   
+Steve didn't want to offend anyone, so he had to learn the customs.   
+He had to learn about what Japanese people considered polite and rude.   
+Sometimes, in a foreign country you can do something to insult someone without even realizing that you are being rude.   
+At first, Steve had trouble with the language.   
+He said that the only way to really learn the language is to talk to people.   
+Steve talked to a lot of people.   
+He made a lot of mistakes, but people were patient with him, and they tried to help him with his Japanese.   
+It wasn't long before Steve felt more comfortable in his new surroundings.   
+You have to be willing to learn new customs and a new language if you move to another country.   
+Steve feels very comfortable in Japan, and in Canada now.   
+He is thinking about going to another country now.   
+He thinks that he might like to try and live in Italy.   
+I'm sure that he would get over his culture shock very fast if he moved there.   
 Moving to a new country can be difficult, but if you are willing to learn, it can be a very rewarding experience.*
 
 ## 239 - Look for the Beauty.
 
->*I have learned that things don't always go the way that they were planned.  
-If something doesn't happen the way that I want it to, I try to make the best of the situation.  
-I always try to find something good in everything that happens.
-Last year, I broke my ankle when I was walking on an icy sidewalk.  
-At first, I was very upset.  
-I was missing school, and there was a party that I wanted to go to.  
-I couldn't do very much of anything.
-My ankle was very sore.  
-I stayed home, and I read a book.  
-It was an excellent book, and one that I probably would not have had time to read under normal circumstances.  
-My friends brought my homework to my house, and we had some really nice visits while they were here.  
-I had to accept the fact that I couldn't go anywhere on my broken ankle, so I made the best of a bad situation.  
-Once, I lost my way when I was out camping.  
-I ended up in a very large field.  
-I was afraid that nobody would find me, but I calmed myself down and took time to examine all the
-interesting wildflowers in the field.  
-My family did find me.  
-They were surprised at how calm I was.  
-I have learned that there is something valuable inside every adventure and something beautiful inside every person.
-We had a new boy who came into our class.  
-His clothes weren't in style, and he was not particularly handsome.  
-Some of the boys and girls made fun of him.  
-Sometimes, people can be really cruel.  
-He seemed to handle it all right, but inside, I knew that it must hurt.  
-Some of my friends and I invited him out with us.  
-We found out that he had a terrific sense of humor, and he is probably one of the nicest people that I have ever met.  
-He has since become one of my best friends.  
-It makes me ashamed when someone that I know judges someone by how they look.  
-It isn't fair to do that.  
-You'll find that something good comes out of almost every situation.  
-You'll find something good about almost everyone that you meet if you look hard enough.  
-If something doesn't work out the way you planned it, just make the best of the situation.  
+>*I have learned that things don't always go the way that they were planned.   
+If something doesn't happen the way that I want it to, I try to make the best of the situation.   
+I always try to find something good in everything that happens.   
+Last year, I broke my ankle when I was walking on an icy sidewalk.     
+At first, I was very upset.   
+I was missing school, and there was a party that I wanted to go to.   
+I couldn't do very much of anything.   
+My ankle was very sore.   
+I stayed home, and I read a book.   
+It was an excellent book, and one that I probably would not have had time to read under normal circumstances.   
+My friends brought my homework to my house, and we had some really nice visits while they were here.   
+I had to accept the fact that I couldn't go anywhere on my broken ankle, so I made the best of a bad situation.   
+Once, I lost my way when I was out camping.   
+I ended up in a very large field.   
+I was afraid that nobody would find me, but I calmed myself down and took time to examine all the interesting wildflowers in the field.   
+My family did find me.   
+They were surprised at how calm I was.   
+I have learned that there is something valuable inside every adventure and something beautiful inside every person.   
+We had a new boy who came into our class.   
+His clothes weren't in style, and he was not particularly handsome.   
+Some of the boys and girls made fun of him.   
+Sometimes, people can be really cruel.   
+He seemed to handle it all right, but inside, I knew that it must hurt.   
+Some of my friends and I invited him out with us.   
+We found out that he had a terrific sense of humor, and he is probably one of the nicest people that I have ever met.   
+He has since become one of my best friends.   
+It makes me ashamed when someone that I know judges someone by how they look.   
+It isn't fair to do that.   
+You'll find that something good comes out of almost every situation.   
+You'll find something good about almost everyone that you meet if you look hard enough.   
+If something doesn't work out the way you planned it, just make the best of the situation.   
 Look for the beauty in everything.*
 
 ## 240 - My Doll.
