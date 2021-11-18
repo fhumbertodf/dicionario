@@ -1,4 +1,4 @@
-## 61: Manners.
+## 61 - Manners.
 
 >*It is good to be polite.  
 People like you more when you are polite.  
@@ -24,7 +24,7 @@ It is not polite to burp out loud.
 It is not polite to use someone else's things without asking first.  
 Being polite just comes naturally if you have been brought up in a home where everyone was polite.*
 
-## 62: The Two Sexes.
+## 62 - The Two Sexes.
 
 >*There are two sexes or genders.  
 There is the male gender, and there is the female gender.  
@@ -48,7 +48,7 @@ Your grandfather, brother and uncle are males.
 Your mother is a female.  
 Your grandmother, sister and aunt are females.*
 
-## 63: Me.
+## 63 - Me.
 
 >*I am special.  
 Nobody in the world is exactly like I am.  
@@ -76,7 +76,7 @@ You are special too.
 Use your own special talents, and take the time to meet other people.  
 The world is made up of a lot of different people; that's what makes life exciting.*
 
-## 64: My Cat.
+## 64 - My Cat.
 
 >*I got my cat when she was just a tiny kitten.  
 I named her Puff because her fur is soft and fluffy.  
@@ -101,7 +101,7 @@ I know that she doesn't want to be on her blanket.
 She wants to be in my bed.  
 I let her into my bed, and she falls asleep purring loudly.*
 
-## 65: Music.
+## 65 - Music.
 
 >*My family is very musical.  
 My father plays the guitar.  
@@ -133,7 +133,7 @@ I memorize the lyrics of the songs.
 My sister and I sometimes get together and sing our favorite songs.  
 Maybe someday we will start our own rock band, and I will be the drummer.*
 
-## 66: Spring.
+## 66 - Spring.
 
 >*It rains a lot in the spring.  
 The trees are full of buds, and the flowers are starting to bloom.  
@@ -157,7 +157,7 @@ They also like to clean up the yard in the spring.
 Everyone seems to be outside.  
 The springtime brings people out of their houses.*
 
-## 67: The Birth Party.
+## 67 - The Birth Party.
 
 >*Yesterday I went to a birthday party.  
 My friend Jane had her tenth birthday.  
@@ -189,7 +189,7 @@ It was a very good party.
 Everyone had a good time.  
 I hope Jane had a happy tenth birthday.*
 
-## 68: My Classroom.
+## 68 - My Classroom.
 
 >*My classroom is a large room.  
 It is full of brightly coloured pictures.  
@@ -216,7 +216,7 @@ After school, my friends and I often erase the blackboards for the teacher.
 Then we take the erasers outside and clap them together to get the chalk dust out of them.  
 My friends and I walk home together and talk about what we did in school and what we're going to do after supper.*
 
-## 69: Vacation.
+## 69 - Vacation.
 
 >*My family and I went on vacation to Lake Huron.  
 The water is beautiful and blue there, and the sand is nice and white.  
@@ -248,7 +248,7 @@ I met some very good friends there.
 We still write to each other.  
 Maybe we'll see each other next summer.*
 
-## 70: My House.
+## 70 - My House.
 
 >*I live in a two-storey house.  
 The bottom of the house is painted white.  
@@ -289,7 +289,7 @@ We keep the car in the garage whenever the weather is bad.
 Our house is just the right size for our family.  
 Friends are always welcome at our house.*
 
-## 71: My Family.
+## 71 - My Family.
 
 >*My grandparents are coming to visit us from Calgary, Alberta.  
 My father is very happy because they are his parents, and he is glad that he will see them.  
@@ -319,7 +319,7 @@ My parents talk to my brothers, my sister and I a lot.
 We are a very close-knit family.  
 People who have close families are very lucky.*
 
-## 72: Winter.
+## 72 - Winter.
 
 >*Once the fall is over and the snowflakes start to fall I get very excited.  
 I can hardly wait for the ground to be covered with a blanket of white snow.  
@@ -349,7 +349,7 @@ In the morning, when the sun shines on the snow, it glistens.
 I like to leave my footprints in the snow.  
 Winter can be very beautiful and exciting.*
 
-## 73: Autumn.
+## 73 - Autumn.
 
 >*Some people call autumn the "fall."  
 You can call it either one.  
@@ -378,7 +378,7 @@ My parents rake the leaves up and put them in big pile.
 I like to jump in the big piles of leaves, but then my parents just have to rake them up again.  
 The skies get a little cloudier in the autumn, and we know that soon there will be snow, so we enjoy the brisk autumn weather while we can.*
 
-## 74: Summer.
+## 74 - Summer.
 
 >*Yahoo! School is over!  
 We are free for the summer.  
@@ -416,7 +416,7 @@ I like the sounds, smells and feelings that come with the summer sun.
 Summer is a lot of fun.  
 I wish summer could go on forever.*
 
-## 75: The Doctor.
+## 75 - The Doctor.
 
 >*I didn't feel very well last week.  
 I had a sore throat and a fever.  
@@ -443,7 +443,7 @@ It wasn't very long before I was feeling well again.
 I think that I might like to be a doctor when I grow up.  
 I would like to make people feel better.*
 
-## 76: The Dentist.
+## 76 - The Dentist.
 
 >*My friend's father is a dentist.  
 He has an office near my house.  
@@ -471,7 +471,7 @@ If I take care of my teeth, I'll have them forever.
 I would like to keep my teeth healthy and white.  
 I like to smile.*
 
-## 77: The School Play.
+## 77 - The School Play.
 
 >*We are putting on a play at school.  
 Some of the students are actors in the play.  
@@ -502,7 +502,7 @@ I want my family and friends to see me acting on stage.
 I hope that they like the play.  
 We have all learned our lines and worked very hard at making this play a success.*
 
-## 78: Emotions.
+## 78 - Emotions.
 
 >*Do you ever think about your emotions?  
 What kinds of things make you sad?  
@@ -530,7 +530,7 @@ People can tell when you are mad, or sad or happy.
 I prefer to look happy.  
 Sometimes I even smile when I am feeling sad, and the smile makes me feel a little better.*
 
-## 79: My First Job.
+## 79 - My First Job.
 
 >*I just got a job at the grocery store.  
 This is my first job.  
@@ -549,7 +549,7 @@ I stack boxes up so that people can buy cereal and cookies.
 I have to be careful, or the boxes will fall.  
 There are cans of things which also need to be placed on the shelves.*
 
-## 80: The Lie.
+## 80 - The Lie.
 
 >*Yesterday I told a lie.  
 I don't feel very good about it.  
@@ -583,7 +583,7 @@ It is not a good feeling when people don't trust you.
 I have learned that lying just hurts people.  
 Sometimes it is hard to be honest, but it is the best way to be.*
 
-## 81: Hobbies
+## 81 - Hobbies.
 
 >*A lot of people have hobbies.  
 Hobbies are interesting things that people like to do in their spare time.  
@@ -613,7 +613,7 @@ She has made clothes for herself and some of her friends.
 Maybe Linda will be a fashion designer when she gets older.  
 Sometimes people's hobbies lead them into their careers.*
 
-## 82: Christmas.
+## 82 - Christmas.
 
 >*In December, Christmas comes.  
 We get a holiday from school, and our parents get a few days off from work.  
@@ -651,7 +651,7 @@ It is a good feeling to share with people who do not have as much as you do.
 My parents have always taught us that Christmas is a time for giving, not receiving.  
 I think they're right.*
 
-## 83: Garden.
+## 83 - Garden.
 
 >*The garden is very interesting.  
 I sometimes go outside and I watch all the things that go on in the garden.  
@@ -690,7 +690,7 @@ Gardening is a good hobby.
 You get fresh air, sunshine and exercise.  
 You even get beautiful, colorful flowers and nice freshfood.*
 
-## 84 The Pet Store
+## 84 - The Pet Store.
 
 >*On Saturday, my parents took us to the pet store.  
 They had everything that you would need if you had a pet.  
@@ -724,7 +724,7 @@ I couldn't even see her face.
 I didn't want to leave the pet store.  
 I was wishing that I could take all of the animals home with me.*
 
-## 85 My First Day of School
+## 85 - My First Day of School.
 
 >*I remember my first day of school.  
 I was excited, but I was afraid.  
@@ -755,7 +755,7 @@ I took the picture home, and my mother put it on the refrigerator.
 I like school.  
 It is a good place to meet new friends and learn all about the world.*
 
-## 86 Transportation (2).
+## 86 - Transportation (2).
 
 >*People move from place to place.  
 There are lots of ways that you can move around from one place to another.  
@@ -793,7 +793,7 @@ They say that the world is a lot smaller now because of transportation.
 People can travel to all parts of the world quickly and easily.  
 The world is not really smaller, but it has become easy to get to faraway places.*
 
-## 87 Television.
+## 87 - Television.
 
 >*Do you watch television?  
 My mother says that I watch too much television.  
@@ -824,7 +824,7 @@ Television is good if you don't spend too much time watching it.
 You can learn a lot from television if you watch the educational channels.  
 I learned about dinosaurs and rainforests last week just from watching television.*
 
-## 88 My Country.
+## 88 - My Country.
 
 >*I live in Canada.  
 It is a very large country that is made up of ten provinces and three territories.  
@@ -856,7 +856,7 @@ People of many different ethnic backgrounds live in harmony in Canada.
 That is why I like Canada.  
 In Canada, we celebrate our differences.*
 
-## 89 Food.
+## 89 - Food.
 
 >*What kinds of food do you like to eat?  
 I am lucky, because in Canada there are many foods to choose from.  
@@ -885,7 +885,7 @@ Sometimes I eat things that aren't good for me.
 I eat potato chips and candies.  
 These foods aren't part of a nutritious diet, but they are fun to eat.*
 
-## 90 The Zoo.
+## 90 - The Zoo.
 
 >*My class took a trip to the Toronto Zoo.  
 I had a wonderful time there.  

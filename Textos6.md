@@ -1,66 +1,66 @@
-## 231 Divorce
+## 231 - Divorce.
 
->*Mary's parents just got a divorce.  
-Mary is very upset.  
-She thinks that her parents don't love her anymore.  
-She thinks that they got a divorce because of her.  
-She is wrong.  
-Her parents love her just as much as they always did.  
-They aren't getting divorced because of Mary.  
-Sometimes, marriages just don't work out.  
-It isn't really anyone's fault.  
-Marriage isn't easy.  
-It is hard for two people to stay together for a lifetime.  
-Sometimes, people change as they get older, and they move on.  
-Some people have perfectly good marriages, and they stay together for their entire lives.
-Divorce doesn't happen because the parents don't love the children anymore.  
-A lot of children feel that it is their fault, but it isn't their fault at all.  
-Children neither cause the divorce, nor can they prevent it.  
-It is up to the parents.  
-Divorce isn't the end of the world.  
-Children can still see both parents and stay with them.  
-Life goes on.  
-Sometimes children can get new stepmothers or stepfathers.  
-That can be a good thing.  
-You just have to be understanding, and know that your parents still love you.  
-Life doesn't always go the way that we planned it, but it has its twists and turns.  
-Life is an adventure.  
-If your parents get a divorce, just be understanding.
-Know that they love you and that this is a hard time for them.  
+>*Mary's parents just got a divorce.   
+Mary is very upset.   
+She thinks that her parents don't love her anymore.   
+She thinks that they got a divorce because of her.   
+She is wrong.   
+Her parents love her just as much as they always did.   
+They aren't getting divorced because of Mary.   
+Sometimes, marriages just don't work out.   
+It isn't really anyone's fault.   
+Marriage isn't easy.   
+It is hard for two people to stay together for a lifetime.   
+Sometimes, people change as they get older, and they move on.   
+Some people have perfectly good marriages, and they stay together for their entire lives.   
+Divorce doesn't happen because the parents don't love the children anymore.   
+A lot of children feel that it is their fault, but it isn't their fault at all.   
+Children neither cause the divorce, nor can they prevent it.   
+It is up to the parents.   
+Divorce isn't the end of the world.   
+Children can still see both parents and stay with them.   
+Life goes on.   
+Sometimes children can get new stepmothers or stepfathers.   
+That can be a good thing.   
+You just have to be understanding, and know that your parents still love you.   
+Life doesn't always go the way that we planned it, but it has its twists and turns.   
+Life is an adventure.   
+If your parents get a divorce, just be understanding.   
+Know that they love you and that this is a hard time for them.   
 It is a hard time for you too, but these things have a way of working themselves out in the end.*
 
-## 232 If my Fish Could Talk
+## 232 - If my Fish Could Talk.
 
->*I have a goldfish.  
-He swims around in his bowl all day.  
-He looks bored.  
-I look inside the bowl and watch him.  
-His mouth always moves.  
-He looks like he is talking.  
-I imagine what my goldfish would say if he really could talk.  
-I think he would say: "Hey, I'm bored in this little bowl.  
-Why don't you get me a bigger tank with more fish in it? 
-I would like to have some friends to swim around with." 
-I went out and bought a bigger tank for my goldfish.  
-I put some plants at the bottom of the tank, and I got a miniature deep-sea diver to put at the bottom of the tank.  
-I looked into the tank and imagined what my goldfish was saying.  
-He seemed to be saying: "This is a nice tank.  
-It's roomy in here, and you decorated it well, but I still don't have any friends to swim with." 
-I went to the pet store and bought three more goldfish.  
-I put them into the tank.  
-All of the goldfish seemed to look at each other.  
-They swam near each other and seemed to be playing games.  
-I knew which one was my goldfish because he has a black spot on his fin.  
-I looked at him, and imagined that he was talking again.  
-He said: "This is great! I have a big new home and friends to swim with.  
-These are nice goldfish that you brought home for me; thank you." 
-Goldfish can't really talk.  
-I know that.  
-I just like to pretend that my goldfish talks.  
-He seems very happy now with his nice new home, and his new friends.  
+>*I have a goldfish.   
+He swims around in his bowl all day.   
+He looks bored.   
+I look inside the bowl and watch him.     
+His mouth always moves.   
+He looks like he is talking.   
+I imagine what my goldfish would say if he really could talk.   
+I think he would say: "Hey, I'm bored in this little bowl.   
+Why don't you get me a bigger tank with more fish in it?   
+I would like to have some friends to swim around with."   
+I went out and bought a bigger tank for my goldfish.   
+I put some plants at the bottom of the tank, and I got a miniature deep-sea diver to put at the bottom of the tank.   
+I looked into the tank and imagined what my goldfish was saying.   
+He seemed to be saying: "This is a nice tank.   
+It's roomy in here, and you decorated it well, but I still don't have any friends to swim with."   
+I went to the pet store and bought three more goldfish.   
+I put them into the tank.   
+All of the goldfish seemed to look at each other.   
+They swam near each other and seemed to be playing games.   
+I knew which one was my goldfish because he has a black spot on his fin.   
+I looked at him, and imagined that he was talking again.   
+He said: "This is great! I have a big new home and friends to swim with.   
+These are nice goldfish that you brought home for me; thank you."   
+Goldfish can't really talk.   
+I know that.   
+I just like to pretend that my goldfish talks.   
+He seems very happy now with his nice new home, and his new friends.   
 I don't think goldfish can smile either, but it looks like my goldfish has a smile on his face.*
 
-## 233 The Best Teacher
+## 233 - The Best Teacher.
 
 >*I have had a lot of teachers.  
 Some of them were good, and some of them were boring.  
@@ -94,7 +94,7 @@ Alban, I realized that I really did have an interest in it.
 He was my favorite teacher, and I will always be grateful to him for making me aware of just how interesting history
 really is.*
 
-## 234 Weather
+## 234 - Weather.
 
 >*Sometimes, I watch the weatherman on television.  
 It is fascinating to watch him point to different areas of the country on the map.  
@@ -124,7 +124,7 @@ So, if you are planning on walking home tonight, keep an eye on the sky.
 Are those rain clouds up there? 
 You might need an umbrella.*
 
-## 235 How to Avoid Catching a Cold
+## 235 - How to Avoid Catching a Cold.
 
 >*How many colds do you catch in a year? 
 Most of my friends catch quite a few colds.  
@@ -158,7 +158,7 @@ If you just give it a little bit of thought, you can avoid a lot of the germs th
 If you eat good foods and stay fit, your body will be able to fight off the germs that cause colds and other diseases.  
 It is not always possible to avoid colds, but if you do catch a cold, drink plenty of fluids and get a lot of rest.*
 
-## 236 The Future
+## 236 - The Future.
 
 >*I sometimes wonder what life will be like in the future.  
 Life has changed so much in just the past few years.  
@@ -188,7 +188,7 @@ Nobody owned a computer.
 It doesn't take long for things to change a lot.  
 Who knows what amazing things are in store for us?*
 
-## 237 Giving a Speech
+## 237 - Giving a Speech.
 
 >*I had to give a speech last week.  
 I gave a speech to three hundred people.  
@@ -222,7 +222,7 @@ Sometimes I do feel a little flutter of nervousness, but I just ignore it and do
 Giving a speech is not as scary as it appears to be.  
 Anyone can do it with a little practice.*
 
-## 238 Moving to Another Country
+## 238 - Moving to Another Country.
 
 >*My friend Steve moved to another country.  
 He had lived in Canada all his life, and he moved to Japan.  
@@ -253,7 +253,7 @@ He thinks that he might like to try and live in Italy.
 I'm sure that he would get over his culture shock very fast if he moved there.  
 Moving to a new country can be difficult, but if you are willing to learn, it can be a very rewarding experience.*
 
-## 239 Look for the Beauty
+## 239 - Look for the Beauty.
 
 >*I have learned that things don't always go the way that they were planned.  
 If something doesn't happen the way that I want it to, I try to make the best of the situation.  
@@ -289,7 +289,7 @@ You'll find something good about almost everyone that you meet if you look hard 
 If something doesn't work out the way you planned it, just make the best of the situation.  
 Look for the beauty in everything.*
 
-## 240 My Doll
+## 240 - My Doll.
 
 >*When I was an infant, I got a rag doll.  
 It was a very plain, little doll, and it wore a clown outfit and a clown's hat.  
@@ -320,7 +320,7 @@ She sits in a special chair in the corner.
 I'll always have that doll.  
 No matter how worn out she is, I'll always keep her and cherish her as a part of my early childhood.*
 
-## 241 I am Curious
+## 241 - I am Curious.
 
 >*I am curious about many things.  
 I would like to find the answers to a lot of questions that I have.  
@@ -351,7 +351,7 @@ Some questions never get answered.
 It is good to be curious.  
 People who are curious about things are the ones who learn a lot, and some curious people go on to invent things and make important discoveries.*
 
-## 242 Creative People
+## 242 - Creative People.
 
 >*Some people are just born to create.  
 That's what I think.  
@@ -381,7 +381,7 @@ Some of his books have even been made into movies.
 We are lucky to have creative people who share their gifts with us.  
 If you are lucky enough to be creative, you should use your talents to create works of art that we all can share.*
 
-## 243 Career Choices
+## 243 - Career Choices.
 
 >*What do you want to be when you grow up? There are so many things that you can be.  
 You might want to work in the field of law.  
@@ -427,7 +427,7 @@ You could make clothes or build bridges.
 You could wash windows or be a bricklayer.  
 The possibilities are endless.*
 
-## 244 I Need Glasses
+## 244 - I Need Glasses.
 
 >*I have been having trouble seeing the blackboard.  
 Everything is blurry.  
@@ -460,7 +460,7 @@ Now I don't get headaches anymore.
 I'm glad that I have my glasses.  
 Everything is a lot clearer now.*
 
-## 245 I am Clumsy
+## 245 - I am Clumsy.
 
 >*My mother says that I am clumsy.  
 My father says that I am clumsy.  
@@ -491,7 +491,7 @@ Maybe it's just a stage that I am going through.
 If it is, I hope it is over soon.  
 Being clumsy is no fun at all.*
 
-## 246 Home Alone
+## 246 - Home Alone.
 
 >*I remember the first time that my parents left me home alone.  
 I was very grown up, and I thought that I would be just fine.  
@@ -528,7 +528,7 @@ I just ignore all the little creaks and noises that I hear.
 I am still alert and listen for anything suspicious, but I know that there are lots of noises that are harmless.  
 That tree that taps on my window still frightens me sometimes, but I'm a lot braver now than I was the first time that I stayed home alone.*
 
-## 247 Family
+## 247 - Family.
 
 >*What does the word "family" mean to you? The easiest way to define family is to talk about who you are related to.  
 Usually, there is a mom and a dad and children who are brothers and sisters.  
@@ -546,7 +546,7 @@ I was also very fortunate that I had both my mom and dad to live with and do thi
 We had a lot of fun and there were sometimes of tears, too.  
 Above all, we love one another! Family is a wonderful thing! I am so lucky!*
 
-## 248 My First Job
+## 248 - My First Job.
 
 >*My first "real" job was during my last year of high school.  
 I had taken classes in various business subjects.  
@@ -574,7 +574,7 @@ That wasn't good because I spent a lot of the money that I earned in those shops
 It was a good experience and helped me get my next job with the United States Navy.  
 That was fun, too!*
 
-## 249 First Trip Away From Home
+## 249 - First Trip Away From Home.
 
 >*Today I am going to my friend's house.  
 Her name is Valerie.  
@@ -603,7 +603,7 @@ Dad yelling, "Let's go!" I haven't even finished packing my things yet.
 I guess I
 better stop writing this now and get busy fast! Bye!*
 
-## 250 My Job
+## 250 - My Job.
 
 >*I work at a conservation park called Ball's Falls.  
 I've only worked there for three weeks now.  
@@ -626,7 +626,7 @@ I also like the people I work with.
 They are very nice.  
 Come to Ball's Falls, and I'll give you a tour!*
 
-## 251 My Hobby
+## 251 - My Hobby.
 
 >*Let's see. 
 Today I might go fly a kite, or maybe go for a swim. 
@@ -653,7 +653,7 @@ I like my hobby.
 I can draw whatever I want on the bookmarks. 
 Maybe sometime in the future I will be a famous bookmark maker and even have my own store!*
 
-## 252 If I Had a Million Dollars
+## 252 - If I Had a Million Dollars.
 
 >*If I had a million dollars, I'd travel the world. 
 I would go to the highest mountain. 
@@ -675,7 +675,7 @@ If I had to pick between a million dollars and my family, I would pick my family
 The million dollars is a nice dream. 
 If that dream ever comes true and I do get a lot of money, I hope I would use it wisely.*
 
-## 253 A Picnic
+## 253 - A Picnic.
 
 >*What a great day for a picnic! 
 We're not only having a picnic; we're having a big bike ride, too. 
@@ -704,7 +704,7 @@ We usually end the day with a fun game of baseball or soccer.
 Finally, we pack up our stuff. 
 Tired and dirty, we head for home with good memories swimming in our heads.*
 
-## 254 Working in my Yard
+## 254 - Working in my Yard.
 
 >*I live in a house that has a small yard around it. 
 In my yard there is a lawn and a garden.
@@ -736,7 +736,7 @@ When spring comes, the grass grows very quickly, so I need to cut the grass quit
 Working in the yard can be very satisfying work. 
 It's so nice when the lawn and garden are looking green and healthy.*
 
-## 255 Early Morning
+## 255 - Early Morning.
 
 >*"Yawn!" I am so tired. 
 I don't like getting up in the morning. 
@@ -772,7 +772,7 @@ It is so clean and cold.
 Well, I know that I have a big trip ahead of me, so I need to get going!
 Bye-bye!*
 
-## 256 The Wedding
+## 256 - The Wedding.
 
 >*We went into the church and sat down. 
 There were pretty flowers at the front. 
@@ -802,7 +802,7 @@ They kissed.
 We all stood, and they walked down the aisle to live the rest of their lives together as Mr. And Mrs.!
 We cried.*
 
-## 257 The Perfect Place
+## 257 - The Perfect Place.
 
 >*There is a place in my mind that is pure. 
 Everything there is beautiful. 
@@ -835,7 +835,7 @@ I don't have to worry about pollution or destruction.
 My perfect world exists only in my head. 
 Maybe if we all work hard, my fantasy can become real!*
 
-## 258 Visiting the Zoo
+## 258 - Visiting the Zoo.
 
 >*When I was a kid, I always enjoyed visiting the zoo. 
 My family lived far away from the zoo,
@@ -865,7 +865,7 @@ To see all the animals at the zoo took almost a whole day.
 By the end of the day, I was very tired from walking around. 
 But I was also very happy to see all the amazing animals from places around the world.
 
-## 259 The Dentist Appointment
+## 259 - The Dentist Appointment.
 
 >*My dentist called my house the other day. 
 He told me I needed my teeth cleaned. 
@@ -899,7 +899,7 @@ I didn't have any problems.
 I could go home.
 "See you next year," he said.*
 
-## 260 Day Dream
+## 260 - Day Dream.
 
 >*Little Annie was very bored one lazy afternoon. 
 She had nothing to do! 

@@ -1,4 +1,4 @@
-## 91 The Museum.
+## 91 - The Museum.
 
 >*The museum was very interesting.  
 There were so many things in the museum that I would need more time to really see everything.  
@@ -26,7 +26,7 @@ I tried my best to see everything, but it was almost impossible.
 The museum is a good place to learn about your past.  
 I tried to imagine my grandparents using some of the things that were on display at the museum.*
 
-## 92 The Police.
+## 92 - The Police.
 
 >*My mother always told me that if I was lost I could go up to a policeman and that he would help me to find my way home.  
 I never did get lost, but I always remembered what my mother told me about the police.  
@@ -53,7 +53,7 @@ Sometimes they even have to arrest people.
 Police officers are just doing their job when they arrest people.  
 Some people need to be arrested and put in jail to make it safer for the rest of us.*
 
-## 93 Pretending.
+## 93 - Pretending.
 
 >*I like to pretend.  
 I like to make up things that aren't real.  
@@ -90,7 +90,7 @@ The machine whirred and buzzed.
 My time machine landed in the twenty-first century.  
 I got away just in time.*
 
-## 94 A Baby.
+## 94 - A Baby.
 
 >*My aunt just had a baby girl.  
 We went to the hospital to visit my aunt and to see the new baby.  
@@ -122,7 +122,7 @@ My aunt says that it won't be long before the baby is crawling and trying to tal
 Babies are cute.  
 I have seen pictures of myself when I was a baby, and it's hard to believe that I was once that small.*
 
-## 95 A Wedding.
+## 95 - A Wedding.
 
 >*The church bells are ringing.  
 I am inside the church waiting for my cousin to walk down the aisle.  
@@ -150,7 +150,7 @@ The bride will throw her bouquet of flowers, and it is said that whoever catches
 The next day, the bride and groom will leave for their honeymoon.  
 My cousin and her husband are going to Mexico for their honeymoon.*
 
-## 96 My Dad.
+## 96 - My Dad.
 
 >*My dad is the man whom I respect the most in my life.  
 He works very hard to make the money that supports us.  
@@ -177,7 +177,7 @@ I think it is important to have good parents.
 I hope that when I have children I will be a good parent like my parents are to me.  
 Parents give children the foundation that they need to live good lives.*
 
-## 97 My Mother.
+## 97 - My Mother.
 
 >*My mother does so many things.  
 She has a job at a dress store; she cooks our meals; she cleans the house; she feeds the pets, and she still finds time to spend with us.  
@@ -205,7 +205,7 @@ I'm glad that I have the mother that I have.
 My mother is caring and funny.  
 She is fun to be around.*
 
-## 98 A Surprise.
+## 98 - A Surprise.
 
 >*Last Friday my dad came home from work and said that he had a surprise for us.  
 We tried to guess what the surprise might be.  
@@ -239,7 +239,7 @@ We take turns feeding the puppy and taking her out for walks.
 She is growing quickly and will soon be an adult dog.  
 We all agree that the puppy was the nicest surprise that my dad could have given us.*
 
-## 99 Rhyming Words.
+## 99 - Rhyming Words.
 
 >*Sometimes my friends and I play a game.  
 It's something we made up, so it doesn't have a name.  
@@ -269,7 +269,7 @@ Like "cat" and "bat" or "lime" and "time."
 So, give it a try, I know you'll have fun.  
 I'll say "goodbye," my rhyming is done.*
 
-## 100 Homework
+## 100 - Homework
 
 >*Sometimes, my teacher gives us homework.  
 I don't mind doing my homework except when the weather is really nice, and all my friends are outside.  
@@ -300,7 +300,7 @@ I get good marks because I like school.
 My favorite subjects are physical education, English and history.  
 Math is my least favorite subject, but I'm trying to improve my marks in that.*
 
-## 101 Opposites.
+## 101 - Opposites.
 
 >*Some things are opposites of each other.  
 The opposite of black is white.  
@@ -333,7 +333,7 @@ I might love to swim, or I might hate to swim.
 It is interesting to see how many opposites you can think up.  
 I could say hello, but I think it's time to say goodbye.*
 
-## 102 Niagara Falls.
+## 102 - Niagara Falls.
 
 >*In my town there is a paperboy who just got an award for his actions.  
 This boy delivered the local newspaper every morning.  
@@ -364,7 +364,7 @@ The police said that the boy was an example of a very good citizen.
 The paperboy and the man are very good friends.  
 The man will never forget what the paperboy did for him.*
 
-## 103 Niagara Falls.
+## 103 - Niagara Falls.
 
 >*I live in Niagara Falls.  
 Niagara Falls is a famous place.  
@@ -394,7 +394,7 @@ I stay behind the railings when I look at the falls.
 I know just how powerful the falls are.  
 It is interesting to discover all the stories that there are about Niagara Falls.*
 
-## 104 The Library.
+## 104 - The Library.
 
 >*One of my favorite places is the library.  
 I go there to get books for school, and I go there to get books for pleasure.  
@@ -432,7 +432,7 @@ He likes books about trains.
 I have liked books ever since I was very small.  
 My mother says that reading is a good habit to get into.*
 
-## 105 When I Grow Up.
+## 105 - When I Grow Up.
 
 >*I have been thinking about what I'd like to be when I grow up.  
 There are so many choices.  
@@ -465,7 +465,7 @@ Some require a little bit of training, and some require a lot of training.
 It's all up to me.  
 I can be whatever I want to be.*
 
-## 106 Favorite Colours.
+## 106 - Favorite Colours.
 
 >*My very favorite colour is purple.  
 There are not a lot of things that are purple.  
@@ -503,7 +503,7 @@ Nature used all these colours to make the beautiful earth.
 We are fortunate to be surrounded by beauty.  
 We should do our part to make sure that nature stays beautiful and clean.*
 
-## 107 Making Friends.
+## 107 - Making Friends.
 
 >*I used to be very shy.  
 I would not go up to someone that I did not know and say hello.  
@@ -532,7 +532,7 @@ That was a few years ago.
 She is still one of my best friends.  
 Just think, if she hadn't been lost we might never have become friends.*
 
-## 108 Getting Old.
+## 108 - Getting Old.
 
 >*My grandfather is getting old.  
 When I was younger, my grandfather would carry me on his shoulders, and we would go for a walk.  
@@ -566,7 +566,7 @@ He jokes about his old bones.
 I spend a lot of time with my grandfather.  
 I hope that he is around for a long time.
 
-##  109 Time.
+## 109 - Time.
 
 >*Time is something that you should never waste.  
 Once an hour is gone, it is gone forever.  
@@ -598,7 +598,7 @@ Time is something that we can't see, but it is a big factor in our lives.
 How many times a day do you look at a watch or a clock?  
 I bet you'd be surprised at just how many times you do.*
 
-## 110 Amy.
+## 110 - Amy.
 
 >*Amy was a girl who came into our classroom.  
 She had many things wrong with her.  
@@ -632,7 +632,7 @@ I learned a lot from Amy that day.
 I saw a brave girl who wouldn't give up.  
 Whenever I think my problems are too big to handle, I think of Amy and I remember her smile.*
 
-## 111 Memories.
+## 111 - Memories.
 
 >*Somebody once asked me what the most valuable things that I owned were.  
 I thought about that for a long time.  
@@ -655,7 +655,7 @@ I remember days that seemed ordinary at the time, but you never get to relive ev
 Memories are so precious.  
 Cherish your memories, and keep them in a place close to your heart.*
 
-## 112 Roommate Wanted.
+## 112 - Roommate Wanted.
 
 >*Spacious two bedroom apartment with kitchen facilities.  
 On the bus route to Brock University.  
@@ -702,7 +702,7 @@ References required.
 $700 per month.  
 Call 905-111-1111 and ask for Mr. Bridges.*
 
-## 113 Places to Live.
+## 113 - Places to Live.
 
 >*I live in a house.  
 My house is in a town.  
@@ -726,7 +726,7 @@ Many people who are about the same age as he is live there.
 I would like to live in a palace.  
 I think you have to be a king or a queen, or a prince or a princess to live in a palace.*
 
-## 114 The Bathroom.
+## 114 - The Bathroom.
 
 >*There is a bathtub in my bathroom.  
 On the wall over the bathtub there is a shower head.  
@@ -751,7 +751,7 @@ There are toothbrushes and dental floss for our teeth.
 We only have one bathroom, so we line up to use it.  
 It is good to have more than one bathroom in a house.*
 
-## 115 The Bedroom (End).
+## 115 - The Bedroom (End).
 
 >*My bed is nice and soft.  
 I have a pretty bedspread on my bed.  

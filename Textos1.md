@@ -1,4 +1,4 @@
-## 001: First Snow Fall.
+## 001 - First Snow Fall.
 
 >*Today is November 26th.   
 It snowed all day today.  

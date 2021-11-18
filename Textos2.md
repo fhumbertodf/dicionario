@@ -633,7 +633,7 @@ My mother said that it used to shed fur all over the house.
 Pets are a lot of fun, but they are a lot of work too.  
 To be a good pet owner, you have to be very responsible.*
 
-## 51: Parties.
+## 51 - Parties.
 
 >*Parties can be a lot of fun.  
 People get invited to parties.  
@@ -659,7 +659,7 @@ Sometimes, people will ask you to bring food or drinks to the party.
 All parties are different.  
 It is nice to be invited to parties.*
 
-## 52: Grocery Shopping.
+## 52 - Grocery Shopping.
 
 >*What do you see when you go to the grocery store?  
 The aisles are filled with food.  
@@ -694,7 +694,7 @@ There is even a section for your pets.
 You can buy cat food and dog food.  
 There are toys for cats and dogs.*
 
-## 53: Differences.
+## 53 - Differences.
 
 >*Are you tall or short?  
 Are you big or small?  
@@ -722,7 +722,7 @@ We are all different sizes.
 It is not a bad thing.  
 It is a good thing that we are all unique.*
 
-## 54: The Restaurant.
+## 54 - The Restaurant.
 
 >*When you go to a restaurant you might see a sign that says, "Please wait to be seated."  
 A host or hostess will ask you how many people are in your party.  
@@ -744,7 +744,7 @@ Some people want a salad or soup before their meal.
 After your meal, you might have a dessert, or tea, or coffee.  
 When it is time to go, you will pay your bill and leave a tip for the waiter or waitress.*
 
-## 55: Traffic.
+## 55 - Traffic.
 
 >*Traffic moves along on the streets and highways.  
 There are rules that drivers must follow to make the traffic flow smoothly.  
@@ -768,7 +768,7 @@ People should never drink and drive.
 Driving is a serious business.  
 You have to obey all the rules to be a good driver.*
 
-## 56: Music.
+## 56 - Music.
 
 >*If you were in an orchestra, what would you play?  
 Would you play a tuba, a trumpet or a saxophone?  
@@ -796,7 +796,7 @@ It is good to learn about music.
 You have to learn your scales, and learn about sharps and flats.  
 If you want to learn how to play an instrument, it is best to take music lessons.*
 
-## 57: Who What Where and Why.
+## 57 - Who What Where and Why.
 
 >*These are important words.  
 They are all words that begin questions.  
@@ -823,7 +823,7 @@ Why did the chicken cross the street?
 They say that you should answer all of these questions if you are writing a story.  
 You have to give the who, what, where and why to write a good story.*
 
-## 58: Which Direction.
+## 58 - Which Direction.
 
 >*Which direction should I go in?  
 Should I go up?  
@@ -844,7 +844,7 @@ Maybe I should go sideways, but which side, left or right?
 It sounds very complicated, but it is not.  
 Directions are very easy to follow if you just stop and think about them.*
 
-## 59: The Office.
+## 59 - The Office.
 
 >*Some people work in an office.  
 There are special tools that people in an office need to do their work.  
@@ -868,7 +868,7 @@ You will have to visit an office sometime.
 Maybe it will be a doctor's office or a lawyer's office.  
 There are many different types of offices.*
 
-## 60: Money.
+## 60 - Money.
 
 >*I keep my money in the bank.  
 I have saved up my money.  
