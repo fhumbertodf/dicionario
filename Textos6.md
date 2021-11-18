@@ -540,381 +540,379 @@ Above all, we love one another! Family is a wonderful thing! I am so lucky!*
 
 ## 248 - My First Job.
 
->*My first "real" job was during my last year of high school.  
-I had taken classes in various business subjects.  
-In that last year of high school, we could do a "co-op". 
-That meant we could work part of the time instead of going to school.  
-It would count as a credit towards our diploma.
-The place I got a job was at a men's tailor shop.  
-The owners were a very nice older German couple.  
-They had two other men working for them, too.  
-One of the men had had brain surgery for cancer.  
-He had a big, long scar all around the top of his head.
-He told me all about it.  
-He was always happy and full of fun.  
-I thought he was very brave! The tailor shop made suits to order.  
-One of the salesmen would measure the man, and the customer would choose a fabric and style he (or his wife!) liked.  
-The people in the back of the shop would then cut and sew the suit.  
-The suits cost a lot of money.  
-There were also suits already made that the customer could buy instead if they wished.  
-They could also rent suits or tuxedos for weddings or parties.  
-I worked at a little desk.  
-I answered the phone, wrote letters, filed papers and did some bookkeeping.  
-It was about a mile walk from my school to work.  
-I passed many clothing shops.  
-That wasn't good because I spent a lot of the money that I earned in those shops! I worked at the tailor shop for almost a year.  
-It was a good experience and helped me get my next job with the United States Navy.  
+>*My first "real" job was during my last year of high school.   
+I had taken classes in various business subjects.   
+In that last year of high school, we could do a "co-op".   
+That meant we could work part of the time instead of going to school.   
+It would count as a credit towards our diploma.   
+The place I got a job was at a men's tailor shop.   
+The owners were a very nice older German couple.   
+They had two other men working for them, too.   
+One of the men had had brain surgery for cancer.   
+He had a big, long scar all around the top of his head.   
+He told me all about it.   
+He was always happy and full of fun.   
+I thought he was very brave! The tailor shop made suits to order.   
+One of the salesmen would measure the man, and the customer would choose a fabric and style he (or his wife!) liked.   
+The people in the back of the shop would then cut and sew the suit.   
+The suits cost a lot of money.   
+There were also suits already made that the customer could buy instead if they wished.   
+They could also rent suits or tuxedos for weddings or parties.   
+I worked at a little desk.   
+I answered the phone, wrote letters, filed papers and did some bookkeeping.   
+It was about a mile walk from my school to work.   
+I passed many clothing shops.   
+That wasn't good because I spent a lot of the money that I earned in those shops!   
+I worked at the tailor shop for almost a year.   
+It was a good experience and helped me get my next job with the United States Navy.   
 That was fun, too!*
 
 ## 249 - First Trip Away From Home.
 
->*Today I am going to my friend's house.  
-Her name is Valerie.  
-This is going to be my first trip away from home, without my parents.  
-My dad is driving me to Valerie's house, and I'll be staying there for two weeks.  
-Her mom will drive me back home. 
-It takes about l l/2 hours to get there.  
-I have to pack enough clothes for play, work and church.  
-I hope I'll pack the right things.  
-Of course, I have to remember my toothbrush and hairbrush.
-Valerie lives on a farm.  
-I'll be helping her dad with milking the cows--I think! 
-We'll play up in the hayloft after we have helped put the bales into the barn.  
-We'll be all itchy when that job is done! 
-There are a lot of things to do on a farm.  
-Her mom is a good cook and will feed us well!
-There is a nice pond where we can go swimming.  
-I mustn't forget my bathing suit.  
-I wonder if the farm dog comes into the pond, too.  
-That would be funny! My dad and
-mom are giving me money just in case we go shopping.  
-I hope we do go shopping
-because I want to buy lots of candy.  
-(I won't tell my mom that!)  Oh, dear! I hear
-Dad yelling, "Let's go!" I haven't even finished packing my things yet.  
-I guess I
-better stop writing this now and get busy fast! Bye!*
+>*Today I am going to my friend's house.   
+Her name is Valerie.   
+This is going to be my first trip away from home, without my parents.   
+My dad is driving me to Valerie's house, and I'll be staying there for two weeks.   
+Her mom will drive me back home.   
+It takes about l l/2 hours to get there.   
+I have to pack enough clothes for play, work and church.   
+I hope I'll pack the right things.   
+Of course, I have to remember my toothbrush and hairbrush.   
+Valerie lives on a farm.   
+I'll be helping her dad with milking the cows--I think!   
+We'll play up in the hayloft after we have helped put the bales into the barn.   
+We'll be all itchy when that job is done!   
+There are a lot of things to do on a farm.    
+Her mom is a good cook and will feed us well!   
+There is a nice pond where we can go swimming.   
+I mustn't forget my bathing suit.   
+I wonder if the farm dog comes into the pond, too.   
+That would be funny! My dad and mom are giving me money just in case we go shopping.     
+I hope we do go shopping because I want to buy lots of candy.   
+(I won't tell my mom that!)  Oh, dear!   
+I hear Dad yelling, "Let's go!" I haven't even finished packing my things yet.   
+I guess I better stop writing this now and get busy fast! Bye!*
 
 ## 250 - My Job.
 
->*I work at a conservation park called Ball's Falls.  
-I've only worked there for three weeks now.  
-I am a Tour Guide, and I tell people the history of all the old buildings there.  
-Somebody told me that one of the houses I work in is haunted.  
-Now I get chills every time I walk into that house! My boss told me that the stories aren't real, but I have an active imagination!
-Ball's Falls is very beautiful.  
-It has two different water falls, the Upper Falls and the Lower Falls.  
-There used to be tons of water cascading over them, which turned a big water wheel to grind grain.  
-However, through the years the amount of water has really lessened.
-I love working at Ball's Falls because I get to work outside a lot.  
-I am getting a tan!
-In July and August, I will be working with kids there at a day camp.  
-I am getting ready now, making different crafts and thinking up fun new games to play.  
-I can't wait to start working with them.  
-I think that will be the best part of the summer.
-I will be going to work again tomorrow.  
-I usually have to work from 9 a.m. to 4:30 p.m.  
-I also like the people I work with.  
-They are very nice.  
+>*I work at a conservation park called Ball's Falls.   
+I've only worked there for three weeks now.   
+I am a Tour Guide, and I tell people the history of all the old buildings there.   
+Somebody told me that one of the houses I work in is haunted.   
+Now I get chills every time I walk into that house!   
+My boss told me that the stories aren't real, but I have an active imagination!   
+Ball's Falls is very beautiful.   
+It has two different water falls, the Upper Falls and the Lower Falls.   
+There used to be tons of water cascading over them, which turned a big water wheel to grind grain.   
+However, through the years the amount of water has really lessened.   
+I love working at Ball's Falls because I get to work outside a lot.   
+I am getting a tan!   
+In July and August, I will be working with kids there at a day camp.   
+I am getting ready now, making different crafts and thinking up fun new games to play.   
+I can't wait to start working with them.   
+I think that will be the best part of the summer.   
+I will be going to work again tomorrow.   
+I usually have to work from 9 a.m. to 4:30 p.m.   
+I also like the people I work with.   
+They are very nice.   
 Come to Ball's Falls, and I'll give you a tour!*
 
 ## 251 - My Hobby.
 
->*Let's see. 
-Today I might go fly a kite, or maybe go for a swim. 
-It is hot outside, and I don't know what to do. 
-My mom tells me that I should do something that I like doing on hot days. 
-Since our house is nice and cool, I guess I'll stay inside and work on my hobby.
-My hobby is something that not a lot of people do. 
-I make and collect bookmarks.
-To make my bookmarks, I use stickers, and special art pencils to draw. 
-I buy the stickers at a mall, usually in a card store. 
-The art pencils are bought in an art store. 
-To make the bookmarks, I start with a piece of paper. 
-I measure out how big I want the bookmark to be with a ruler. 
-I once made a bookmark so big, that it couldn't even be used in a very big book! 
-After I measure it, I draw lines so that I can cut it straight. 
-Sometimes, I use fancy scissors that cut zig-zags or frills. 
-Then I start to decorate them.
-I like to draw cartoons and flowers on my bookmarks. 
-Sometimes, I even put real flowers on them. 
-A lot of the time I write little sayings on the bookmarks. 
-I like to give my bookmarks to friends and family. 
-Sometimes, I even sell my bookmarks to people.
-I like my hobby. 
-I can draw whatever I want on the bookmarks. 
+>*Let's see.   
+Today I might go fly a kite, or maybe go for a swim.   
+It is hot outside, and I don't know what to do.   
+My mom tells me that I should do something that I like doing on hot days.   
+Since our house is nice and cool, I guess I'll stay inside and work on my hobby.   
+My hobby is something that not a lot of people do.   
+I make and collect bookmarks.   
+To make my bookmarks, I use stickers, and special art pencils to draw.   
+I buy the stickers at a mall, usually in a card store.   
+The art pencils are bought in an art store.   
+To make the bookmarks, I start with a piece of paper.   
+I measure out how big I want the bookmark to be with a ruler.   
+I once made a bookmark so big, that it couldn't even be used in a very big book!   
+After I measure it, I draw lines so that I can cut it straight.   
+Sometimes, I use fancy scissors that cut zig-zags or frills.   
+Then I start to decorate them.   
+I like to draw cartoons and flowers on my bookmarks.   
+Sometimes, I even put real flowers on them.   
+A lot of the time I write little sayings on the bookmarks.   
+I like to give my bookmarks to friends and family.   
+Sometimes, I even sell my bookmarks to people.   
+I like my hobby.   
+I can draw whatever I want on the bookmarks.   
 Maybe sometime in the future I will be a famous bookmark maker and even have my own store!*
 
 ## 252 - If I Had a Million Dollars.
 
->*If I had a million dollars, I'd travel the world. 
-I would go to the highest mountain. 
-I would swim the deepest sea. 
-I would probably buy a lot of clothes because I love clothes! 
-More than anything though, I would want to visit Ireland.
-I want to see the rolling hills and the green, green grass that everyone talks about. 
-When I think of Ireland, I think of where my family came from many years ago. 
-I am almost all Irish and would love to see my family over in Ireland.
-If I had a million dollars, I would buy a Mustang or a Pontiac Sunbird car. 
-I would buy a nice house with a big backyard and an outdoor and indoor pool. 
-I would love to take my family wherever they wanted to go. 
-I would buy them wonderful presents, too.
-However, I know that money does not buy happiness. 
-It does not buy you friends or family. 
+>*If I had a million dollars, I'd travel the world.   
+I would go to the highest mountain.   
+I would swim the deepest sea.   
+I would probably buy a lot of clothes because I love clothes!   
+More than anything though, I would want to visit Ireland.   
+I want to see the rolling hills and the green, green grass that everyone talks about.   
+When I think of Ireland, I think of where my family came from many years ago.   
+I am almost all Irish and would love to see my family over in Ireland.   
+If I had a million dollars, I would buy a Mustang or a Pontiac Sunbird car.   
+I would buy a nice house with a big backyard and an outdoor and indoor pool.   
+I would love to take my family wherever they wanted to go.   
+I would buy them wonderful presents, too.   
+However, I know that money does not buy happiness.   
+It does not buy you friends or family.   
 It may bring some happiness only for the moment, but in the long run your family
-is what will be there for you if you love them and are there for them.
-If I had to pick between a million dollars and my family, I would pick my family. 
-The million dollars is a nice dream. 
+is what will be there for you if you love them and are there for them.   
+If I had to pick between a million dollars and my family, I would pick my family.   
+The million dollars is a nice dream.   
 If that dream ever comes true and I do get a lot of money, I hope I would use it wisely.*
 
 ## 253 - A Picnic.
 
->*What a great day for a picnic! 
-We're not only having a picnic; we're having a big bike ride, too. 
-We did this last year with a lot of friends also. It was really fun.
-We meet quite early in the morning in a pretty little town. 
-The town is where the Niagara River flows into Lake Ontario in Canada. 
-The town's name is Niagara-on-the-Lake. 
-Then all of the people, fifty or more, get on their bikes or roller blades. 
-We go on a bike path beside the river. 
-The path we take is about 11 km or 6 miles long. 
-There are a lot of other people using the path, too.
+>*What a great day for a picnic!   
+We're not only having a picnic; we're having a big bike ride, too.   
+We did this last year with a lot of friends also. It was really fun.   
+We meet quite early in the morning in a pretty little town.   
+The town is where the Niagara River flows into Lake Ontario in Canada.   
+The town's name is Niagara-on-the-Lake.   
+Then all of the people, fifty or more, get on their bikes or roller blades.   
+We go on a bike path beside the river.   
+The path we take is about 11 km or 6 miles long.   
+There are a lot of other people using the path, too.   
 We usually stop for an ice cream treat near the end or where we turn around to go back
-to our cars. 
-It is just before the park where we will have our picnic, and a steep hill. 
-Many of the men and boys go up the hill. 
-Most of the women and children go back to their cars.
-The ride takes about two hours plus whatever time we take at the ice cream store.
-After the ride is finished, we go the park. 
-We have a delicious "pot-luck" lunch. 
-Pot luck means everyone brings some food to share with the others. 
-We eat, rest, talk and laugh.
+to our cars.   
+It is just before the park where we will have our picnic, and a steep hill.   
+Many of the men and boys go up the hill.   
+Most of the women and children go back to their cars.   
+The ride takes about two hours plus whatever time we take at the ice cream store.   
+After the ride is finished, we go the park.   
+We have a delicious "pot-luck" lunch.   
+Pot luck means everyone brings some food to share with the others.   
+We eat, rest, talk and laugh.   
 After we've cleaned up, some of us climb the tower that is there remembering a war at
-that place and its general. 
-It is a steep climb, over l00 steps. 
-We usually end the day with a fun game of baseball or soccer.
-Finally, we pack up our stuff. 
+that place and its general.   
+It is a steep climb, over l00 steps.   
+We usually end the day with a fun game of baseball or soccer.   
+Finally, we pack up our stuff.   
 Tired and dirty, we head for home with good memories swimming in our heads.*
 
 ## 254 - Working in my Yard.
 
->*I live in a house that has a small yard around it. 
-In my yard there is a lawn and a garden.
+>*I live in a house that has a small yard around it.   
+In my yard there is a lawn and a garden.   
 There is also a sidewalk that leads to my front door, and a driveway that leads to my
-garage. 
-Throughout the year I work to maintain my yard.
-During the summer, I cut the grass that grows in my yard, using a lawn-mower. 
-I like the smell of the grass when it has just been cut. 
-But it's better not to cut the grass too short.
+garage.   
+Throughout the year I work to maintain my yard.   
+During the summer, I cut the grass that grows in my yard, using a lawn-mower.   
+I like the smell of the grass when it has just been cut.   
+But it's better not to cut the grass too short.   
 When the weather is dry, I also put water on the lawn and garden, so that the grass and
-flowers can grow.
-During the autumn, many leaves fall from the trees in my yard. 
-I use a rake to collect the leaves from the lawn. 
-Then I can put the leaves into bags. 
-I can use the leaves to make fertilizer. 
-When I was a kid, I didn't like the job of raking leaves, but now I don't mind it.
+flowers can grow.   
+During the autumn, many leaves fall from the trees in my yard.   
+I use a rake to collect the leaves from the lawn.   
+Then I can put the leaves into bags.   
+I can use the leaves to make fertilizer.   
+When I was a kid, I didn't like the job of raking leaves, but now I don't mind it.   
 Another job during the autumn is to remove flowers from the garden before the cold
-weather arrives.
+weather arrives.   
 During the winter, there is no work to do in the lawn or garden, because they are covered
-in snow. 
-But I need to keep the snow off my sidewalk and driveway. 
-Whenever it snows, I use a shovel to clear the snow from the sidewalk and the driveway. Sometimes it snows a lot. 
-If I didn't shovel the snow, it would soon be impossible to get into my house!
-During the spring, the snow melts. 
-I clean up my yard by sweeping away dirt and by removing weeds from the lawn and garden. 
-I also put flowers back into the garden. 
-It's nice to see them again after the long, cold winter. 
-When spring comes, the grass grows very quickly, so I need to cut the grass quite often.
-Working in the yard can be very satisfying work. 
+in snow.   
+But I need to keep the snow off my sidewalk and driveway.   
+Whenever it snows, I use a shovel to clear the snow from the sidewalk and the driveway.    Sometimes it snows a lot.   
+If I didn't shovel the snow, it would soon be impossible to get into my house!   
+During the spring, the snow melts.   
+I clean up my yard by sweeping away dirt and by removing weeds from the lawn and garden.   
+I also put flowers back into the garden.   
+It's nice to see them again after the long, cold winter.   
+When spring comes, the grass grows very quickly, so I need to cut the grass quite often.   
+Working in the yard can be very satisfying work.   
 It's so nice when the lawn and garden are looking green and healthy.*
 
 ## 255 - Early Morning.
 
->*"Yawn!" I am so tired. 
-I don't like getting up in the morning. 
-I wish I could sleep in until noon.
-My mom has to come into my room and shake my feet. 
-"Get up, you lazy girl!" she says, "It's time to rise and shine. It's a beautiful day!"
-I raise my head, mumble and turn over, putting my pillow over my head. 
-My mom yanks my pillow from off my head and starts tickling me. 
-"Okay, I'll get up!" I shriek. 
-The sun is so bright that I squint. 
-I think I will go outside and play. 
-I can't wait to get up now. 
-My mom cooks me breakfast. 
-I have eggs, bacon, toast and orange juice.
-When I finish my breakfast. 
-I brush my teeth, comb my hair, wash my face and then change into play clothes. 
-I choose a bright pink and yellow tank top with jean shorts and blue sandals.
-My bike is in the garage where my dad keeps the cars and tools. 
-As I pedal, my hair flies out behind me! 
-I keep my mouth shut so that bugs don't get in! 
-I am going down a big hill now. 
-I can hardly pedal anymore. 
-My legs are moving so fast. 
-I hang onto my handle bars tightly. 
-I don't want to fall off!
-I finally am able to slow down as the road becomes level. 
-I turn a corner and decide to go back home. 
-I realize I now have to ride up the hill! 
-I know I will be tired when I get to the top. 
-I think that I will have some water now before I start to go up. 
-Mmmm, it tastes great!
-It is so clean and cold.
-Well, I know that I have a big trip ahead of me, so I need to get going!
+>*"Yawn!" I am so tired.   
+I don't like getting up in the morning.   
+I wish I could sleep in until noon.   
+My mom has to come into my room and shake my feet.   
+"Get up, you lazy girl!" she says, "It's time to rise and shine. It's a beautiful day!"   
+I raise my head, mumble and turn over, putting my pillow over my head.   
+My mom yanks my pillow from off my head and starts tickling me.   
+"Okay, I'll get up!" I shriek.   
+The sun is so bright that I squint.   
+I think I will go outside and play.   
+I can't wait to get up now.   
+My mom cooks me breakfast.   
+I have eggs, bacon, toast and orange juice.   
+When I finish my breakfast.   
+I brush my teeth, comb my hair, wash my face and then change into play clothes.   
+I choose a bright pink and yellow tank top with jean shorts and blue sandals.   
+My bike is in the garage where my dad keeps the cars and tools.   
+As I pedal, my hair flies out behind me!   
+I keep my mouth shut so that bugs don't get in!    
+I am going down a big hill now.   
+I can hardly pedal anymore.   
+My legs are moving so fast.   
+I hang onto my handle bars tightly.    
+I don't want to fall off!   
+I finally am able to slow down as the road becomes level.   
+I turn a corner and decide to go back home.   
+I realize I now have to ride up the hill!   
+I know I will be tired when I get to the top.   
+I think that I will have some water now before I start to go up.   
+Mmmm, it tastes great!   
+It is so clean and cold.   
+Well, I know that I have a big trip ahead of me, so I need to get going!   
 Bye-bye!*
 
 ## 256 - The Wedding.
 
->*We went into the church and sat down. 
-There were pretty flowers at the front. 
-There was beautiful organ music playing. 
-The church was full of people dressed up nicely. 
-Everyone was waiting to see the beautiful bride walk up the aisle.
-A hush, and intake of breath. 
-There she was! 
-Oh, she was so beautiful! 
-She had a lovely, long white dress with pretty lace and beads. 
-Her hair was swept up off from her face.
-There were curls flowing down her back. 
-Instead of a veil, she had little flowers in her hair. 
-Her bouquet of tiny flowers was very, very pretty. 
-Her dad looked very proud of her.
-He looked just a little sad, too.
-At the front of the church, the groom stood waiting. 
-He had a beautiful tender smile on his face. 
-He took his bride's hand as her dad left her there. 
-They smiled at each other.
-The minister read, prayed and offered some words of advice to the lovely couple.
-Someone sang a pretty song. 
-The groom slipped the simple wedding band on the bride's finger. 
-She struggled a little to put a band on his finger. 
-Pretty soon the minister said they were now husband and wife. 
-They kissed. 
-We all stood, and they walked down the aisle to live the rest of their lives together as Mr. And Mrs.!
+>*We went into the church and sat down.   
+There were pretty flowers at the front.   
+There was beautiful organ music playing.   
+The church was full of people dressed up nicely.   
+Everyone was waiting to see the beautiful bride walk up the aisle.   
+A hush, and intake of breath.   
+There she was!   
+Oh, she was so beautiful!   
+She had a lovely, long white dress with pretty lace and beads.   
+Her hair was swept up off from her face.   
+There were curls flowing down her back.   
+Instead of a veil, she had little flowers in her hair.   
+Her bouquet of tiny flowers was very, very pretty.   
+Her dad looked very proud of her.   
+He looked just a little sad, too.   
+At the front of the church, the groom stood waiting.   
+He had a beautiful tender smile on his face.   
+He took his bride's hand as her dad left her there.    
+They smiled at each other.   
+The minister read, prayed and offered some words of advice to the lovely couple.   
+Someone sang a pretty song.   
+The groom slipped the simple wedding band on the bride's finger.   
+She struggled a little to put a band on his finger.   
+Pretty soon the minister said they were now husband and wife.   
+They kissed.   
+We all stood, and they walked down the aisle to live the rest of their lives together as Mr. And Mrs.!   
 We cried.*
 
 ## 257 - The Perfect Place.
 
->*There is a place in my mind that is pure. 
-Everything there is beautiful. 
-Many flowers grow, and the grass is very green. 
-The clouds are always white and fluffy. 
-The tree's branches sweep the earth floor.
-You can hear the sound of a waterfall. 
-It is roaring with life, and the water races. 
-A bird calls in the distance and as you listen, the sound gets closer. 
-A flapping quite near makes me turn and look. 
-A great, magnificent eagle flies over my head. 
-The strength I see in his powerful wings amazes me!
-I am never thirsty or hungry. 
-I live off the beauty that surrounds me in this perfect place.
-I walk on trails that lead me to breath-taking places. 
-The beach is my favourite spot to end up. 
-The sand between my toes is soft and cool. 
-I love to lie down on the sand. 
-I watch the sun go down. 
-Sometimes the sun is a brilliant orange. 
-The world seems like it is on fire! 
-Waves lull me to sleep. 
-The seagulls wake me up.
-In this perfect place I have learned so much. 
-The animals and their homes are so precious. 
-I have learned to respect the animals; they were here first.
-The sounds, smells, and sights are too perfect and full of life. 
-There is no war here, no anger or stress. 
-I don't have to worry about pollution or destruction.
-My perfect world exists only in my head. 
+>*There is a place in my mind that is pure.   
+Everything there is beautiful.   
+Many flowers grow, and the grass is very green.   
+The clouds are always white and fluffy.   
+The tree's branches sweep the earth floor.   
+You can hear the sound of a waterfall.   
+It is roaring with life, and the water races.   
+A bird calls in the distance and as you listen, the sound gets closer.   
+A flapping quite near makes me turn and look.   
+A great, magnificent eagle flies over my head.   
+The strength I see in his powerful wings amazes me!   
+I am never thirsty or hungry.   
+I live off the beauty that surrounds me in this perfect place.   
+I walk on trails that lead me to breath-taking places.   
+The beach is my favourite spot to end up.   
+The sand between my toes is soft and cool.   
+I love to lie down on the sand.   
+I watch the sun go down.   
+Sometimes the sun is a brilliant orange.   
+The world seems like it is on fire!   
+Waves lull me to sleep.   
+The seagulls wake me up.   
+In this perfect place I have learned so much.   
+The animals and their homes are so precious.   
+I have learned to respect the animals; they were here first.   
+The sounds, smells, and sights are too perfect and full of life.    
+There is no war here, no anger or stress.   
+I don't have to worry about pollution or destruction.   
+My perfect world exists only in my head.   
 Maybe if we all work hard, my fantasy can become real!*
 
 ## 258 - Visiting the Zoo.
 
->*When I was a kid, I always enjoyed visiting the zoo. 
-My family lived far away from the zoo,
-so we didn't go there very often. 
-But whenever we went to the zoo, I always had a fun and interesting time.
-Some of the animals were very large. 
-Of course, the elephants were huge, and they had such an unusual appearance, with their big ears and their long trunk and tusks. 
-The giraffes were very tall, with long necks that reached high into the trees.
-Some of my favorite animals were the big cats. 
-The lions looked very powerful, with their big teeth and paws. 
-The tigers were just as big and strong, with yellow and black stripes.
-But the bears were even larger than these cats. 
-The polar bears, with their bright white fur, liked to swim through the water. 
-The grizzly bears had brown fur and liked to roam around on land.
-The animals from Australia seemed very unusual. 
-The kangaroos, with their strong legs and long tail, could jump great distances across the ground. 
-The baby kangaroo could go inside its mother's pouch. 
-Another Australian animal, the koala bear, crawled slowly in the trees, where it ate leaves.
-The monkeys and apes were also very interesting. 
-In many ways, they reminded me of people. 
-Some of the monkeys were very small. 
-They could use their arms, legs, and tail to swing through the trees. 
-Some of the apes were very large. 
-The gorilla was the largest of all. 
-Sometimes a big gorilla would stand up and pound his fists on his chest.
-To see all the animals at the zoo took almost a whole day. 
-By the end of the day, I was very tired from walking around. 
-But I was also very happy to see all the amazing animals from places around the world.
+>*When I was a kid, I always enjoyed visiting the zoo.   
+My family lived far away from the zoo, so we didn't go there very often.   
+But whenever we went to the zoo, I always had a fun and interesting time.   
+Some of the animals were very large.   
+Of course, the elephants were huge, and they had such an unusual appearance, with their big ears and their long trunk and tusks.   
+The giraffes were very tall, with long necks that reached high into the trees.   
+Some of my favorite animals were the big cats.   
+The lions looked very powerful, with their big teeth and paws.   
+The tigers were just as big and strong, with yellow and black stripes.   
+But the bears were even larger than these cats.   
+The polar bears, with their bright white fur, liked to swim through the water.   
+The grizzly bears had brown fur and liked to roam around on land.   
+The animals from Australia seemed very unusual.   
+The kangaroos, with their strong legs and long tail, could jump great distances across the ground.   
+The baby kangaroo could go inside its mother's pouch.   
+Another Australian animal, the koala bear, crawled slowly in the trees, where it ate leaves.   
+The monkeys and apes were also very interesting.   
+In many ways, they reminded me of people.   
+Some of the monkeys were very small.   
+They could use their arms, legs, and tail to swing through the trees.   
+Some of the apes were very large.   
+The gorilla was the largest of all.   
+Sometimes a big gorilla would stand up and pound his fists on his chest.   
+To see all the animals at the zoo took almost a whole day.   
+By the end of the day, I was very tired from walking around.   
+But I was also very happy to see all the amazing animals from places around the world.*
 
 ## 259 - The Dentist Appointment.
 
->*My dentist called my house the other day. 
-He told me I needed my teeth cleaned. 
-I set up an appointment to see him on Saturday, June l0th.
-When I got to my dentist's office, I had to sit in the waiting room. 
-There were other people ahead of me. 
-They finally called my name.
-I went into his room and sat down on a big blue chair. 
-They leaned it back. 
-A bright light was turned on. 
-It hurt my eyes, so I closed them. 
-My dentist asked me to open my mouth.
-I did. 
-I thought my mouth was very big, but he told me to open it even wider!
-Soon he began poking around to see if I had any cavities. 
-He flossed my teeth and put fluoride around my teeth too. 
-The fluoride tasted like bubble gum.
-I had to spit into a dish-like bowl. 
-It squirted out water. 
-My dentist kept asking me questions. 
-I couldn't answer because there were weird tools in my mouth! When I tried answering back, he seemed to understand though.
-His helper came into the room. 
-She asked me to open my mouth again. 
-I had to clamp down on something that felt like rubber. 
-She put a big camera-type machine right next to my cheek. 
-She did this on the other side of my face as well. 
-They took two pictures of my teeth. 
-It was really cool.
-The dentist told me my teeth were perfect! 
-I didn't have any problems. 
-I could go home.
+>*My dentist called my house the other day.   
+He told me I needed my teeth cleaned.   
+I set up an appointment to see him on Saturday, June l0th.   
+When I got to my dentist's office, I had to sit in the waiting room.   
+There were other people ahead of me.   
+They finally called my name.   
+I went into his room and sat down on a big blue chair.   
+They leaned it back.   
+A bright light was turned on.   
+It hurt my eyes, so I closed them.   
+My dentist asked me to open my mouth.   
+I did.   
+I thought my mouth was very big, but he told me to open it even wider!   
+Soon he began poking around to see if I had any cavities.   
+He flossed my teeth and put fluoride around my teeth too.   
+The fluoride tasted like bubble gum.   
+I had to spit into a dish-like bowl.   
+It squirted out water.   
+My dentist kept asking me questions.   
+I couldn't answer because there were weird tools in my mouth! When I tried answering back, he seemed to understand though.   
+His helper came into the room.   
+She asked me to open my mouth again.   
+I had to clamp down on something that felt like rubber.   
+She put a big camera-type machine right next to my cheek.   
+She did this on the other side of my face as well.   
+They took two pictures of my teeth.   
+It was really cool.   
+The dentist told me my teeth were perfect!   
+I didn't have any problems.   
+I could go home.   
 "See you next year," he said.*
 
 ## 260 - Day Dream.
 
->*Little Annie was very bored one lazy afternoon. 
-She had nothing to do! 
-She had already played with her brothers in the sandbox and had tea with them and her dollies, too. 
-She had baked chocolate chip cookies with her mom and even tasted one! 
-They were very good, she thought. 
-Now Annie was trying to figure out what else she could do to pass the day away.
+>*Little Annie was very bored one lazy afternoon.   
+She had nothing to do!   
+She had already played with her brothers in the sandbox and had tea with them and her dollies, too.   
+She had baked chocolate chip cookies with her mom and even tasted one!   
+They were very good, she thought.   
+Now Annie was trying to figure out what else she could do to pass the day away.   
 Little Annie decided that she would go to her favourite spot in the world... the green,
-grassy field full of daisies, beneath the great oak tree. 
-She took a red and white blanket with her. 
-She laid it down on the ground, and then she lay down on it. 
-She lay there looking at the clouds, fluffy and white. 
-She saw bunnies, huge gray elephants and scary-looking crocodiles. 
-Soon, Little Annie was drifting in and out of clouds and reality. 
-The clouds started dancing with her, begging her to come and play. 
-She got up from her blanket and joined the clouds. 
-They flew over roof tops of all of the village people, swam with the fish in the lake and said hello to all of the birds that they passed by. 
-Little Annie was having so much fun!
-The clouds had formed into a chariot so Little Annie could drive if she wanted to. 
-She drove over a rainbow that was bright in the sky. 
-Then, she shot through the branches of her friend's spruce tree!
-Annie suddenly came to a STOP! 
-Hearing someone call her name, Annie looked around.
-She blinked; once, twice, and finally everything came into focus. 
-Her brother was tugging at her leg, wondering why she was staring into outer space with a big grin on her face!
+grassy field full of daisies, beneath the great oak tree.   
+She took a red and white blanket with her.   
+She laid it down on the ground, and then she lay down on it.   
+She lay there looking at the clouds, fluffy and white.   
+She saw bunnies, huge gray elephants and scary-looking crocodiles.   
+Soon, Little Annie was drifting in and out of clouds and reality.   
+The clouds started dancing with her, begging her to come and play.   
+She got up from her blanket and joined the clouds.   
+They flew over roof tops of all of the village people, swam with the fish in the lake and said hello to all of the birds that they passed by.   
+Little Annie was having so much fun!   
+The clouds had formed into a chariot so Little Annie could drive if she wanted to.   
+She drove over a rainbow that was bright in the sky.   
+Then, she shot through the branches of her friend's spruce tree!   
+Annie suddenly came to a STOP!   
+Hearing someone call her name, Annie looked around.   
+She blinked; once, twice, and finally everything came into focus.   
+Her brother was tugging at her leg, wondering why she was staring into outer space with a big grin on her face!   
 "Oh," Little Annie said, not really knowing that she had been sitting there all along.*
