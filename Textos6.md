@@ -283,259 +283,259 @@ Look for the beauty in everything.*
 
 ## 240 - My Doll.
 
->*When I was an infant, I got a rag doll.  
-It was a very plain, little doll, and it wore a clown outfit and a clown's hat.  
-I used to take that doll to bed with me every night.  
-I couldn't go to bed without my doll.  
-My mother used to pretend that the doll was talking to me.  
-She would make the doll dance and sing songs.  
-I would talk to the doll.  
-My mother would answer for the doll, but I was a baby, and I thought that the doll was actually talking to me.  
-That doll was my best friend.  
-I took her everywhere.  
-One time I took her to a store with me, and I left her on a shelf in the store.  
-We were halfway home when I realized that I didn't have my doll with me.  
-I was very upset.  
-My mother and I rushed back to the store.  
-My doll was still there.  
-I was so relieved.  
-I hugged my doll, and I promised myself that I would never leave her anywhere again.  
-I couldn't imagine life without that doll.  
-Through the years, the doll became less important in my life.  
-I had other things to do, but the doll still sat on my bed during the day, and I still took it to bed at night.  
-I gave that doll a lot of love when I was little.  
-In fact, I loved the doll so much that she looks tattered and torn now.  
-There are parts of her face and hands that are almost worn away.  
-I had a lot of other toys when I was little, but none of them were ever so important as that doll.  
-I don't play with toys anymore, but that doll is still in my room.  
-She sits in a special chair in the corner.
-I'll always have that doll.  
+>*When I was an infant, I got a rag doll.   
+It was a very plain, little doll, and it wore a clown outfit and a clown's hat.   
+I used to take that doll to bed with me every night.   
+I couldn't go to bed without my doll.   
+My mother used to pretend that the doll was talking to me.   
+She would make the doll dance and sing songs.   
+I would talk to the doll.   
+My mother would answer for the doll, but I was a baby, and I thought that the doll was actually talking to me.   
+That doll was my best friend.   
+I took her everywhere.   
+One time I took her to a store with me, and I left her on a shelf in the store.   
+We were halfway home when I realized that I didn't have my doll with me.   
+I was very upset.   
+My mother and I rushed back to the store.   
+My doll was still there.   
+I was so relieved.   
+I hugged my doll, and I promised myself that I would never leave her anywhere again.   
+I couldn't imagine life without that doll.   
+Through the years, the doll became less important in my life.   
+I had other things to do, but the doll still sat on my bed during the day, and I still took it to bed at night.   
+I gave that doll a lot of love when I was little.   
+In fact, I loved the doll so much that she looks tattered and torn now.   
+There are parts of her face and hands that are almost worn away.   
+I had a lot of other toys when I was little, but none of them were ever so important as that doll.   
+I don't play with toys anymore, but that doll is still in my room.   
+She sits in a special chair in the corner.   
+I'll always have that doll.   
 No matter how worn out she is, I'll always keep her and cherish her as a part of my early childhood.*
 
 ## 241 - I am Curious.
 
->*I am curious about many things.  
-I would like to find the answers to a lot of questions that I have.  
-What holds the stars up in the sky?  
-Why does ice form on the top of the lake when it is cold? 
-Is there life on other planets?  
-Why do we not fall off the face of the earth? 
-How do caterpillars turn into butterflies? 
-All of these things are mysteries to me.  
-There are so many questions that are unanswered.  
-I think I should go to the library and get a book to find out why people grow old.  
-What makes a television work? 
-I also want to know where electricity comes from.  
-Who is the strongest person in the world? 
-Who is the smartest person in the world? 
-Why do some people have blonde hair, and some people have black hair? 
-Why do people in different countries speak different languages? 
-Why do people have to die? 
-Why are no two snowflakes alike? 
-What makes people fall in love? 
-What makes the rivers run? 
-Why does the sun rise every morning? 
-How did the oceans form? 
-Why did the dinosaurs vanish from the earth? 
-I wonder if I'll ever find out the answers to all my questions.  
-I think I'll have to study hard and stay in school to find out everything that I want to know.  
-Some questions never get answered.  
-It is good to be curious.  
+>*I am curious about many things.   
+I would like to find the answers to a lot of questions that I have.   
+What holds the stars up in the sky?   
+Why does ice form on the top of the lake when it is cold?   
+Is there life on other planets?   
+Why do we not fall off the face of the earth?   
+How do caterpillars turn into butterflies?   
+All of these things are mysteries to me.   
+There are so many questions that are unanswered.   
+I think I should go to the library and get a book to find out why people grow old.   
+What makes a television work?   
+I also want to know where electricity comes from.   
+Who is the strongest person in the world?   
+Who is the smartest person in the world?   
+Why do some people have blonde hair, and some people have black hair?   
+Why do people in different countries speak different languages?   
+Why do people have to die?   
+Why are no two snowflakes alike?    
+What makes people fall in love?   
+What makes the rivers run?   
+Why does the sun rise every morning?   
+How did the oceans form?   
+Why did the dinosaurs vanish from the earth?   
+I wonder if I'll ever find out the answers to all my questions.   
+I think I'll have to study hard and stay in school to find out everything that I want to know.   
+Some questions never get answered.   
+It is good to be curious.   
 People who are curious about things are the ones who learn a lot, and some curious people go on to invent things and make important discoveries.*
 
 ## 242 - Creative People.
 
->*Some people are just born to create.  
-That's what I think.  
-Some people just have the need to write stories, compose beautiful music, or paint pictures.  
-Creativity seems to be inside them, and they need to let it out.  
-It's good that we have people like that.  
-Composers like Mozart and Chopin have given us music that is incredibly beautiful.  
-It's not just the classical composers who have given us great pieces of music; there are modern composers who have written great songs also.  
-Elton John is an example of someone who has composed many wonderful songs.  
-Andrew Lloyd Webber has given us some very popular musicals like Cats and The Phantom of the Opera.  
-There are so many talented and creative people in this world.  
-When you visit an art gallery, you marvel at how artists are able to recreate realism or make up something that seems totally unreal yet beautiful.  
-The American artist Norman Rockwell painted some pictures that actually looked like photographs.  
-He tried to portray life as it was in America.  
-Through his paintings, one can get a good sense of American life through the years.  
-On the other hand, artists like Jackson Pollock did not portray realism.  
-Jackson Pollock painted abstract pictures.  
-His paintings are just as good as Norman Rockwell's, but they are entirely different.  
-Some books that we read are classics.  
-Mark Twain portrayed American life through his characters Tom Sawyer and Huckleberry Finn.  
-Charles Dickens brought Victorian England to life through his books.  
-Most people are familiar with his Christmas Carol where the mean and miserable Scrooge learns the true meaning of Christmas.  
-People don't have to read the classics.  
-There are modern writers who entertain readers through their stories.  
-Stephen King has written a number of horror stories.  
-Some of his books have even been made into movies.  
-We are lucky to have creative people who share their gifts with us.  
+>*Some people are just born to create.   
+That's what I think.   
+Some people just have the need to write stories, compose beautiful music, or paint pictures.   
+Creativity seems to be inside them, and they need to let it out.   
+It's good that we have people like that.   
+Composers like Mozart and Chopin have given us music that is incredibly beautiful.   
+It's not just the classical composers who have given us great pieces of music; there are modern composers who have written great songs also.   
+Elton John is an example of someone who has composed many wonderful songs.   
+Andrew Lloyd Webber has given us some very popular musicals like Cats and The Phantom of the Opera.   
+There are so many talented and creative people in this world.   
+When you visit an art gallery, you marvel at how artists are able to recreate realism or make up something that seems totally unreal yet beautiful.   
+The American artist Norman Rockwell painted some pictures that actually looked like photographs.   
+He tried to portray life as it was in America.   
+Through his paintings, one can get a good sense of American life through the years.   
+On the other hand, artists like Jackson Pollock did not portray realism.   
+Jackson Pollock painted abstract pictures.   
+His paintings are just as good as Norman Rockwell's, but they are entirely different.   
+Some books that we read are classics.   
+Mark Twain portrayed American life through his characters Tom Sawyer and Huckleberry Finn.   
+Charles Dickens brought Victorian England to life through his books.   
+Most people are familiar with his Christmas Carol where the mean and miserable Scrooge learns the true meaning of Christmas.   
+People don't have to read the classics.   
+There are modern writers who entertain readers through their stories.   
+Stephen King has written a number of horror stories.   
+Some of his books have even been made into movies.   
+We are lucky to have creative people who share their gifts with us.   
 If you are lucky enough to be creative, you should use your talents to create works of art that we all can share.*
 
 ## 243 - Career Choices.
 
->*What do you want to be when you grow up? There are so many things that you can be.  
-You might want to work in the field of law.  
-You could be a police officer.
-You could be a judge or a lawyer.  
-Maybe you'd like to work in the food industry.  
-You could be a cook or a waitress.  
-You might want to manage a hotel dining room.  
-Perhaps you would want to do room service in a hotel.  
-You could be a chef and make fancy meals for people.  
-Maybe show business is what you'd like to be involved in.  
-You could act in television shows or movies.  
-You could sing or play an instrument in a band.  
-If you like to help people, you could go into medicine.  
-You could be a doctor or a nurse.  
-You might be a surgeon and operate on people.  
-There are other jobs in the field of medicine too.
-You could be an x-ray technician or a lab technician.  
-It takes a lot of education to be a doctor.  
-Maybe you would rather be a teacher.  
-You could teach in a primary school or a high school.  
-If you don't want to work with children, you could become a professor at a university.  
-There are hundreds of other jobs to choose from too.
-You might want to fix cars or work in a store.  
-You could be a dentist or a veterinarian.  
-You could be a janitor or a zookeeper.  
-There are so many jobs that I just can't name them all.  
-Maybe you'd like to be a minister or an organist at a church. 
-You could be a babysitter or a shop clerk.
-You might be interested in being an astronaut or a baker.  
-You could work in a bank or at a shop.  
-You could work on a construction crew and build roads and houses.  
-Maybe you'd rather decorate the houses, so you'd become an interior decorator.  
-You could cut hair or be a driving instructor.  
-The list is endless.  
-There are even jobs that you may never have heard about.  
-The choice is yours.  
-You just choose whatever you want to be and do your best to become that.  
-I could go on forever.  
-you could work in a library.  
-You could be a factory worker or a fisherman.  
-You could make clothes or build bridges.  
-You could wash windows or be a bricklayer.  
+>*What do you want to be when you grow up? There are so many things that you can be.   
+You might want to work in the field of law.   
+You could be a police officer.   
+You could be a judge or a lawyer.   
+Maybe you'd like to work in the food industry.   
+You could be a cook or a waitress.   
+You might want to manage a hotel dining room.   
+Perhaps you would want to do room service in a hotel.   
+You could be a chef and make fancy meals for people.   
+Maybe show business is what you'd like to be involved in.   
+You could act in television shows or movies.   
+You could sing or play an instrument in a band.   
+If you like to help people, you could go into medicine.   
+You could be a doctor or a nurse.   
+You might be a surgeon and operate on people.   
+There are other jobs in the field of medicine too.   
+You could be an x-ray technician or a lab technician.     
+It takes a lot of education to be a doctor.   
+Maybe you would rather be a teacher.   
+You could teach in a primary school or a high school.   
+If you don't want to work with children, you could become a professor at a university.   
+There are hundreds of other jobs to choose from too.   
+You might want to fix cars or work in a store.   
+You could be a dentist or a veterinarian.   
+You could be a janitor or a zookeeper.   
+There are so many jobs that I just can't name them all.   
+Maybe you'd like to be a minister or an organist at a church.   
+You could be a babysitter or a shop clerk.   
+You might be interested in being an astronaut or a baker.   
+You could work in a bank or at a shop.   
+You could work on a construction crew and build roads and houses.   
+Maybe you'd rather decorate the houses, so you'd become an interior decorator.   
+You could cut hair or be a driving instructor.   
+The list is endless.   
+There are even jobs that you may never have heard about.   
+The choice is yours.   
+You just choose whatever you want to be and do your best to become that.   
+I could go on forever.   
+you could work in a library.   
+You could be a factory worker or a fisherman.   
+You could make clothes or build bridges.   
+You could wash windows or be a bricklayer.   
 The possibilities are endless.*
 
 ## 244 - I Need Glasses.
 
 >*I have been having trouble seeing the blackboard.  
-Everything is blurry.  
-I keep getting headaches.  
-I told my mother about it, and she made an appointment with the optometrist.  
-I went to a place where they made me read words and letters on a chart.
-Some of the words were big, and some were very small.
-I tried to read everything, but sometimes I couldn't see some of the small letters.  
-The optometrist would cover one of my eyes while I read the chart.  
-Then, she would cover my other eye.  
-She even put some drops in my eyes.
-I asked the optometrist if I had passed or failed the test.  
-She laughed, and said that it wasn't the kind of test that you passed or failed.  
-She was just trying to find out if I needed glasses.  
-I did need glasses.  
-My mother and I looked around.  
-There were many pairs of frames.  
-I wanted something that was in style.  
-I tried on many pairs of frames.
-Some of them looked good on me, and some of them looked really funny on me.  
-I finally chose a frame that was my favorite.  
-I gave them to a lady who did some measurements.  
-She told me to come back on Friday to get my glasses.
-On Friday, I got my glasses.  
-My friends liked them.  
-They said I looked smart in my glasses.  
-I wore them to school on Monday, and I was able to see the blackboard clearly.  
-I didn't realize how much I hadn't been able to see.  
-Now I don't get headaches anymore.  
-I'm glad that I have my glasses.  
+Everything is blurry.   
+I keep getting headaches.   
+I told my mother about it, and she made an appointment with the optometrist.   
+I went to a place where they made me read words and letters on a chart.   
+Some of the words were big, and some were very small.   
+I tried to read everything, but sometimes I couldn't see some of the small letters.   
+The optometrist would cover one of my eyes while I read the chart.   
+Then, she would cover my other eye.   
+She even put some drops in my eyes.   
+I asked the optometrist if I had passed or failed the test.   
+She laughed, and said that it wasn't the kind of test that you passed or failed.   
+She was just trying to find out if I needed glasses.   
+I did need glasses.   
+My mother and I looked around.   
+There were many pairs of frames.   
+I wanted something that was in style.   
+I tried on many pairs of frames.   
+Some of them looked good on me, and some of them looked really funny on me.   
+I finally chose a frame that was my favorite.   
+I gave them to a lady who did some measurements.   
+She told me to come back on Friday to get my glasses.   
+On Friday, I got my glasses.   
+My friends liked them.   
+They said I looked smart in my glasses.   
+I wore them to school on Monday, and I was able to see the blackboard clearly.   
+I didn't realize how much I hadn't been able to see.   
+Now I don't get headaches anymore.   
+I'm glad that I have my glasses.   
 Everything is a lot clearer now.*
 
 ## 245 - I am Clumsy.
 
->*My mother says that I am clumsy.  
-My father says that I am clumsy.  
-I know that I am clumsy.  
-I do things all the time that are clumsy.  
-I fall down for no reason at all.
-If there is a crack in the sidewalk, I will be sure to trip on it and fall down.  
-If I carry a plate of food in the cafeteria, I almost always either drop it or bump into someone with it.  
-I don't try to do these things, it just happens.  
-When I drink juice, I miss my mouth and get juice all over my shirt.  
-I always have something spilled on my clothes.  
-Last week I opened a jar of peanut butter.  
-The jar flew out of my hands and landed upside down on the floor.  
-There was a big glob of peanut butter on the floor.  
-Yesterday I knocked over the sugar bowl.  
-There was a big sticky mess on the floor.  
-I bump my head when I get into the car.  
-I rip my pants on things.  
-I lose my money out of my pockets.  
-I step on the cat's tail.  
-I always feel bad when I do that because the cat thinks I don't love her.  
-I don't mean to do these things.  
-I am just a clumsy person.  
-My parents tell me to slow down.  
-I am always in a hurry;
-maybe that's why I'm so clumsy.  
-Maybe it's just a stage that I am going through.  
-If it is, I hope it is over soon.  
+>*My mother says that I am clumsy.   
+My father says that I am clumsy.   
+I know that I am clumsy.   
+I do things all the time that are clumsy.   
+I fall down for no reason at all.   
+If there is a crack in the sidewalk, I will be sure to trip on it and fall down.   
+If I carry a plate of food in the cafeteria, I almost always either drop it or bump into someone with it.   
+I don't try to do these things, it just happens.   
+When I drink juice, I miss my mouth and get juice all over my shirt.   
+I always have something spilled on my clothes.   
+Last week I opened a jar of peanut butter.   
+The jar flew out of my hands and landed upside down on the floor.   
+There was a big glob of peanut butter on the floor.   
+Yesterday I knocked over the sugar bowl.   
+There was a big sticky mess on the floor.   
+I bump my head when I get into the car.   
+I rip my pants on things.   
+I lose my money out of my pockets.   
+I step on the cat's tail.   
+I always feel bad when I do that because the cat thinks I don't love her.   
+I don't mean to do these things.   
+I am just a clumsy person.   
+My parents tell me to slow down.   
+I am always in a hurry; maybe that's why I'm so clumsy.   
+Maybe it's just a stage that I am going through.   
+If it is, I hope it is over soon.   
 Being clumsy is no fun at all.*
 
 ## 246 - Home Alone.
 
->*I remember the first time that my parents left me home alone.  
-I was very grown up, and I thought that I would be just fine.  
-I was fine for a while.  
-I watched television and had something to eat.
-I called my friend on the phone, and we talked for a while.  
-Then, I sat down to read a book.  
-The house was quiet, very quiet.  
-I found myself listening very carefully.
-I heard a tap, tap tapping noise.  
-I wondered where it was coming from.  
-It seemed to be coming from the window.  
-I turned out the lights so that nobody would see me, and I peeked out the window carefully.  
-I was expecting to see a robber tapping at my window.  
-There was nobody there.  
-It was just a tree branch swaying in the breeze and tapping at my window.  
-I felt silly.  
-I turned on the lights and sat back down to read my book.  
-A few minutes later, I heard some creaking noises.  
-I listened carefully.  
-Then, I heard a clunking noise.  
-I think it might have been the furnace.  
-Then there was a whirring noise.  
-My imagination began to play tricks on me.  
-I was imagining that there were all kinds of creatures in the house.  
-I told myself to grow up.  
-I wouldn't let my imagination run away with me.  
-I was glad when my parents got home.  
-I told them about all the noises that I had heard.  
-My parents laughed and said that all houses make noises.  
-We're usually just so busy that we don't hear all the noises that go on.  
-I have stayed home alone many times now.  
-I just ignore all the little creaks and noises that I hear.  
-I am still alert and listen for anything suspicious, but I know that there are lots of noises that are harmless.  
+>*I remember the first time that my parents left me home alone.   
+I was very grown up, and I thought that I would be just fine.   
+I was fine for a while.   
+I watched television and had something to eat.   
+I called my friend on the phone, and we talked for a while.   
+Then, I sat down to read a book.   
+The house was quiet, very quiet.   
+I found myself listening very carefully.   
+I heard a tap, tap tapping noise.   
+I wondered where it was coming from.   
+It seemed to be coming from the window.   
+I turned out the lights so that nobody would see me, and I peeked out the window carefully.   
+I was expecting to see a robber tapping at my window.   
+There was nobody there.   
+It was just a tree branch swaying in the breeze and tapping at my window.   
+I felt silly.   
+I turned on the lights and sat back down to read my book.   
+A few minutes later, I heard some creaking noises.   
+I listened carefully.   
+Then, I heard a clunking noise.   
+I think it might have been the furnace.   
+Then there was a whirring noise.   
+My imagination began to play tricks on me.   
+I was imagining that there were all kinds of creatures in the house.   
+I told myself to grow up.   
+I wouldn't let my imagination run away with me.   
+I was glad when my parents got home.   
+I told them about all the noises that I had heard.   
+My parents laughed and said that all houses make noises.   
+We're usually just so busy that we don't hear all the noises that go on.   
+I have stayed home alone many times now.   
+I just ignore all the little creaks and noises that I hear.   
+I am still alert and listen for anything suspicious, but I know that there are lots of noises that are harmless.   
 That tree that taps on my window still frightens me sometimes, but I'm a lot braver now than I was the first time that I stayed home alone.*
 
 ## 247 - Family.
 
->*What does the word "family" mean to you? The easiest way to define family is to talk about who you are related to.  
-Usually, there is a mom and a dad and children who are brothers and sisters.  
-This would be the "core" family.  
-Then there is the "extended" family which would include grandparents, aunts and uncles, cousins, nieces and nephews and in-laws (people married to your brothers or sisters, husband or wife).
-However, I think the word "family" has a much deeper meaning.  
-The word "family" brings words to my mind like: love, support, help, kindness, fun, love, trips, closeness, love, forgiving, sharing, love, understanding, respect and love! You'll notice one word that is repeated over and over again.  
-LOVE. I believe if a family has real love for one another, they will be able to overcome any problems they may have.  
-Actually, they may not have too many problems if they all love and respect one another.
-However, there are things that cannot be helped; like death, sickness or accidents.  
-It is during those hard times that a family's love helps them to go through those experiences.  
-We had quite a few children in my family.  
-There were brothers and sisters which included an adopted brother and a number of foster children, too.  
-I was also very fortunate that I had both my mom and dad to live with and do things like vacations together.  
-We had a lot of fun and there were sometimes of tears, too.  
+>*What does the word "family" mean to you?   
+The easiest way to define family is to talk about who you are related to.   
+Usually, there is a mom and a dad and children who are brothers and sisters.   
+This would be the "core" family.   
+Then there is the "extended" family which would include grandparents, aunts and uncles, cousins, nieces and nephews and in-laws (people married to your brothers or sisters, husband or wife).   
+However, I think the word "family" has a much deeper meaning.   
+The word "family" brings words to my mind like: love, support, help, kindness, fun, love, trips, closeness, love, forgiving, sharing, love, understanding, respect and love! You'll notice one word that is repeated over and over again.   
+LOVE. I believe if a family has real love for one another, they will be able to overcome any problems they may have.   
+Actually, they may not have too many problems if they all love and respect one another.   
+However, there are things that cannot be helped; like death, sickness or accidents.   
+It is during those hard times that a family's love helps them to go through those experiences.   
+We had quite a few children in my family.   
+There were brothers and sisters which included an adopted brother and a number of foster children, too.   
+I was also very fortunate that I had both my mom and dad to live with and do things like vacations together.   
+We had a lot of fun and there were sometimes of tears, too.   
 Above all, we love one another! Family is a wonderful thing! I am so lucky!*
 
 ## 248 - My First Job.
