@@ -375,7 +375,8 @@ If you are lucky enough to be creative, you should use your talents to create wo
 
 ## 243 - Career Choices.
 
->*What do you want to be when you grow up? There are so many things that you can be.   
+>*What do you want to be when you grow up?   
+There are so many things that you can be.   
 You might want to work in the field of law.   
 You could be a police officer.   
 You could be a judge or a lawyer.   
@@ -527,8 +528,10 @@ Usually, there is a mom and a dad and children who are brothers and sisters.
 This would be the "core" family.   
 Then there is the "extended" family which would include grandparents, aunts and uncles, cousins, nieces and nephews and in-laws (people married to your brothers or sisters, husband or wife).   
 However, I think the word "family" has a much deeper meaning.   
-The word "family" brings words to my mind like: love, support, help, kindness, fun, love, trips, closeness, love, forgiving, sharing, love, understanding, respect and love! You'll notice one word that is repeated over and over again.   
-LOVE. I believe if a family has real love for one another, they will be able to overcome any problems they may have.   
+The word "family" brings words to my mind like: love, support, help, kindness, fun, love, trips, closeness, love, forgiving, sharing, love, understanding, respect and love!   
+You'll notice one word that is repeated over and over again.   
+LOVE.   
+I believe if a family has real love for one another, they will be able to overcome any problems they may have.   
 Actually, they may not have too many problems if they all love and respect one another.   
 However, there are things that cannot be helped; like death, sickness or accidents.   
 It is during those hard times that a family's love helps them to go through those experiences.   
@@ -536,7 +539,9 @@ We had quite a few children in my family.
 There were brothers and sisters which included an adopted brother and a number of foster children, too.   
 I was also very fortunate that I had both my mom and dad to live with and do things like vacations together.   
 We had a lot of fun and there were sometimes of tears, too.   
-Above all, we love one another! Family is a wonderful thing! I am so lucky!*
+Above all, we love one another!   
+Family is a wonderful thing!   
+I am so lucky!*
 
 ## 248 - My First Job.
 
@@ -552,7 +557,8 @@ One of the men had had brain surgery for cancer.
 He had a big, long scar all around the top of his head.   
 He told me all about it.   
 He was always happy and full of fun.   
-I thought he was very brave! The tailor shop made suits to order.   
+I thought he was very brave!   
+The tailor shop made suits to order.   
 One of the salesmen would measure the man, and the customer would choose a fabric and style he (or his wife!) liked.   
 The people in the back of the shop would then cut and sew the suit.   
 The suits cost a lot of money.   
@@ -660,8 +666,7 @@ I would love to take my family wherever they wanted to go.
 I would buy them wonderful presents, too.   
 However, I know that money does not buy happiness.   
 It does not buy you friends or family.   
-It may bring some happiness only for the moment, but in the long run your family
-is what will be there for you if you love them and are there for them.   
+It may bring some happiness only for the moment, but in the long run your family is what will be there for you if you love them and are there for them.   
 If I had to pick between a million dollars and my family, I would pick my family.   
 The million dollars is a nice dream.   
 If that dream ever comes true and I do get a lot of money, I hope I would use it wisely.*
@@ -670,7 +675,8 @@ If that dream ever comes true and I do get a lot of money, I hope I would use it
 
 >*What a great day for a picnic!   
 We're not only having a picnic; we're having a big bike ride, too.   
-We did this last year with a lot of friends also. It was really fun.   
+We did this last year with a lot of friends also.   
+It was really fun.   
 We meet quite early in the morning in a pretty little town.   
 The town is where the Niagara River flows into Lake Ontario in Canada.   
 The town's name is Niagara-on-the-Lake.   
@@ -678,8 +684,7 @@ Then all of the people, fifty or more, get on their bikes or roller blades.
 We go on a bike path beside the river.   
 The path we take is about 11 km or 6 miles long.   
 There are a lot of other people using the path, too.   
-We usually stop for an ice cream treat near the end or where we turn around to go back
-to our cars.   
+We usually stop for an ice cream treat near the end or where we turn around to go back to our cars.   
 It is just before the park where we will have our picnic, and a steep hill.   
 Many of the men and boys go up the hill.   
 Most of the women and children go back to their cars.   
@@ -688,8 +693,7 @@ After the ride is finished, we go the park.
 We have a delicious "pot-luck" lunch.   
 Pot luck means everyone brings some food to share with the others.   
 We eat, rest, talk and laugh.   
-After we've cleaned up, some of us climb the tower that is there remembering a war at
-that place and its general.   
+After we've cleaned up, some of us climb the tower that is there remembering a war at that place and its general.   
 It is a steep climb, over l00 steps.   
 We usually end the day with a fun game of baseball or soccer.   
 Finally, we pack up our stuff.   
@@ -699,25 +703,22 @@ Tired and dirty, we head for home with good memories swimming in our heads.*
 
 >*I live in a house that has a small yard around it.   
 In my yard there is a lawn and a garden.   
-There is also a sidewalk that leads to my front door, and a driveway that leads to my
-garage.   
+There is also a sidewalk that leads to my front door, and a driveway that leads to my garage.   
 Throughout the year I work to maintain my yard.   
 During the summer, I cut the grass that grows in my yard, using a lawn-mower.   
 I like the smell of the grass when it has just been cut.   
 But it's better not to cut the grass too short.   
-When the weather is dry, I also put water on the lawn and garden, so that the grass and
-flowers can grow.   
+When the weather is dry, I also put water on the lawn and garden, so that the grass and flowers can grow.   
 During the autumn, many leaves fall from the trees in my yard.   
 I use a rake to collect the leaves from the lawn.   
 Then I can put the leaves into bags.   
 I can use the leaves to make fertilizer.   
 When I was a kid, I didn't like the job of raking leaves, but now I don't mind it.   
-Another job during the autumn is to remove flowers from the garden before the cold
-weather arrives.   
-During the winter, there is no work to do in the lawn or garden, because they are covered
-in snow.   
+Another job during the autumn is to remove flowers from the garden before the cold weather arrives.   
+During the winter, there is no work to do in the lawn or garden, because they are covered in snow.   
 But I need to keep the snow off my sidewalk and driveway.   
-Whenever it snows, I use a shovel to clear the snow from the sidewalk and the driveway.    Sometimes it snows a lot.   
+Whenever it snows, I use a shovel to clear the snow from the sidewalk and the driveway.   
+Sometimes it snows a lot.   
 If I didn't shovel the snow, it would soon be impossible to get into my house!   
 During the spring, the snow melts.   
 I clean up my yard by sweeping away dirt and by removing weeds from the lawn and garden.   
@@ -729,14 +730,16 @@ It's so nice when the lawn and garden are looking green and healthy.*
 
 ## 255 - Early Morning.
 
->*"Yawn!" I am so tired.   
+>*"Yawn!"   
+I am so tired.   
 I don't like getting up in the morning.   
 I wish I could sleep in until noon.   
 My mom has to come into my room and shake my feet.   
 "Get up, you lazy girl!" she says, "It's time to rise and shine. It's a beautiful day!"   
 I raise my head, mumble and turn over, putting my pillow over my head.   
 My mom yanks my pillow from off my head and starts tickling me.   
-"Okay, I'll get up!" I shriek.   
+"Okay, I'll get up!"   
+I shriek.   
 The sun is so bright that I squint.   
 I think I will go outside and play.   
 I can't wait to get up now.   
@@ -897,8 +900,7 @@ She had already played with her brothers in the sandbox and had tea with them an
 She had baked chocolate chip cookies with her mom and even tasted one!   
 They were very good, she thought.   
 Now Annie was trying to figure out what else she could do to pass the day away.   
-Little Annie decided that she would go to her favourite spot in the world... the green,
-grassy field full of daisies, beneath the great oak tree.   
+Little Annie decided that she would go to her favourite spot in the world... the green, grassy field full of daisies, beneath the great oak tree.   
 She took a red and white blanket with her.   
 She laid it down on the ground, and then she lay down on it.   
 She lay there looking at the clouds, fluffy and white.   
