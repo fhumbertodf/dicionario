@@ -38,14 +38,11 @@ I look inside the bowl and watch him.
 His mouth always moves.   
 He looks like he is talking.   
 I imagine what my goldfish would say if he really could talk.   
-I think he would say: "Hey, I'm bored in this little bowl.   
-Why don't you get me a bigger tank with more fish in it?   
-I would like to have some friends to swim around with."   
+I think he would say: "Hey, I'm bored in this little bowl. Why don't you get me a bigger tank with more fish in it? I would like to have some friends to swim around with."   
 I went out and bought a bigger tank for my goldfish.   
 I put some plants at the bottom of the tank, and I got a miniature deep-sea diver to put at the bottom of the tank.   
 I looked into the tank and imagined what my goldfish was saying.   
-He seemed to be saying: "This is a nice tank.   
-It's roomy in here, and you decorated it well, but I still don't have any friends to swim with."   
+He seemed to be saying: "This is a nice tank. It's roomy in here, and you decorated it well, but I still don't have any friends to swim with."   
 I went to the pet store and bought three more goldfish.   
 I put them into the tank.   
 All of the goldfish seemed to look at each other.   
@@ -62,66 +59,62 @@ I don't think goldfish can smile either, but it looks like my goldfish has a smi
 
 ## 233 - The Best Teacher.
 
->*I have had a lot of teachers.  
-Some of them were good, and some of them were boring.  
-There is one teacher whom I remember very well.
-He is the best teacher that I ever had.  
-His name was Mr.  
-Alban.  
-He was a history teacher.  
-History is not my favorite subject.
-I don't really enjoy history a lot.  
-When I was in Mr. Alban's class, he made history seem exciting.  
-He was more of an actor than a teacher.  
-If he was describing a war, he would make us feel all the emotions that the soldiers and their families would have felt.  
-We could almost hear the guns firing and the people shouting.  
-He would paint a picture in our minds that was very vivid.  
-When I had a history test in his class, I didn't have to study much.  
-I would remember every word that he had said.  
-I would see him doing the actions that went along with his stories.  
-He was very animated.  
-He would shout out orders as if he was a general, or he would speak softly and reverently when describing the death of a great hero.  
-The most important thing that I learned from Mr.  
-Alban was that I did really like history.  
-I just thought that I didn't like it because most people had made it dull by just reading from the textbooks.  
-History is not just a series of dates and dull facts.  
-History is what really happened.  
-History is real life.  
-All the historical figures had real families and emotions.  
-They weren't just fictional people.  
-After I took history from Mr.  
-Alban, I realized that I really did have an interest in it.  
-He was my favorite teacher, and I will always be grateful to him for making me aware of just how interesting history
-really is.*
+>*I have had a lot of teachers.   
+Some of them were good, and some of them were boring.   
+There is one teacher whom I remember very well.   
+He is the best teacher that I ever had.   
+His name was Mr. Alban.   
+He was a history teacher.   
+History is not my favorite subject.   
+I don't really enjoy history a lot.   
+When I was in Mr. Alban's class, he made history seem exciting.   
+He was more of an actor than a teacher.   
+If he was describing a war, he would make us feel all the emotions that the soldiers and their families would have felt.   
+We could almost hear the guns firing and the people shouting.   
+He would paint a picture in our minds that was very vivid.   
+When I had a history test in his class, I didn't have to study much.   
+I would remember every word that he had said.   
+I would see him doing the actions that went along with his stories.   
+He was very animated.   
+He would shout out orders as if he was a general, or he would speak softly and reverently when describing the death of a great hero.   
+The most important thing that I learned from Mr. Alban was that I did really like history.   
+I just thought that I didn't like it because most people had made it dull by just reading from the textbooks.   
+History is not just a series of dates and dull facts.   
+History is what really happened.   
+History is real life.   
+All the historical figures had real families and emotions.   
+They weren't just fictional people.   
+After I took history from Mr. Alban, I realized that I really did have an interest in it.     
+He was my favorite teacher, and I will always be grateful to him for making me aware of just how interesting history really is.*
 
 ## 234 - Weather.
 
->*Sometimes, I watch the weatherman on television.  
-It is fascinating to watch him point to different areas of the country on the map.  
-He tells us where the weather will be nice and where it will be bad.  
-The weatherman is not always right.  
-Weather reporting is not an exact science.  
-Nothing is very exact when it comes to the weather.  
-The weather department does a lot of research, but they can never be sure of exactly what will happen.  
-Sometimes, it looks like it will be clear, but the wind changes direction and clouds move in.  
-The weatherman can warn people if there is a chance of a hurricane or tornado.  
-The weatherman can also warn people of floods.  
-Sometimes, entire towns have to be evacuated because of bad weather.  
-It is important to be aware of the weather.  
-For example, it is not good to be caught in the middle of a field when there is going to be a thunderstorm.
-You might want to take extra precautions if there is going to be a heavy snowstorm.
-You would need to be in a secure place if a hurricane or tornado was predicted.  
-You might want to cancel a picnic if you knew that it would rain that day.  
-The weather affects us in so many ways.
-Some people are really affected by dull, cloudy days.  
-If there are no sunny days, they become very depressed.  
-Heavy air pressure can cause some people to have headaches.  
-Weather affects all of us in one way or another.  
-It is always a topic of conversation.  
-People often say things like "hello, it's a beautiful day today." 
-Often we plan our lives and activities around the weather.  
-So, if you are planning on walking home tonight, keep an eye on the sky.  
-Are those rain clouds up there? 
+>*Sometimes, I watch the weatherman on television.   
+It is fascinating to watch him point to different areas of the country on the map.   
+He tells us where the weather will be nice and where it will be bad.   
+The weatherman is not always right.   
+Weather reporting is not an exact science.   
+Nothing is very exact when it comes to the weather.   
+The weather department does a lot of research, but they can never be sure of exactly what will happen.   
+Sometimes, it looks like it will be clear, but the wind changes direction and clouds move in.   
+The weatherman can warn people if there is a chance of a hurricane or tornado.   
+The weatherman can also warn people of floods.   
+Sometimes, entire towns have to be evacuated because of bad weather.   
+It is important to be aware of the weather.   
+For example, it is not good to be caught in the middle of a field when there is going to be a thunderstorm.   
+You might want to take extra precautions if there is going to be a heavy snowstorm.   
+You would need to be in a secure place if a hurricane or tornado was predicted.   
+You might want to cancel a picnic if you knew that it would rain that day.   
+The weather affects us in so many ways.   
+Some people are really affected by dull, cloudy days.   
+If there are no sunny days, they become very depressed.   
+Heavy air pressure can cause some people to have headaches.     
+Weather affects all of us in one way or another.   
+It is always a topic of conversation.   
+People often say things like "hello, it's a beautiful day today."   
+Often we plan our lives and activities around the weather.   
+So, if you are planning on walking home tonight, keep an eye on the sky.   
+Are those rain clouds up there?   
 You might need an umbrella.*
 
 ## 235 - How to Avoid Catching a Cold.
