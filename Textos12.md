@@ -1,3 +1,240 @@
+------------------------------------------------------------------------------------------------------------------------
+Article #9
+Niagara-On-The-Lake
+Niagara-on-the-Lake is a little town at the mouth of the Niagara River. It is only twelve
+miles north of Niagara Falls. It used to be true that very few tourists would bother to
+travel from the Falls down to Niagara-on-the-Lake. Nowadays, however, the little town
+itself is a major tourist attraction.
+The town has a remarkable history. The area played an important role in both the
+American Revolutionary War and the War of 1812. As a result, the little town has two forts,
+Fort George and Fort Mississauga. When Fort George was reconstructed for the public in
+the 1930s, Niagara-on-the-Lake got its first big tourist attraction.
+Because Niagara-on-the-Lake was the first capital of Ontario, it has many significant
+"firsts." There was the first parliament in the province, the first legal society, the first
+library, the first newspaper, the first museum building, and many more "firsts."
+Besides its history, the town, which is bordered by Lake Ontario and the Niagara River,
+has beautiful scenery. On a summer's day, visitors can watch the sailboats going out the
+river to the lake. On the landside, Niagara is part of the fruit belt of Ontario. Peaches,
+pears, apples, cherries and strawberries grow here in abundance. There are also long
+rows of vines, and winemaking has recently become a major industry.
+The mild humid climate allows plants to flourish. The trees, especially the oaks, grow to
+remarkable heights. Flowering trees and shrubs perfume the air in the spring. Gardens
+are often spectacular for much of the year. Because of this, Niagara-on-the-Lake attracts
+many painters and photographers. Many of the private homes also have a long history,
+and great care is taken to keep them looking their best.
+The biggest single attraction is the Shaw Festival Theatre. The Festival was founded in
+1962 by a group of Shaw enthusiasts. Early productions were often held in the historic
+Court House on the main street, and plays still take place there. In 1973, however, a new
+861 seat Shaw Theatre was built at the south end of town. Since then, traffic to Niagara-
+on-the-Lake has been steady all through the long summer season.
+In 1996, Niagara-on-the-Lake was voted "the prettiest town in Canada." Partly, it is the
+scale of things that makes the old town so attractive. The old town is only about eight
+blocks long by eight blocks wide. It has a population of little more than 1,000 people.
+Nonetheless, there is a lot for people to do and see. There are many interesting shops,
+
+11 | P a g ewww. irlanguage .com
+old hotels, bookstores, art galleries, museums, a golf course, a marina, historic churches
+and cemeteries, several parks, three theatres and lots of restaurants.
+Because it is small, Niagara-on-the-Lake is a good place to walk around or bicycle
+around. There are also horse and wagon rides. Although the main street can be hectic in
+tourist season, one doesn't have to go far off the main street to get in touch with an older
+slower time. Most of the downtown buildings haven't changed much since the days of
+Queen Victoria, and tourists can still imagine that they are back in the days before
+computers and television
+------------------------------------------------------------------------------------------------------------------------
+Article #10
+Newspapers
+All the great cities in the world now have newspapers. But newspapers, as we know them
+today, are not that old. The very first newspapers began long after the invention of
+printing. They started in Europe in the 1600s, and were usually only a couple of pages
+long. For a long time, newspapers were not very common. Governments didn't want
+public discussion of their policies and decisions. Often they closed down papers, or
+taxed them heavily. The "Stamp Tax" on newspapers and pamphlets was one of the
+causes of the American Revolution.
+Newspapers began to grow in size when they discovered advertising as a source of
+income. Nowadays, advertising is the main revenue source for most newspapers. As
+newspapers became more widely circulated, they could ask for more money for their
+advertisements. By the late eighteenth century, newspapers were in common use in
+Europe.
+The 1800s and early 1900s was the golden age of newspapers. Improvements in
+transportation, communication and printing processes made it easier to collect news
+from near and far and to publish papers more quickly and more cheaply. The Weekly
+Dispatch and the Times, both of London, England, were leading newspapers through
+much of the 1800s. The Times was one of the first papers to include illustrations. It was
+the first newspaper to use a steam engine to turn the presses. When the tax on
+newspapers was reduced in 1836, the Times was able to increase its size considerably. In
+1840, it began to use the telegraph to collect news stories. In 1855 the tax on newspapers
+was finally lifted.
+The Times made its greatest reputation during the Crimean War between Britain and
+Russia. British armies, fighting in Russia's Crimean Peninsula, were not only
+unsuccessful in the war, but were suffering severely from illnesses. The Times sent out
+the world's first war correspondent, William Howard Russell, in 1854. His reports from
+the battle lines had a powerful effect on the British public. A War Fund was organized to
+help the soldiers. Russell forced the government to accept the offer of Florence
+Nightingale to organize nurses to travel to Crimea. A photographer, Roger Fenton, sent
+back photos from the war, which were published in the Times.
+Meanwhile in America, a more popular approach to newspapers had developed. The
+newspaper had spread west with the pioneers, and nearly every little settlement had its
+own paper. American newspapers were cheaper and livelier than British ones. They were
+aimed at the average person, rather than the governing class. Examples of the new style
+of editing and publishing were Joseph Pulitzer and William Randolph Hearst. Hearst,
+especially, employed sensational and emotional writing, which aimed at stirring up the
+public to action. Hearst is sometimes accused of starting the Spanish-American War of
+
+12 | P a g ewww. irlanguage .com
+1898 with his over-heated editorials. Nonetheless, his methods were successful in
+raising circulation and were widely imitated.
+The modern newspaper contains more than hard news. In fact, news may be a fairly small
+part of it. Advertisements, gossip, show business, photos of celebrities, sports, stock
+market prices, horoscopes, comic strips, weather reports and much more are found in its
+pages. The modern newspaper is a total entertainment package. A question for the future
+is whether electronic newspapers will replace paper newspapers.
+------------------------------------------------------------------------------------------------------------------------
+Article #11
+Paul Kane, Frontier Artist
+Since Christopher Columbus first met American Indians in 1492, many Europeans had
+been fascinated by Indian life and culture. As a result, there was a demand in Europe for
+drawings and paintings of Native Americans. European artists who had never seen an
+Indian supplied most of this demand. But in the nineteenth century, several painters
+traveled into Indian Territory to make an authentic record of native life. One of the first
+artists to do this was the American painter George Catlin. In 1841, Catlin published a
+book of his work. Catlin's work helped inspire another important frontier artist, the
+Canadian Paul Kane.
+Paul Kane was born in Ireland in 1810. His family moved to Toronto, Ontario, Canada,
+when Paul was nine years old. The young boy was not very interested in school. At that
+time, there were still Indians living in wigwams in the Toronto area. Young Paul liked
+visiting the Indian village instead of going to school.
+Since Paul spent little time in school, he was largely a self-taught artist. He also became
+a surprisingly good writer, considering that he had not spent much time studying
+spelling or grammar. After working some years making and decorating furniture, Kane
+was ready to travel. He spent the years from 1836 to 1841 living and traveling in the
+United States. Then he traveled in Europe from 1841 to 1843, studying the great painters
+of the past. He was back in the U.S.A. until 1845, and then he returned to Toronto.
+Immediately upon his return, Kane headed into the wilderness areas around Georgian
+Bay, Sault Ste. Marie, and Lake Michigan. His plan was to sketch Indian life before it
+disappeared forever. American Indians were dying so rapidly from European diseases,
+such as measles and smallpox, that many people believed that they would soon vanish
+as a race. Their culture was threatened too. As white settlers demanded more land,
+Indians were being herded into small pieces of land called "reservations." Here they
+could no longer practice their traditional way of life. Kane wanted to capture Native
+American life while it still existed.
+Kane returned to Toronto at the end of 1845. He had received one good piece of advice
+and that was if he wanted to travel into the wilderness, he would have to go with
+experienced people. He was able to get the support of the Governor of the Hudson's Bay
+Company, Sir George Simpson. In May 1846, Kane joined the annual canoe fleet of fur
+traders going west. Kane would travel all through the wilderness areas of western
+Canada and northwestern U.S.A. During this time, he made hundreds of sketches of
+Indian life.
+Although Kane faced incredible hardships during his travels, he was able to see what he
+wanted to see. He was able to take part in one of the last great Buffalo hunts and killed
+two large bison himself. Traveling west with the fur traders he visited many forts and
+trading posts. He saw and painted a prairie fire. He shot a grizzly bear at close range and
+
+13 | P a g ewww. irlanguage .com
+killed several wolves that attacked his horses. He learned to travel long distances on
+snowshoes in winter. Finally, he arrived at the Pacific coast, where he made some fine
+drawings of the west coast Indians. European diseases had reached there just before
+Kane. Fifteen hundred Indians had died near Fort Vancouver in the summer of 1848. One
+wealthy chief had ruled 1,000 warriors and had ten wives, four children and eighteen
+slaves. Now he had only one wife, one child and two slaves. Kane had not come too soon.
+However, there were tribes still unaffected by western culture and western diseases.
+Kane also traveled widely around the Columbia River in northwestern U.S.A. Everywhere
+he went, he sketched Indian chiefs and scenes of native life. On his return trip, he
+encountered a large war party of 1,500 braves on the warpath against their traditional
+enemies. He was able to sketch the leading chief, Big Snake, who was later killed in
+single combat during the battle.
+When he arrived back in Toronto, Kane gave an exhibit of his sketches and watercolors.
+Most of the rest of his life was spent turning these drawings into finished paintings.
+------------------------------------------------------------------------------------------------------------------------
+Article #12
+Plains Indians
+The best known picture of an American Indian is a warrior in buckskin, riding a horse,
+wearing a headdress of eagle feathers and carrying a spear, or bow and arrow. This is a
+picture of a Plains Indian, and it appears in many Hollywood westerns and on the
+American five-cent piece. There were many tribes of Plains Indians; for the Northern
+American prairies or plains stretch from the northern forest of western Canada down to
+the States of Oklahoma and Texas in southern U.S.A.
+It is interesting that our image of the Plains Indian is only true for the last couple hundred
+years. It was not until the 1600s that Plains Indians began to ride horses. There were no
+horses in America until Spanish soldiers brought them in the 1500s and 1600s. Some of
+these horses escaped and ran wild on the prairies of America. It was these wild horses
+that the Plains Indians learned to tame.
+Before they had horses, the Indians hunted buffalo on foot. Buffalo were huge bison, or
+wild cattle, which traveled in very large herds. A big herd might have millions of buffalo.
+It was difficult to cross the prairie because these animals blocked your way.
+The Plains Indians had various ways of killing buffalo. Before they had horses, Indian
+hunters would quietly creep up close to the herd; then they would fire their arrows
+together. There was always the danger that the herd would stampede and trample the
+hunters. Another method was to drive the buffalo over a steep cliff. There are a number
+of places on the plains where this was done.
+Once the Plains Indians had horses, they preferred to hunt buffalo on horseback. When
+the tribes started to use guns, they could kill many buffalo. Artist Paul Kane describes a
+buffalo hunt in the Red River Valley in 1846. The hunters carried their bullets in their
+mouths so that they could shoot faster. They would ride right into the herd, shooting at
+close quarters. They would drop an article of clothes on the slain buffalo to mark it for
+themselves. Then they would continue the hunt. After the hunt, the Indians would skin
+the animals, and the women would dry the meat and store it in fat. A single hunt might
+kill more than 30,000 buffalo.
+The Plains Indians received nearly everything they needed from the buffalo. Of course,
+they used buffalo meat for food. They also used the buffalo skins for clothing, blankets,
+and the covering of their teepees. These teepees were cone-shaped tents, which were
+
+14 | P a g ewww. irlanguage .com
+easy to put up and take down. Plains Indians were nomadic, and followed the animals
+they hunted. Since these animals were plentiful, Plains Indians usually led a comfortable
+life. They developed complex religions and social rituals, as well as specialized societies
+or clubs. There were also rituals and customs for hunting and warfare.
+Many Plains Indians fought hard against the settlement of the Great Plains. The American
+government discouraged the hunting of buffalo, because without the buffalo the Plains
+Indians would not be able to fight. With the buffalo disappearing, the Plains Indians had
+to give up fighting and move into government-sponsored reservations.
+------------------------------------------------------------------------------------------------------------------------
+Article #13
+Pocahontas and John Smith
+In 1606, King James of England approved the establishment of two colonies along the
+eastern coast of America. The northern colony in Maine lasted only a year. The southern
+one at Jamestown in Virginia became England's first permanent settlement in America.
+In 1607, the Virginia Company sent 104 settlers to Virginia. The settlers lived in tents all
+summer. By September, more than 60 were dead because they lacked good food or water.
+The leaders of the colony were not energetic and did little to make the settlers find food.
+One member of the company, Captain John Smith, was determined that the colony would
+survive. Smith pressured the colonists to build huts, a storehouse, and a church. He
+made daring trips to Indian villages, demanding that they give the settlers food in return
+for beads and copper. He threatened settlers who were trying to leave the colony and go
+back to England.
+On one of his trips to the interior, Indians attacked John Smith. They killed his two
+companions but captured him alive. He was taken first to the local chief. This chief was
+impressed by Smith's compass and spared his life. His captors dragged Smith from
+village to village. He finally arrived at the town belonging to Powhatan. Powhatan was the
+great chief for all of the tribes in that region. Powhatan and his advisors talked about
+what to do with Smith. Suddenly, Smith was dragged forward, and his head was pushed
+against a stone. The warriors raised their clubs to kill Smith. Then Pocahontas, who was
+Powhatan's twelve-year-old daughter, begged for his life. Her words had no effect, so
+Pocahontas ran to Smith. She took his head in her arms and laid her own head against
+his head. Smith was released and went back to Jamestown.
+Soon after Smith returned, one hundred new settlers from England arrived. It was a very
+cold winter, and in January, Jamestown was accidentally set on fire. The settlers suffered
+from cold and hunger the rest of the winter. Every four or five days, Pocahontas and her
+attendants came. They brought food for the hungry settlers. Even so, half of them died.
+In the summer, John Smith explored that part of the coast of America. He made a map
+that would be very valuable for future sailors and settlers.
+On his return, Smith was elected leader of the colony at Jamestown. However, some
+settlers did not like having to follow rules. Some encouraged the Indians to try to kill
+Smith. Chief Powhatan agreed. He also refused to supply food to the colony, hoping to
+starve them out. Pocahontas warned Smith about the plot against his life. Smith had to
+fight off several attempts to kill him. Finally, the colony seemed to be growing, and the
+Indians became peaceful. But in late 1609, Smith was injured in an explosion and
+returned to England.
+Pocahontas remained a friend to the colony. She married John Rolfe, one of the settlers.
+In 1616, she traveled to England with her husband and son. There she saw John Smith
+
+15 | P a g ewww. irlanguage .com
+once again. She was so surprised to see him that she was unable to speak for several
+days. Pocahontas had believed that Smith was dead. The following year she died and
+was buried in England.
+Pocahontas' love for Smith, and Smith's determination to fight for the colony, had saved
+Jamestown and given the English their first colony in America.
+
 Article #14
 Remember The Alamo!
 The first Europeans in the American Southwest were Spanish explorers and conquerors.

@@ -1,3 +1,47 @@
+## 266 - Making Cookies
+
+>*Ummmm. Something smells good! My friend's mom is making cookies. They are
+chocolate chip, my favourite! I think I'll go home and ask my mom if we can make
+cookies, too.
+I run all the way home and rush through the door. I yell, "Mom, Mom!" She comes out
+from her bedroom, her eyes wide. "What?" she answers, a little worried. I breathlessly
+ask if we can please, pretty please, make cookies. She smiles and says, "I guess so."
+"YES!" I reply.
+First mom tells me to get out the cooking stuff; so I get out the mixer and bowl, the
+measuring cups and spoons and the cookie sheets. Then she tells me to get out the
+recipe book. I remind her that the recipe is on the chocolate chip package. "Right," she
+says. Then she asks me to look at the recipe and get out the things we need: like flour,
+sugar and butter.
+We set the oven temperature to 350 degrees F. Then, we mix all of the flour and other
+stuff (ingredients) together. Last, we add the chocolate chips. We drop the batter by big
+teaspoons full onto the cookie sheets. We set the timer for 12 minutes and just sit back
+and enjoy the good smell!
+The buzzer rings. We take the cookies out. Oh, do they look good! We don't even wait for
+them to cool down. Both Mom and I get a big glass of cold milk and two big warm
+cookies each. Yum! Yum! Want to join us?!*
+
+## 267 - Stars in the Midnight Sky
+
+>*"Twinkle, twinkle, little star, how I wonder what you are; up above the world so high, like
+a diamond in the sky, twinkle, twinkle little star." This is a little poem/song I always say
+when I am outside, and I see the stars. When I see the first star of the night, I sometimes
+say this one: "Star light, star bright, first star I see tonight; I wish I may; I wish I might,
+have the wish I wish tonight." Do you have a special thing to say about the stars?
+Stars are beautiful bright spots in the sky. Stars are usually seen at night when it is dark.
+We can't see them in the day time because the sun is so bright, the brightest star of all. I
+like staying up late just to look at the stars.
+One time I was outside at midnight, and the stars seemed to sparkle and dance. They
+really did look like diamonds dancing in the sky!
+If you watch the stars long enough, you may see a falling star or a shooting star. I have
+seen both. A falling star is where the star just seems to drop, and it leaves a trail of what
+appears like star dust. A shooting star is very beautiful. It "shoots" across the sky
+leaving a long trail of colourful "star dust." Shooting stars seem to brighten up the whole
+sky. They usually seem quite close to the earth.
+Have you ever watched the stars and got the urge to reach out and touch them, or even
+to join them in their secret dance? I wonder what it would be like to see a star up close.
+Would it look like the moon? Maybe one day when I am older, I will go up in a rocket ship
+and visit the dancing stars in the midnight sky!*
+
 Article #68
 Music
 A song comes on the radio. My lips start to move, singing along. My fingers start to snap;
@@ -806,87 +850,3 @@ theatrical play may be heard on the radio.
 Even in the age of television and computers, the radio has remained an important source
 of entertainment and information. People will surely listen to the radio for a long time to
 come.
-------------------------------------------------------------------------------------------------------------------------
-Article #96
-Being a Good Citizen
-Every society has laws that regulate the way people behave. A good citizen should obey
-laws. However, there is more to being a good citizen than merely obeying laws. There are
-many other things that people can do to make their society a pleasant one for every
-person.
-One way to be a good citizen is to be polite in everyday activities. For example, when
-passing through a door, a considerate person will hold the door open for a person who is
-close behind. Holding doors open is especially important when someone is carrying a
-heavy load.
-Being a good citizen is very important when travelling on the roads and streets.
-Pedestrians, bicyclists, and car drivers should all follow the rules of the road. Bicyclists
-should yield to pedestrians, and car drivers should yield to both bicyclists and
-pedestrians. Drivers should also allow other drivers to merge into their lanes. Also,
-drivers should avoid honking their horns except when this is necessary.
-A good citizen will also avoid doing things that interfere with others. For example, a
-considerate person does not smoke cigarettes in areas where this might irritate others.
-Also, a polite person avoids playing music so loudly that other people will be annoyed.
-And of course, a good citizen avoids littering or making a mess.
-Other ways of being a good citizen involve greater effort. Some people serve their
-community by doing volunteer work of some kind. Other people help by donating money
-to a charity. Another way to serve the community is to donate blood. Blood donors are
-needed so that there will be enough blood available to help people who are sick or
-injured.
-Being a good citizen is very helpful for the community, and it also gives a feeling of
-satisfaction and pride!
-------------------------------------------------------------------------------------------------------------------------
-Article #97
-Visiting the Doctor
-
-65 | P a g ewww. irlanguage .com
-When people feel sick, they go to a doctor. But sometimes people visit the doctor even
-when they are not sick. Doctors can perform a medical "check-up", to find out if a person
-is healthy. By performing this physical examination, the doctor can identify any health
-problems that might be developing.
-During a check-up, the doctor examines your eyes, ears, and throat. The doctor uses a
-small flashlight to examine the eyes, ears, and throat. It is important to make sure that
-the eyes react normally to changes in light. It is also important to make sure that the ears
-and throat have a normal appearance. When the doctor examines your throat, he or she
-will ask you open your mouth wide and say "ah".
-The doctor uses a stethoscope to examine the patient's heartbeat. The stethoscope
-hangs around the doctor's neck. By using a stethoscope, a doctor can hear the patient's
-heartbeat very clearly. While checking the patient's heart, the doctor also listens carefully
-to make sure that the patient's breathing is normal.
-The doctor also checks the patient's blood pressure. Blood pressure is measured by
-placing a cuff around the arm. Air is then pumped into the cuff, and this allows blood
-pressure to be measured. Having very high blood pressure, or very low blood pressure,
-is not good for one's health; it is better to be "in between".
-Another part of the examination is a test of the reflexes. The doctor tests the patient's
-reflexes by gently hitting his of her knee with a small hammer. If a person has normal
-reflexes, the leg will extend suddenly.
-Sometimes a doctor may give injections using a needle, as an extra part of the check-up.
-These injections, called vaccinations, prevent the patient from developing certain
-illnesses.
-Medical check-ups can help to maintain health, but people should also maintain their
-health by leading a healthy lifestyle.
-------------------------------------------------------------------------------------------------------------------------
-Article #98
-A Small Town
-I grew up in a small town. There were only about two thousand people who lived in the
-town where I grew up. When a town is very small, it is also called a village. My village
-was surrounded by many farms and many lakes.
-The house where my family lived was near the middle of the town. On the street where
-we lived, most of the houses were similar in size, but many of them had different shapes
-and different colors. Each house was surrounded by a yard, where people grew their
-lawn and their garden.
-Often, I would walk from my house to the downtown part of the village. "Downtown" is
-the area where the stores and shops of a town are located. Because I lived in a small
-town, it was a short walk to the downtown area. Along the main street, there were several
-different kinds of stores. Some stores sold food, some stores sold clothing, and some
-stores sold hardware (or building supplies).
-It was also a short walk to the schools in my town. When I went to elementary school, it
-would take about ten minutes to walk to the school. Some of my friends lived on the
-same street where I lived. Sometimes, we walked to school together.
-During the summer months, many people came from the big city to visit our village. The
-people liked to get away from the busy streets of the city. They enjoyed the quietness
-and the slow pace of village life. They also liked to spend their vacations near the lakes
-
-66 | P a g ewww. irlanguage .com
-that were near the village. People from the city often said that people who live in villages
-seemed very friendly.
-When I grew up, I left my village, and I went to work in a larger town. But sometimes I like
-to go back and visit the place where I grew up.

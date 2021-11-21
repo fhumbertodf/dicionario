@@ -779,7 +779,7 @@ At night, I turn off the lamp and get under the covers.
 I set my alarm clock for seven o'clock.  
 I lay my head on the pillow, and I fall asleep.*
 
-## 201 - I Want to Dye my Hair Green.
+## 116 - I Want to Dye my Hair Green.
 
 >*Many of my friends have dyed their hair different colors.  
 I don't mean normal hair colors like brown or black.  
@@ -810,7 +810,7 @@ One day something might be popular, and the next day it's not in style at all.
 I'll just have to live without green hair for now.  
 I wonder what the fad will be next month.*
 
-## 202 - Why Do People Dislike Other People?
+## 117 - Why Do People Dislike Other People?
 
 >*Some people don't like other people just because they look different.  
 I think that is silly.  
@@ -841,7 +841,7 @@ It doesn't matter to me what color a person's skin is.
 It doesn't matter to me if they are short or tall, skinny or fat or happy or sad looking.  
 I judge people by how they treat me, and I try to treat people like I would want to be treated.*
 
-## 203 - The Birthday Gift.
+## 118 - The Birthday Gift.
 
 >*It is going to be my father's birthday.  
 What can I give him?  
@@ -871,7 +871,7 @@ A good gift doesn't have to be something that costs a lot.
 My dad says that the best gifts are the ones that show how much you care for the other person.  
 I'm glad my dad liked his gift.*
 
-## 204 - New Year's Day On New Year's Day people start a new year.  
+## 119 - New Year's Day On New Year's Day people start a new year.  
 
 >*Many people make resolutions.  
 They resolve to be better people.  
@@ -898,7 +898,7 @@ The best thing is never to start any bad habits.
 I don't know if my brother will ever stop biting his nails, but I know that each January he intends to stop.  
 Maybe one of these New Year's Days he'll get over that habit.*
 
-## 205 - If I Could Fly.
+## 120 - If I Could Fly.
 
 >*I sometimes imagine what it would be like if I could fly like a bird.  
 Just imagine what it would be like to soar into the sky, flying high above the trees.  

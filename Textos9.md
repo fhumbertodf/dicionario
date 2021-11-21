@@ -1,3 +1,129 @@
+------------------------------------------------------------------------------------------------------------------------
+Article #19
+Kings and Queens of England
+Today, in the early twenty-first century, most countries no longer have kings and queens.
+However, some countries have remained as monarchies, including England and its
+former colonies. However, even in these countries, the monarch is a ceremonial figure
+who no longer has any real power over his or her subjects. These countries are called
+constitutional monarchies because they are democracies in which the monarch remains
+the official head of state.
+Many years ago, the kings and queens of England did have real power, but gradually this
+power was transferred to the people and their elected officials. It is interesting to
+examine how this transition occurred.
+Even in very early times, the king of England did not have absolute power. He was the
+most powerful man in the country, but he could not entirely force his will upon others. If
+he became too demanding, he might face opposition from powerful local land-owners.
+These men, called the barons, might resist a king who tried to become too strong.
+This is exactly what happened in the year 1215. The king of England had made many
+unreasonable demands upon the country, and the barons decided to resist. They forced
+the king to agree to a list of rules that would limit his power. These rules were written in a
+famous document called the Magna Carta. This document described not only the rights
+of the barons, but also of the common people of England.
+During the next few hundred years, the kings still had much power. However, some other
+people, such as the landowners and the richer men of the towns, also had influence.
+Their meetings became known as Parliaments, and the king had to share power with the
+parliament. During the 1640s, one king tried to rule without Parliament, and tried to take
+away the rights of Parliament. This led to a civil war, and the king was defeated. England
+soon became a monarchy again, but it became clear that Parliament would have more
+power than the king. Until the twentieth century, the Parliaments of England became
+more democratic, as more and more people were allowed to vote.
+Today, England still has a constitutional monarchy. But not all English-speaking
+countries recognize the English queen. For example, the United States became an
+
+19 | P a g ewww. irlanguage .com
+independent country over 200 years ago and has been a republic ever since.
+In some countries, there is debate about the future of the monarchy. Canada, Australia,
+and New Zealand still recognize the queen of England as their own queen even though
+those countries are no longer governed by England. Many people in those countries
+want to abolish the monarchy. They believe that their countries should now have their
+own head of state. On the other hand, some people in those countries want to keep the
+monarchy because it reminds them of their country's early history. This is an ongoing
+topic of debate for Canadians, Australians, and New Zealanders.
+------------------------------------------------------------------------------------------------------------------------
+Article #20
+Alcohol
+Alcohol is the oldest drug that is used in Western countries. For thousands of years,
+people have made alcoholic beverages. These beverages are made by allowing a process
+called fermentation to occur. Alcoholic fermentation happens when yeasts or bacteria
+break down the sugars that occur in some liquids, and convert some of those sugars into
+alcohol. Many liquids, such as fruit juices, can ferment.
+Thousands of years ago, alcoholic drinks were common in the Middle East. However, the
+Islamic religion forbids alcohol, so very little alcohol is consumed in this part of the
+world. In European countries, and in other parts of the world, many different kinds of
+alcoholic beverages are produced and consumed.
+In warmer areas of Europe, people make wine by allowing grape juice to ferment. In
+cooler areas of Europe, people make beer by fermenting liquids made from water and
+various grains. The process of fermentation is also used to make stronger drinks known
+as "spirits." These drinks include vodka, whiskey, and rum. The techniques for making
+good wine, beer, and spirits have been developed over hundreds of years, and require
+scientific precision. Some people have developed a great appreciation for well-made
+wine, beer, or spirits, and have become experts about the many different varieties of
+these beverages.
+Many people appreciate the taste of alcoholic beverages, but many also enjoy the
+feelings that alcohol causes. Alcohol belongs to a category of drugs called
+"depressants" because it "depresses" the central nervous system, causing a person to
+feel less inhibited or restrained. Many people enjoy this feeling, but when a person drinks
+a lot of alcohol, he or she loses co-ordination, balance, and judgment. Speech may
+become unclear, and the person may speak too much. Some people become aggressive
+or depressed. When a person is under the influence of alcohol, the person is said to be
+drunk.
+One of the problems that can result from alcohol consumption is known as "drunk
+driving." Some people try to drive a car after having consumed alcohol, but this is
+extremely dangerous. Each year, thousands of people are killed by drunk drivers who
+lose control of their cars. In recent years, attempts have been made to reduce this
+problem, by public education campaigns and by strict laws and punishments. If you drink,
+don't drive!
+Another problem associated with alcohol is addiction, known as alcoholism. Some
+people drink so frequently that they develop a physiological addiction to alcohol. This
+problem can have terrible consequences for a person's health, personal relationships,
+and career.
+Alcoholic beverages are firmly a part of Western culture, and of many other cultures also.
+
+20 | P a g ewww. irlanguage .com
+On the one hand, drinks provide many people with much enjoyment and appreciation. On
+the other hand, alcohol is a drug that can be abused, leading to accidents and addiction.
+------------------------------------------------------------------------------------------------------------------------
+Article #21
+The Origins of Canada and The United States
+Most people are aware that Canada and the United States are two very large countries in
+North America. However, most people do not know how these countries came to exist.
+The story of the creation of these countries is a very interesting one.
+During the seventeenth and eighteenth centuries, some people from England and from
+France moved across the Atlantic ocean. English people lived on what is now the east
+coast of the United States, and French people lived in what is now Quebec, in the eastern
+part of Canada. The kings of England and France were often at war with each other. This
+meant that there was often fighting in North America between the soldiers of England
+and France.
+By about the year 1750, there were many more people in the English colonies than in the
+French colonies. When the next war began, the English king was determined to defeat
+the French and gain complete control of North America. The English assembled a large
+force of ships and soldiers and attacked the French at Quebec. The French fought
+bravely, but they were too few in numbers, and the English won the war. England then
+gained control of all of North America.
+After this war, the people of the English colonies in North America began to feel
+dissatisfied with their government. They were not represented in the English government,
+but they had to pay taxes to the English king. The taxes were used to pay for English
+soldiers who defended the American colonies, but the Americans did not want these
+soldiers.
+In 1775, the American settlers began to rebel, and in 1776 the Americans declared their
+independence. For several years, there was much fighting between the Americans and
+the English soldiers. For a while, it appeared that the Americans would lose, even though
+they fought bravely. Then, the king of France decided to help the Americans. He sent his
+ships and soldiers to America, and they helped the Americans to defeat the English
+forces. England recognized the United States of America as an independent country in
+1783. However, England kept control of Canada.
+When the American colonies rebelled against England, some of the people who lived in
+those colonies did not rebel. Those people were called "Loyalists" because they were
+loyal to the king. When the war ended, the Loyalists had to leave the country. They
+moved northward to Canada, where they started new English-speaking colonies. During
+the year 1812, the Americans invaded Canada, but they were not able to conquer the
+country.
+During the nineteenth century, the people of Quebec continued to speak French and to
+maintain their French culture. Meanwhile, many more people moved to the English-
+speaking areas of Canada. In the year 1867, Quebec and the English-speaking colonies
+agreed to form a single country, Canada. By this time, there were two very large
+countries in the northern part of North America!
+
 Article #22
 Hawaii
 
@@ -1093,161 +1219,3 @@ Today, it seems difficult to believe that women were not allowed to vote only a 
 generations ago. But there is still progress to be made. In most countries, women are
 under-represented among political leaders. Perhaps the day will soon come when women
 are elected as often as men.
-------------------------------------------------------------------------------------------------------------------------
-Article #49
-Charles Dickens
-Charles Dickens is considered one of the greatest writers in the history of English
-literature. Dickens wrote his many novels during the nineteenth century, but those novels
-remain popular even today. Literary experts admire his genius at describing the lives and
-personalities of the many characters in his books.
-Charles Dickens was born in England in 1812. His father was a clerk who worked for the
-Navy. Unfortunately, his father was not good at managing money, and the family soon
-went deeply into debt. In those days, people who owed money were sent to prison, and
-their families were sent to places called "workhouses." When Charles's father was
-unable to pay the debts, Charles was sent to a workhouse, where he had to work long
-hours, and Charles's father was sent to prison. After a few years, the family regained its
-freedom, but the experience had a lasting effect upon Charles.
-As a young man, Charles Dickens worked as a journalist in the law courts and in
-Parliament. But he soon began writing stories for newspapers. These stories were very
-popular with the readers. Soon, Dickens began writing entire novels for the newspapers.
-Each month, the newspaper would publish another chapter of Dickens's latest novel.
-One of Dickens's most famous early novels is called Oliver Twist. This is the story of a
-young man who is poor and alone in the city of London, and becomes involved in
-criminal activities to support himself. The characters in this novel have a very wide range
-of personalities, but seem very real to the reader. This book exposed the conditions that
-faced the poor people of London, and helped to encourage reforms aimed at improving
-those conditions.
-Perhaps Dickens's most popular novel is A Christmas Carol. In this story, a rich but
-stingy old man, Ebenezer Scrooge, refuses to give his employee a day off work at
-Christmas, and refuses to donate money to help the poor. But, while sleeping, Scrooge is
-visited by ghosts from his past, present and future. These ghosts show Scrooge how
-badly he has behaved. When Scrooge wakes up, he becomes a kind and generous man
-who fully appreciates the spirit of the Christmas holiday.
-
-44 | P a g ewww. irlanguage .com
-Another famous novel of Dickens is A Tale of Two Cities. This is a story of the violence
-and upheaval during the French Revolution. The story is famous for the heroic act of
-sacrifice that is made by one character for the benefit of the others.
-Dickens was famous as a public speaker, and large crowds assembled to hear his
-performances. When he died in 1870, he was a very famous man.
-The novels of Charles Dickens allow the reader to experience the life of nineteenth
-century London, showing the poverty and injustice that were so common. The characters
-of these novels show the range of human behaviour, from cruelty and selfishness to
-kindness and love. It is no surprise that Dickens is viewed as one of the great figures of
-English literature.
-------------------------------------------------------------------------------------------------------------------------
-Article #50
-Samuel Clemens, or Mark Twain
-Mark Twain was the author of some of the greatest works of American English literature,
-such as Tom Sawyer, Life on the Mississippi, and The Adventures of Huckleberry Finn.
-Mark Twain's real name was Samuel Langhorne Clemens. He used Mark Twain as his
-"pen name".
-Samuel Clemens was born in the American state of Missouri in 1835. As a child he
-enjoyed many outdoor activities, such as swimming and fishing. When Samuel was
-eleven years old, his father died, and he began working to help support his family.
-As a young man, Samuel Clemens began to write stories for newspapers. However, he
-took a job working as a navigator on the steamboats that travelled up and down the
-Mississippi River. Clemens greatly enjoyed this period of his life, during which time he
-gained much knowledge about life on the river. He also learned much about human
-behaviour by observing the many people on the boats and along the river. It was as a
-result of this time that Clemens began using his pen name, Mark Twain. This name is
-taken from a term that was used by the men who worked on the river. It is used to
-describe water that is just deep enough to be navigated safely.
-The earliest of Mark Twain's really famous novels was The Adventures of Tom Sawyer.
-This novel describes a boy who engages in much mischief, but who has a kind heart. The
-story contains several scenes that are quite funny. In one of these, Tom is working at the
-boring task of painting a fence. He persuades several other boys to help him, by
-pretending that painting the fence is a fun and enjoyable activity.
-Another famous novel by Mark Twain was Life on the Mississippi. This book describes
-many interesting characters similar to those that Twain actually observed while working
-on a steamboat. This story gives the reader a vivid image of the people who lived and
-worked along the Mississippi River.
-Probably the best novel by Mark Twain was The Adventures of Huckleberry Finn. This
-novel tells the story of a boy who runs away from his violent father. The boy, whose
-name is Huckleberry Finn, is joined in his escape by a man named Jim. Jim is a slave
-who has decided to run away from his owners. Huck and Jim travel north along the
-Mississippi, hoping to reach the areas where slavery is not allowed. In this story, the
-reader can experience the moral sense of Huckleberry, who must make several important
-decisions during the escape.
-Mark Twain died in 1910, after writing many more novels and many stories of his travels
-around the world. Twain's works are still widely read today. His books are appreciated for
-their humor, for their interesting descriptions of life in nineteenth century America, and
-
-45 | P a g ewww. irlanguage .com
-for showing both the good and evil that people can do. Many critics consider Twain to
-have been the greatest American writer.
-------------------------------------------------------------------------------------------------------------------------
-Article #51
-The Islands of the Caribbean
-The Caribbean Sea is the large body of water that lies north of the northern tip of South
-America. Within the Caribbean sea are many islands that have played an important role
-in the history and culture of the Western hemisphere.
-By far the largest island in the Caribbean is Cuba. Cuba was formerly a colony of Spain,
-but became independent in 1902. Cuba became a Communist country in 1959, when a
-revolution overthrew an unpopular government. After the revolution, many Cubans fled
-to the United States. Today, the American city of Miami, in the state of Florida, has been
-greatly influenced by Cuban culture. Tobacco is widely grown in Cuba, and the country is
-famous for the cigars that are produced in the capital city, Havana.
-The island of Hispaniola is located just east of Cuba. This island is divided into two
-countries. In the west is Haiti, where the people speak a variety of the French language
-that has been influenced by African languages. In the east is the Dominican Republic,
-where the people speak Spanish.
-Another important Caribbean island is Puerto Rico. This was previously a Spanish colony,
-but it is now governed by the United States. Many people from Puerto Rico have moved
-to the mainland United States, especially the New York area.
-In many other islands in the Caribbean, English is the main language. The largest of
-these islands is Jamaica, which is located just south of Cuba. Most Jamaicans are the
-descendants of African people who were brought to work as slaves on sugar plantations.
-Jamaica is famous as the birthplace of the style of music called "reggae," which was
-popularized in other countries by Bob Marley, a famous Jamaican musician.
-Another important English-speaking Caribbean island is Trinidad. This island is located
-just north of South America. The population of Trinidad is very diverse. The largest
-groups of people are descended from people who came from Africa and India, but there
-are many other nationalities also. Trinidad is famous for a style of music known as
-"calypso," and for musicians who produce pleasant sounds by playing steel drums.
-There are also many other, smaller islands in the Caribbean, each with its own unique
-features. Many of these islands possess fine beaches, and are popular tourist
-destinations. The warm weather of the Caribbean makes it a popular place for North
-Americans who must live through cold winters!
-------------------------------------------------------------------------------------------------------------------------
-Article #52
-North American Indians
-The first people who lived in North America were the Indians. The name "Indians" is
-actually not very accurate, because the people are not from India. But when the first
-Europeans came to North America, they mistakenly believed that they had reached India,
-so they referred to the people as Indians. In different parts of North America, the Indians
-had very different cultures and very different ways of making a living.
-On the west coast of North America, many large rivers flow into the Pacific Ocean. In
-these rivers is an abundance of fish, such as salmon. The Indians in these areas
-obtained much of their food by fishing. They lived in settled villages, and became experts
-
-46 | P a g ewww. irlanguage .com
-in carving wood from the tall trees of the area. They carved large canoes for traveling on
-the rivers and oceans, and they also carved tall "totem poles." Totem poles were
-carvings of various animal or human figures, and often the poles had a mythical or
-spiritual significance for the people who carved them. Many beautiful totem poles can be
-seen in cities such as Vancouver or Victoria, in the Canadian state of British Columbia; or
-Seattle, in the American state of Washington.
-The Plains Indians lived in the central prairie of North America. The various nations of
-the Plains lived by hunting large animals called buffalo, or bison. Horses were brought to
-North America in the sixteenth century by the Spanish. The Indians who lived in the
-prairie areas had learned to become experts at riding horses, and on horseback they
-could hunt the giant herds of bison. They followed the buffalo from place to place. The
-Plains Indians lived in portable houses called "teepees," which were made by sewing
-together buffalo skins, and holding them in place with wooden poles.
-In the southwestern United States, some Indians lived by farming. In this dry area, the
-Indians raised several crops, such as corn, beans, and squash. Many of the Indians in
-these areas lived in large settlements, where the houses were made from stone or dried
-mud. The people were experts at weaving, and they made clothing and blankets that had
-beautiful artistic designs.
-Near the eastern coast of North America, many Indians lived by a combination of farming
-and hunting. These people lived in fortified villages, some of which were inhabited for
-many years at a time. In some places, they built large earthworks that can still be seen
-today.
-In the forests of northern Canada, the Indians lived primarily by hunting, fishing, and
-gathering. Like the Indians of the prairie regions, they often moved from place to place in
-search of game animals to hunt.
-Today, the Indians of North America no longer live in their traditional ways. However,
-several Indian languages are still spoken by many thousands of people. Also, many
-Indians in the United States and Canada are very interested in maintaining the cultural
-traditions of their ancestors.

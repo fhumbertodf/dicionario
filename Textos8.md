@@ -1,3 +1,88 @@
+------------------------------------------------------------------------------------------------------------------------
+Article #96
+Being a Good Citizen
+Every society has laws that regulate the way people behave. A good citizen should obey
+laws. However, there is more to being a good citizen than merely obeying laws. There are
+many other things that people can do to make their society a pleasant one for every
+person.
+One way to be a good citizen is to be polite in everyday activities. For example, when
+passing through a door, a considerate person will hold the door open for a person who is
+close behind. Holding doors open is especially important when someone is carrying a
+heavy load.
+Being a good citizen is very important when travelling on the roads and streets.
+Pedestrians, bicyclists, and car drivers should all follow the rules of the road. Bicyclists
+should yield to pedestrians, and car drivers should yield to both bicyclists and
+pedestrians. Drivers should also allow other drivers to merge into their lanes. Also,
+drivers should avoid honking their horns except when this is necessary.
+A good citizen will also avoid doing things that interfere with others. For example, a
+considerate person does not smoke cigarettes in areas where this might irritate others.
+Also, a polite person avoids playing music so loudly that other people will be annoyed.
+And of course, a good citizen avoids littering or making a mess.
+Other ways of being a good citizen involve greater effort. Some people serve their
+community by doing volunteer work of some kind. Other people help by donating money
+to a charity. Another way to serve the community is to donate blood. Blood donors are
+needed so that there will be enough blood available to help people who are sick or
+injured.
+Being a good citizen is very helpful for the community, and it also gives a feeling of
+satisfaction and pride!
+------------------------------------------------------------------------------------------------------------------------
+Article #97
+Visiting the Doctor
+
+65 | P a g ewww. irlanguage .com
+When people feel sick, they go to a doctor. But sometimes people visit the doctor even
+when they are not sick. Doctors can perform a medical "check-up", to find out if a person
+is healthy. By performing this physical examination, the doctor can identify any health
+problems that might be developing.
+During a check-up, the doctor examines your eyes, ears, and throat. The doctor uses a
+small flashlight to examine the eyes, ears, and throat. It is important to make sure that
+the eyes react normally to changes in light. It is also important to make sure that the ears
+and throat have a normal appearance. When the doctor examines your throat, he or she
+will ask you open your mouth wide and say "ah".
+The doctor uses a stethoscope to examine the patient's heartbeat. The stethoscope
+hangs around the doctor's neck. By using a stethoscope, a doctor can hear the patient's
+heartbeat very clearly. While checking the patient's heart, the doctor also listens carefully
+to make sure that the patient's breathing is normal.
+The doctor also checks the patient's blood pressure. Blood pressure is measured by
+placing a cuff around the arm. Air is then pumped into the cuff, and this allows blood
+pressure to be measured. Having very high blood pressure, or very low blood pressure,
+is not good for one's health; it is better to be "in between".
+Another part of the examination is a test of the reflexes. The doctor tests the patient's
+reflexes by gently hitting his of her knee with a small hammer. If a person has normal
+reflexes, the leg will extend suddenly.
+Sometimes a doctor may give injections using a needle, as an extra part of the check-up.
+These injections, called vaccinations, prevent the patient from developing certain
+illnesses.
+Medical check-ups can help to maintain health, but people should also maintain their
+health by leading a healthy lifestyle.
+------------------------------------------------------------------------------------------------------------------------
+Article #98
+A Small Town
+I grew up in a small town. There were only about two thousand people who lived in the
+town where I grew up. When a town is very small, it is also called a village. My village
+was surrounded by many farms and many lakes.
+The house where my family lived was near the middle of the town. On the street where
+we lived, most of the houses were similar in size, but many of them had different shapes
+and different colors. Each house was surrounded by a yard, where people grew their
+lawn and their garden.
+Often, I would walk from my house to the downtown part of the village. "Downtown" is
+the area where the stores and shops of a town are located. Because I lived in a small
+town, it was a short walk to the downtown area. Along the main street, there were several
+different kinds of stores. Some stores sold food, some stores sold clothing, and some
+stores sold hardware (or building supplies).
+It was also a short walk to the schools in my town. When I went to elementary school, it
+would take about ten minutes to walk to the school. Some of my friends lived on the
+same street where I lived. Sometimes, we walked to school together.
+During the summer months, many people came from the big city to visit our village. The
+people liked to get away from the busy streets of the city. They enjoyed the quietness
+and the slow pace of village life. They also liked to spend their vacations near the lakes
+
+66 | P a g ewww. irlanguage .com
+that were near the village. People from the city often said that people who live in villages
+seemed very friendly.
+When I grew up, I left my village, and I went to work in a larger town. But sometimes I like
+to go back and visit the place where I grew up.
+
 Article #99
 Personal Computers
 During the 1980s and 1990s, personal computers became very widespread. The use of
@@ -966,128 +1051,3 @@ are known for their excellent quality. These carvings, which nowadays are made f
 kind of stone called soapstone, depict people or animals such as bears, seals, or whales.
 In addition to paintings, Inuit artists have produced beautiful sketches and paintings of
 northern scenes.
-------------------------------------------------------------------------------------------------------------------------
-Article #19
-Kings and Queens of England
-Today, in the early twenty-first century, most countries no longer have kings and queens.
-However, some countries have remained as monarchies, including England and its
-former colonies. However, even in these countries, the monarch is a ceremonial figure
-who no longer has any real power over his or her subjects. These countries are called
-constitutional monarchies because they are democracies in which the monarch remains
-the official head of state.
-Many years ago, the kings and queens of England did have real power, but gradually this
-power was transferred to the people and their elected officials. It is interesting to
-examine how this transition occurred.
-Even in very early times, the king of England did not have absolute power. He was the
-most powerful man in the country, but he could not entirely force his will upon others. If
-he became too demanding, he might face opposition from powerful local land-owners.
-These men, called the barons, might resist a king who tried to become too strong.
-This is exactly what happened in the year 1215. The king of England had made many
-unreasonable demands upon the country, and the barons decided to resist. They forced
-the king to agree to a list of rules that would limit his power. These rules were written in a
-famous document called the Magna Carta. This document described not only the rights
-of the barons, but also of the common people of England.
-During the next few hundred years, the kings still had much power. However, some other
-people, such as the landowners and the richer men of the towns, also had influence.
-Their meetings became known as Parliaments, and the king had to share power with the
-parliament. During the 1640s, one king tried to rule without Parliament, and tried to take
-away the rights of Parliament. This led to a civil war, and the king was defeated. England
-soon became a monarchy again, but it became clear that Parliament would have more
-power than the king. Until the twentieth century, the Parliaments of England became
-more democratic, as more and more people were allowed to vote.
-Today, England still has a constitutional monarchy. But not all English-speaking
-countries recognize the English queen. For example, the United States became an
-
-19 | P a g ewww. irlanguage .com
-independent country over 200 years ago and has been a republic ever since.
-In some countries, there is debate about the future of the monarchy. Canada, Australia,
-and New Zealand still recognize the queen of England as their own queen even though
-those countries are no longer governed by England. Many people in those countries
-want to abolish the monarchy. They believe that their countries should now have their
-own head of state. On the other hand, some people in those countries want to keep the
-monarchy because it reminds them of their country's early history. This is an ongoing
-topic of debate for Canadians, Australians, and New Zealanders.
-------------------------------------------------------------------------------------------------------------------------
-Article #20
-Alcohol
-Alcohol is the oldest drug that is used in Western countries. For thousands of years,
-people have made alcoholic beverages. These beverages are made by allowing a process
-called fermentation to occur. Alcoholic fermentation happens when yeasts or bacteria
-break down the sugars that occur in some liquids, and convert some of those sugars into
-alcohol. Many liquids, such as fruit juices, can ferment.
-Thousands of years ago, alcoholic drinks were common in the Middle East. However, the
-Islamic religion forbids alcohol, so very little alcohol is consumed in this part of the
-world. In European countries, and in other parts of the world, many different kinds of
-alcoholic beverages are produced and consumed.
-In warmer areas of Europe, people make wine by allowing grape juice to ferment. In
-cooler areas of Europe, people make beer by fermenting liquids made from water and
-various grains. The process of fermentation is also used to make stronger drinks known
-as "spirits." These drinks include vodka, whiskey, and rum. The techniques for making
-good wine, beer, and spirits have been developed over hundreds of years, and require
-scientific precision. Some people have developed a great appreciation for well-made
-wine, beer, or spirits, and have become experts about the many different varieties of
-these beverages.
-Many people appreciate the taste of alcoholic beverages, but many also enjoy the
-feelings that alcohol causes. Alcohol belongs to a category of drugs called
-"depressants" because it "depresses" the central nervous system, causing a person to
-feel less inhibited or restrained. Many people enjoy this feeling, but when a person drinks
-a lot of alcohol, he or she loses co-ordination, balance, and judgment. Speech may
-become unclear, and the person may speak too much. Some people become aggressive
-or depressed. When a person is under the influence of alcohol, the person is said to be
-drunk.
-One of the problems that can result from alcohol consumption is known as "drunk
-driving." Some people try to drive a car after having consumed alcohol, but this is
-extremely dangerous. Each year, thousands of people are killed by drunk drivers who
-lose control of their cars. In recent years, attempts have been made to reduce this
-problem, by public education campaigns and by strict laws and punishments. If you drink,
-don't drive!
-Another problem associated with alcohol is addiction, known as alcoholism. Some
-people drink so frequently that they develop a physiological addiction to alcohol. This
-problem can have terrible consequences for a person's health, personal relationships,
-and career.
-Alcoholic beverages are firmly a part of Western culture, and of many other cultures also.
-
-20 | P a g ewww. irlanguage .com
-On the one hand, drinks provide many people with much enjoyment and appreciation. On
-the other hand, alcohol is a drug that can be abused, leading to accidents and addiction.
-------------------------------------------------------------------------------------------------------------------------
-Article #21
-The Origins of Canada and The United States
-Most people are aware that Canada and the United States are two very large countries in
-North America. However, most people do not know how these countries came to exist.
-The story of the creation of these countries is a very interesting one.
-During the seventeenth and eighteenth centuries, some people from England and from
-France moved across the Atlantic ocean. English people lived on what is now the east
-coast of the United States, and French people lived in what is now Quebec, in the eastern
-part of Canada. The kings of England and France were often at war with each other. This
-meant that there was often fighting in North America between the soldiers of England
-and France.
-By about the year 1750, there were many more people in the English colonies than in the
-French colonies. When the next war began, the English king was determined to defeat
-the French and gain complete control of North America. The English assembled a large
-force of ships and soldiers and attacked the French at Quebec. The French fought
-bravely, but they were too few in numbers, and the English won the war. England then
-gained control of all of North America.
-After this war, the people of the English colonies in North America began to feel
-dissatisfied with their government. They were not represented in the English government,
-but they had to pay taxes to the English king. The taxes were used to pay for English
-soldiers who defended the American colonies, but the Americans did not want these
-soldiers.
-In 1775, the American settlers began to rebel, and in 1776 the Americans declared their
-independence. For several years, there was much fighting between the Americans and
-the English soldiers. For a while, it appeared that the Americans would lose, even though
-they fought bravely. Then, the king of France decided to help the Americans. He sent his
-ships and soldiers to America, and they helped the Americans to defeat the English
-forces. England recognized the United States of America as an independent country in
-1783. However, England kept control of Canada.
-When the American colonies rebelled against England, some of the people who lived in
-those colonies did not rebel. Those people were called "Loyalists" because they were
-loyal to the king. When the war ended, the Loyalists had to leave the country. They
-moved northward to Canada, where they started new English-speaking colonies. During
-the year 1812, the Americans invaded Canada, but they were not able to conquer the
-country.
-During the nineteenth century, the people of Quebec continued to speak French and to
-maintain their French culture. Meanwhile, many more people moved to the English-
-speaking areas of Canada. In the year 1867, Quebec and the English-speaking colonies
-agreed to form a single country, Canada. By this time, there were two very large
-countries in the northern part of North America!

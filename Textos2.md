@@ -1,3 +1,41 @@
+## 031 - Flowers.
+
+>*There are hundreds of different types of flowers.    
+Most people like roses.  
+Roses grow on bushes, and they smell beautiful.  
+You have to be careful that you don't prick your finger on a rose thorn.  
+Roses come in many colors.  
+There are red, pink, yellow and white roses.  
+In the spring, tulips are in bloom.   
+In Ottawa, there are many tulips.   
+Some people go there just to see all the tulips in the spring.   
+Forget-me-nots are also spring flowers.   
+They are tiny and blue.   
+Lilies of the valley look like white bells.   
+Where I live, many of the trees have blossoms on them in the springtime.   
+The apple and cherry trees look particularly beautiful when they are in blossom.   
+We have a blossom festival in my town.   
+My neighbors like to plant geraniums, petunias and marigolds in the summer.   
+Some people plant sunflowers.   
+Sunflowers grow very tall.   
+They have bright yellow petals.   
+All of those flowers grow best in the sunshine.   
+If your garden is shady, you have to plant different things.   
+Hostas grow well in a shady garden.  
+Chrysanthemums are fall flowers.   
+Chrysanthemums come in many colors also.   
+There are purple, yellow and white chrysanthemums.   
+Flowers are good to give as gifts.   
+Women like to receive a dozen roses on Valentine's Day.   
+Carnations also make a nice gift.   
+They have a very sweet smell.  
+Many people give away lilies for Easter.   
+Poinsettias are very festive at Christmas time.   
+If someone goes to a dance, they often give their partner a flower to wear.   
+Sometimes a girl will get an orchid for her date.   
+If you go to a wedding, you will probably see a lot of flowers there.   
+Flowers help to make places beautiful.*
+
 ## 032 - The Shopping Mall.
 
 >*There are many different stores in the shopping mall.  
@@ -829,3 +867,29 @@ The books are filled with information that the people in the office need.
 You will have to visit an office sometime.  
 Maybe it will be a doctor's office or a lawyer's office.  
 There are many different types of offices.*
+
+## 60 - Money.
+
+>*I keep my money in the bank.  
+I have saved up my money.  
+I saved all my pennies in a jar.  
+A penny is only worth one cent.  
+I have nickels.  
+A nickel is worth five cents.  
+A dime is worth ten cents.  
+A quarter is worth twenty-five cents.  
+A quarter is a quarter of a dollar.  
+Four quarters make up a dollar.  
+A dollar is worth one hundred cents.  
+I saved up all of my dollars.  
+Our dollars used to be paper, but now they are coins.  
+We call our dollars loonies.  
+It is a funny name.  
+We also have two dollar coins.  
+We call those toonies.  
+We have five dollar bills and ten dollar bills.  
+If you are lucky you will have twenty dollar bills, fifty dollar bills and even hundred dollar bills.  
+Our bills in Canada are different colors.  
+That makes them easy to recognize if you go somewhere to spend them.  
+It is wise to save your money.  
+If you save enough, you could have hundreds or thousands of dollars.*

@@ -1,4 +1,35 @@
-## 237 - Giving a Speech.
+## 151 - The Future.
+
+>*I sometimes wonder what life will be like in the future.   
+Life has changed so much in just the past few years.   
+I'm sure that there are still big changes that are coming.   
+Do you think we'll still drive cars?   
+Maybe we'll get into computerized vehicles that we won't have to drive.   
+We'll just push a few buttons, and the vehicles will take us to wherever we have to go.   
+Maybe there won't be roads.   
+We might just fly through space to get where we want to go.   
+Instead of telephones, we'll just use our computers.   
+We'll be able to see each other when we talk.   
+That type of thing is already happening.   
+Maybe we won't have to cook our meals.   
+We might be able to push buttons to order whatever we want.   
+A nice roast beef dinner, or an ice cream sundae, might just pop out of a machine.   
+It would be nice to have a robot to clean the house for you.   
+In the past few years, computers have been extremely important.   
+People used to write to each other through the mail.   
+Now, people communicate so much more frequently through E-mail.   
+Most of my friends own computers.   
+If we had all of these things to do the work for us, what would we do?   
+We would still need people to program the computers.   
+We could spend more time being creative, rather than doing everyday chores.   
+The future holds many surprises.   
+I'm sure that technology will become even more and more amazing.   
+When my parents were young, they had never even seen a color television.   
+Nobody owned a computer.   
+It doesn't take long for things to change a lot.   
+Who knows what amazing things are in store for us?*
+
+## 152 - Giving a Speech.
 
 >*I had to give a speech last week.   
 I gave a speech to three hundred people.   
@@ -852,47 +883,3 @@ like to relax in the water on an inflatable, floating mattress. Other people jus
 around in the water, as a way to keep cool. When it is a windy day, some people try
 sports such as surfing.
 Going to the beach is surely one of the best ways to spend a summer day!*
-
-## 266 - Making Cookies
-
->*Ummmm. Something smells good! My friend's mom is making cookies. They are
-chocolate chip, my favourite! I think I'll go home and ask my mom if we can make
-cookies, too.
-I run all the way home and rush through the door. I yell, "Mom, Mom!" She comes out
-from her bedroom, her eyes wide. "What?" she answers, a little worried. I breathlessly
-ask if we can please, pretty please, make cookies. She smiles and says, "I guess so."
-"YES!" I reply.
-First mom tells me to get out the cooking stuff; so I get out the mixer and bowl, the
-measuring cups and spoons and the cookie sheets. Then she tells me to get out the
-recipe book. I remind her that the recipe is on the chocolate chip package. "Right," she
-says. Then she asks me to look at the recipe and get out the things we need: like flour,
-sugar and butter.
-We set the oven temperature to 350 degrees F. Then, we mix all of the flour and other
-stuff (ingredients) together. Last, we add the chocolate chips. We drop the batter by big
-teaspoons full onto the cookie sheets. We set the timer for 12 minutes and just sit back
-and enjoy the good smell!
-The buzzer rings. We take the cookies out. Oh, do they look good! We don't even wait for
-them to cool down. Both Mom and I get a big glass of cold milk and two big warm
-cookies each. Yum! Yum! Want to join us?!*
-
-## 267 - Stars in the Midnight Sky
-
->*"Twinkle, twinkle, little star, how I wonder what you are; up above the world so high, like
-a diamond in the sky, twinkle, twinkle little star." This is a little poem/song I always say
-when I am outside, and I see the stars. When I see the first star of the night, I sometimes
-say this one: "Star light, star bright, first star I see tonight; I wish I may; I wish I might,
-have the wish I wish tonight." Do you have a special thing to say about the stars?
-Stars are beautiful bright spots in the sky. Stars are usually seen at night when it is dark.
-We can't see them in the day time because the sun is so bright, the brightest star of all. I
-like staying up late just to look at the stars.
-One time I was outside at midnight, and the stars seemed to sparkle and dance. They
-really did look like diamonds dancing in the sky!
-If you watch the stars long enough, you may see a falling star or a shooting star. I have
-seen both. A falling star is where the star just seems to drop, and it leaves a trail of what
-appears like star dust. A shooting star is very beautiful. It "shoots" across the sky
-leaving a long trail of colourful "star dust." Shooting stars seem to brighten up the whole
-sky. They usually seem quite close to the earth.
-Have you ever watched the stars and got the urge to reach out and touch them, or even
-to join them in their secret dance? I wonder what it would be like to see a star up close.
-Would it look like the moon? Maybe one day when I am older, I will go up in a rocket ship
-and visit the dancing stars in the midnight sky!*

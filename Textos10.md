@@ -1,3 +1,162 @@
+------------------------------------------------------------------------------------------------------------------------
+Article #49
+Charles Dickens
+Charles Dickens is considered one of the greatest writers in the history of English
+literature. Dickens wrote his many novels during the nineteenth century, but those novels
+remain popular even today. Literary experts admire his genius at describing the lives and
+personalities of the many characters in his books.
+Charles Dickens was born in England in 1812. His father was a clerk who worked for the
+Navy. Unfortunately, his father was not good at managing money, and the family soon
+went deeply into debt. In those days, people who owed money were sent to prison, and
+their families were sent to places called "workhouses." When Charles's father was
+unable to pay the debts, Charles was sent to a workhouse, where he had to work long
+hours, and Charles's father was sent to prison. After a few years, the family regained its
+freedom, but the experience had a lasting effect upon Charles.
+As a young man, Charles Dickens worked as a journalist in the law courts and in
+Parliament. But he soon began writing stories for newspapers. These stories were very
+popular with the readers. Soon, Dickens began writing entire novels for the newspapers.
+Each month, the newspaper would publish another chapter of Dickens's latest novel.
+One of Dickens's most famous early novels is called Oliver Twist. This is the story of a
+young man who is poor and alone in the city of London, and becomes involved in
+criminal activities to support himself. The characters in this novel have a very wide range
+of personalities, but seem very real to the reader. This book exposed the conditions that
+faced the poor people of London, and helped to encourage reforms aimed at improving
+those conditions.
+Perhaps Dickens's most popular novel is A Christmas Carol. In this story, a rich but
+stingy old man, Ebenezer Scrooge, refuses to give his employee a day off work at
+Christmas, and refuses to donate money to help the poor. But, while sleeping, Scrooge is
+visited by ghosts from his past, present and future. These ghosts show Scrooge how
+badly he has behaved. When Scrooge wakes up, he becomes a kind and generous man
+who fully appreciates the spirit of the Christmas holiday.
+
+44 | P a g ewww. irlanguage .com
+Another famous novel of Dickens is A Tale of Two Cities. This is a story of the violence
+and upheaval during the French Revolution. The story is famous for the heroic act of
+sacrifice that is made by one character for the benefit of the others.
+Dickens was famous as a public speaker, and large crowds assembled to hear his
+performances. When he died in 1870, he was a very famous man.
+The novels of Charles Dickens allow the reader to experience the life of nineteenth
+century London, showing the poverty and injustice that were so common. The characters
+of these novels show the range of human behaviour, from cruelty and selfishness to
+kindness and love. It is no surprise that Dickens is viewed as one of the great figures of
+English literature.
+------------------------------------------------------------------------------------------------------------------------
+Article #50
+Samuel Clemens, or Mark Twain
+Mark Twain was the author of some of the greatest works of American English literature,
+such as Tom Sawyer, Life on the Mississippi, and The Adventures of Huckleberry Finn.
+Mark Twain's real name was Samuel Langhorne Clemens. He used Mark Twain as his
+"pen name".
+Samuel Clemens was born in the American state of Missouri in 1835. As a child he
+enjoyed many outdoor activities, such as swimming and fishing. When Samuel was
+eleven years old, his father died, and he began working to help support his family.
+As a young man, Samuel Clemens began to write stories for newspapers. However, he
+took a job working as a navigator on the steamboats that travelled up and down the
+Mississippi River. Clemens greatly enjoyed this period of his life, during which time he
+gained much knowledge about life on the river. He also learned much about human
+behaviour by observing the many people on the boats and along the river. It was as a
+result of this time that Clemens began using his pen name, Mark Twain. This name is
+taken from a term that was used by the men who worked on the river. It is used to
+describe water that is just deep enough to be navigated safely.
+The earliest of Mark Twain's really famous novels was The Adventures of Tom Sawyer.
+This novel describes a boy who engages in much mischief, but who has a kind heart. The
+story contains several scenes that are quite funny. In one of these, Tom is working at the
+boring task of painting a fence. He persuades several other boys to help him, by
+pretending that painting the fence is a fun and enjoyable activity.
+Another famous novel by Mark Twain was Life on the Mississippi. This book describes
+many interesting characters similar to those that Twain actually observed while working
+on a steamboat. This story gives the reader a vivid image of the people who lived and
+worked along the Mississippi River.
+Probably the best novel by Mark Twain was The Adventures of Huckleberry Finn. This
+novel tells the story of a boy who runs away from his violent father. The boy, whose
+name is Huckleberry Finn, is joined in his escape by a man named Jim. Jim is a slave
+who has decided to run away from his owners. Huck and Jim travel north along the
+Mississippi, hoping to reach the areas where slavery is not allowed. In this story, the
+reader can experience the moral sense of Huckleberry, who must make several important
+decisions during the escape.
+Mark Twain died in 1910, after writing many more novels and many stories of his travels
+around the world. Twain's works are still widely read today. His books are appreciated for
+their humor, for their interesting descriptions of life in nineteenth century America, and
+
+45 | P a g ewww. irlanguage .com
+for showing both the good and evil that people can do. Many critics consider Twain to
+have been the greatest American writer.
+------------------------------------------------------------------------------------------------------------------------
+Article #51
+The Islands of the Caribbean
+The Caribbean Sea is the large body of water that lies north of the northern tip of South
+America. Within the Caribbean sea are many islands that have played an important role
+in the history and culture of the Western hemisphere.
+By far the largest island in the Caribbean is Cuba. Cuba was formerly a colony of Spain,
+but became independent in 1902. Cuba became a Communist country in 1959, when a
+revolution overthrew an unpopular government. After the revolution, many Cubans fled
+to the United States. Today, the American city of Miami, in the state of Florida, has been
+greatly influenced by Cuban culture. Tobacco is widely grown in Cuba, and the country is
+famous for the cigars that are produced in the capital city, Havana.
+The island of Hispaniola is located just east of Cuba. This island is divided into two
+countries. In the west is Haiti, where the people speak a variety of the French language
+that has been influenced by African languages. In the east is the Dominican Republic,
+where the people speak Spanish.
+Another important Caribbean island is Puerto Rico. This was previously a Spanish colony,
+but it is now governed by the United States. Many people from Puerto Rico have moved
+to the mainland United States, especially the New York area.
+In many other islands in the Caribbean, English is the main language. The largest of
+these islands is Jamaica, which is located just south of Cuba. Most Jamaicans are the
+descendants of African people who were brought to work as slaves on sugar plantations.
+Jamaica is famous as the birthplace of the style of music called "reggae," which was
+popularized in other countries by Bob Marley, a famous Jamaican musician.
+Another important English-speaking Caribbean island is Trinidad. This island is located
+just north of South America. The population of Trinidad is very diverse. The largest
+groups of people are descended from people who came from Africa and India, but there
+are many other nationalities also. Trinidad is famous for a style of music known as
+"calypso," and for musicians who produce pleasant sounds by playing steel drums.
+There are also many other, smaller islands in the Caribbean, each with its own unique
+features. Many of these islands possess fine beaches, and are popular tourist
+destinations. The warm weather of the Caribbean makes it a popular place for North
+Americans who must live through cold winters!
+------------------------------------------------------------------------------------------------------------------------
+Article #52
+North American Indians
+The first people who lived in North America were the Indians. The name "Indians" is
+actually not very accurate, because the people are not from India. But when the first
+Europeans came to North America, they mistakenly believed that they had reached India,
+so they referred to the people as Indians. In different parts of North America, the Indians
+had very different cultures and very different ways of making a living.
+On the west coast of North America, many large rivers flow into the Pacific Ocean. In
+these rivers is an abundance of fish, such as salmon. The Indians in these areas
+obtained much of their food by fishing. They lived in settled villages, and became experts
+
+46 | P a g ewww. irlanguage .com
+in carving wood from the tall trees of the area. They carved large canoes for traveling on
+the rivers and oceans, and they also carved tall "totem poles." Totem poles were
+carvings of various animal or human figures, and often the poles had a mythical or
+spiritual significance for the people who carved them. Many beautiful totem poles can be
+seen in cities such as Vancouver or Victoria, in the Canadian state of British Columbia; or
+Seattle, in the American state of Washington.
+The Plains Indians lived in the central prairie of North America. The various nations of
+the Plains lived by hunting large animals called buffalo, or bison. Horses were brought to
+North America in the sixteenth century by the Spanish. The Indians who lived in the
+prairie areas had learned to become experts at riding horses, and on horseback they
+could hunt the giant herds of bison. They followed the buffalo from place to place. The
+Plains Indians lived in portable houses called "teepees," which were made by sewing
+together buffalo skins, and holding them in place with wooden poles.
+In the southwestern United States, some Indians lived by farming. In this dry area, the
+Indians raised several crops, such as corn, beans, and squash. Many of the Indians in
+these areas lived in large settlements, where the houses were made from stone or dried
+mud. The people were experts at weaving, and they made clothing and blankets that had
+beautiful artistic designs.
+Near the eastern coast of North America, many Indians lived by a combination of farming
+and hunting. These people lived in fortified villages, some of which were inhabited for
+many years at a time. In some places, they built large earthworks that can still be seen
+today.
+In the forests of northern Canada, the Indians lived primarily by hunting, fishing, and
+gathering. Like the Indians of the prairie regions, they often moved from place to place in
+search of game animals to hunt.
+Today, the Indians of North America no longer live in their traditional ways. However,
+several Indian languages are still spoken by many thousands of people. Also, many
+Indians in the United States and Canada are very interested in maintaining the cultural
+traditions of their ancestors.
+
 Article #53
 How the First World War Started
 During the summer of 1914, many people in Europe felt very optimistic about the future.
@@ -976,130 +1135,3 @@ making big corporations a lot of money. While it is clear that the sport-related
 and symbols used by these corporations are recognized worldwide, it is not so clear
 what positive benefits are accrued from this. In any case, there is little doubt that sport
 will continue to play a vital role in the globalization process.
-------------------------------------------------------------------------------------------------------------------------
-Article #79
-Women in Sport
-The struggle to attain equality for female participation in sport has been a long and hard-
-fought one. One hundred years ago, a majority of people-many women included-would
-have thought it unnatural, if not immoral, to permit women to participate in sports. Today,
-women's participation is widespread and accepted by most. However, there are still many
-sports and sport-related institutions and organizations that have not achieved full
-equality. Some sports, such as football or boxing, encourage very little female
-participation, although even these so-called "masculine" sports are changing. Women's
-boxing, for example, will probably be included in the Olympic Games by the end of this
-decade.
-
-67 | P a g ewww. irlanguage .com
-In the late 1800s and early 1900s, when sports and physical education programs were
-first organized in North America, women were forbidden from participating for so-called
-"scientific" or "medical" reasons. Physicians as a group often spoke out against female
-athleticism, using the argument that physical activity would damage reproduction.
-Others claimed that it was quite simply "unnatural" for women to participate in sports.
-Little real evidence was provided to support these claims. In truth, the so-called
-"evidence" was more a reflection of physicians' cultural assumptions about women's
-place in society in general.
-The 1920s and 1930s witnessed a short "Golden Age" in women's sports. Individual
-athletes and teams or leagues formed to support female athletics. Track and field, tennis,
-softball, programs in physical education, and other activities were encouraged, at least
-for those women lucky enough to have the time and money to participate. There was
-even a Women's Olympic Games movement in the 1920s and 1930s. At one point, the
-regular Olympic Games organized by the International Olympic Committee (IOC), became
-concerned that the Women's Olympics would gain enough power to challenge the
-superiority of the IOC's Olympics. As a result, the IOC included a few more women's
-events in their Games, although not many.
-The Golden Age of women's sports was followed by a long drought. The post-World War
-II era was one of very conservative traditional family values in North America. However,
-in the 1970s the current boom in women's sport began. One of the driving forces in the
-movement was East Bloc countries, particularly the Soviet Union and East Germany,
-both of which encouraged female athletes at the highest level-the Olympic Games.
-Female athletes with strong and muscular bodies emerged on the international sports
-stage. At first, this raised concern among the male-dominated sports establishment.
-However, after years of struggle, the muscular and strong female athletic body has
-become common in international sport.
-In the late-nineteenth century, the founder of the modern Olympic Games, Pierre de
-Coubertin, said that the sight of women participating in sport was an affront to the
-human eye, and unnatural. We've come a long way since then.
-------------------------------------------------------------------------------------------------------------------------
-Article #80
-Sport and Television
-There is little question that television has radically changed the sporting world.
-Television has done more than just make existing sports more accessible to a mass
-audience. It has been argued that the very nature of sport and spectators' experiences of
-sport has been shaped by the medium of television.
-The first televised sporting event took place on May 17, 1939. A baseball game between
-two American schools-Princeton and Columbia-marked the beginning of a new era in
-sport. The first broadcast, however, was not of particularly high quality. Viewers could
-hardly see the players on the television screen, the technology at the time being of very
-low quality. In addition, very few people owned television sets at the time. Only 400 TV
-sets were in circulation, and the average cost of $600 made owning a set impossible for
-most people.
-This situation would soon change. Television as a popular and affordable medium grew
-rapidly in the 1940s and 1950s. By the end of the 1950s, American televised sport entered
-a "Golden Age." It was during this period of time that major sporting organizations, such
-as professional leagues, and major amateur organizations, such as the International
-
-68 | P a g ewww. irlanguage .com
-Olympic Committee (IOC), realized the benefits of television. Not only could TV make
-competitions available for a huge number of spectators, it could actually make money for
-these organizations. Television companies, in turn, could make money by attracting
-viewers and selling advertising space at increased rates. Television and sport entered
-what some observers call a "symbiotic" or mutually beneficial relationship.
-The business relationship developed between the American TV company ABC and the
-Olympic Games is a clear example of the TV-sport symbiosis. In the 1960s and 1970s,
-ABC recognized the importance of using international sport to attract viewers. By being
-recognized as "The Olympic Network," ABC quickly rose from being the third biggest
-commercial network in the U.S. to being the leading network. At the same time, ABC paid
-higher and higher "rights fees" to the IOC, and the IOC, in turn, began to take a more
-commercial and professional approach to the Olympic Games. The ABC role model has
-paved the way for other television networks around the world. Today, television rights
-pay for the majority of Olympic Games expenses.
-The television and sport relationship has come a long way since the first
-Princeton/Columbia baseball game. Today, more people experience sport as spectators
-through the medium of television than they do as regular participants in sport. The
-television and sport relationship, then, presents a bit of a paradox. While on the one hand
-it has made sport more visible for more people, it has perhaps done so at the expense of
-actual participation in sport.
-------------------------------------------------------------------------------------------------------------------------
-Article #81
-Nike
-Nike and its swoosh corporate symbol are among the most recognized brand names in
-world, alongside McDonalds, Coca-Cola, and Disney. Starting in 1964 as a sport shoe
-outlet, the company grew to become the market leader in footwear and apparel. Nike has
-since diversified into a range of activities, including sports event promotion.
-Owned by Phil Knight, Nike has become synonymous with world-class sport, especially
-through its sponsorship of events and elite athletes such as Michael Jordan and Tiger
-Woods. Nike is so ever-present in the sports consumers' minds, that a survey conducted
-during the Atlanta Summer Olympic Games in 1996 revealed an extremely high
-awareness of Nike, despite that fact that Nike was not an official sponsor of the Games.
-Nike's success has, to a great extent, been due to the fact that the company and its
-swoosh symbol have become ubiquitous in consumers' minds. Nike has even run
-television commercials without even mentioning its own name, being confident enough
-that the checkmark swoosh is more than enough to make the company known.
-Phil Knight has been the main inspiration behind Nike and its corporate direction. A
-competent, although not elite, middle distance runner at the University of Oregon, Knight
-went onto Harvard business school where the Nike idea emerged out of a paper he
-developed for a class on entrepreneurship. Knight's former coach, Bill Bowerman,
-developed lightweight running shoes that became the new company's trademark in the
-early days. From these modest beginnings, Nike eventually grew to become the sports
-giant it is today.
-Ironically, part of Nike's status in the world of competitive sports merchandising has
-come from the attention it's received by critics. A short article published in the early-
-1990s in Harper's Magazine quickly mushroomed into an international outcry against
-Nike's practice of placing their factories in underdeveloped countries and paying workers
-
-69 | P a g ewww. irlanguage .com
-below-subsistence wages. Nike quickly responded to the criticisms with a number of
-tactics to either divert attention away from the criticisms (ones that Knight, interestingly,
-at first denied), or by acknowledging the practices but claiming Nike was "cleaning up its
-act."
-In many cases, Nike has made an effort to create better working conditions for those in
-underdeveloped countries making shoes and other merchandise. However, the overall
-effect of Nike's changes is not known, and several groups around the world regularly
-check, and often criticize, Nike's labour practices.
-Nike's recent marketing extravaganzas include a $200 million (U.S.) deal with the
-Brazilian National Soccer Federation. It has been rumoured that Knight's ego has much
-to do with Nike's marketing strategies. Some critics have suggested that Knight's hidden
-agenda is no less than controlling sports marketing and merchandising throughout the
-world. Nike's corporate headquarters in Oregon reflect these aspirations. Nike's
-buildings and surrounding grounds are constructed very much like a religious cathedral,
-only with elite athletes, and Knight himself, as the gods.

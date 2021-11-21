@@ -1,3 +1,131 @@
+------------------------------------------------------------------------------------------------------------------------
+Article #79
+Women in Sport
+The struggle to attain equality for female participation in sport has been a long and hard-
+fought one. One hundred years ago, a majority of people-many women included-would
+have thought it unnatural, if not immoral, to permit women to participate in sports. Today,
+women's participation is widespread and accepted by most. However, there are still many
+sports and sport-related institutions and organizations that have not achieved full
+equality. Some sports, such as football or boxing, encourage very little female
+participation, although even these so-called "masculine" sports are changing. Women's
+boxing, for example, will probably be included in the Olympic Games by the end of this
+decade.
+
+67 | P a g ewww. irlanguage .com
+In the late 1800s and early 1900s, when sports and physical education programs were
+first organized in North America, women were forbidden from participating for so-called
+"scientific" or "medical" reasons. Physicians as a group often spoke out against female
+athleticism, using the argument that physical activity would damage reproduction.
+Others claimed that it was quite simply "unnatural" for women to participate in sports.
+Little real evidence was provided to support these claims. In truth, the so-called
+"evidence" was more a reflection of physicians' cultural assumptions about women's
+place in society in general.
+The 1920s and 1930s witnessed a short "Golden Age" in women's sports. Individual
+athletes and teams or leagues formed to support female athletics. Track and field, tennis,
+softball, programs in physical education, and other activities were encouraged, at least
+for those women lucky enough to have the time and money to participate. There was
+even a Women's Olympic Games movement in the 1920s and 1930s. At one point, the
+regular Olympic Games organized by the International Olympic Committee (IOC), became
+concerned that the Women's Olympics would gain enough power to challenge the
+superiority of the IOC's Olympics. As a result, the IOC included a few more women's
+events in their Games, although not many.
+The Golden Age of women's sports was followed by a long drought. The post-World War
+II era was one of very conservative traditional family values in North America. However,
+in the 1970s the current boom in women's sport began. One of the driving forces in the
+movement was East Bloc countries, particularly the Soviet Union and East Germany,
+both of which encouraged female athletes at the highest level-the Olympic Games.
+Female athletes with strong and muscular bodies emerged on the international sports
+stage. At first, this raised concern among the male-dominated sports establishment.
+However, after years of struggle, the muscular and strong female athletic body has
+become common in international sport.
+In the late-nineteenth century, the founder of the modern Olympic Games, Pierre de
+Coubertin, said that the sight of women participating in sport was an affront to the
+human eye, and unnatural. We've come a long way since then.
+------------------------------------------------------------------------------------------------------------------------
+Article #80
+Sport and Television
+There is little question that television has radically changed the sporting world.
+Television has done more than just make existing sports more accessible to a mass
+audience. It has been argued that the very nature of sport and spectators' experiences of
+sport has been shaped by the medium of television.
+The first televised sporting event took place on May 17, 1939. A baseball game between
+two American schools-Princeton and Columbia-marked the beginning of a new era in
+sport. The first broadcast, however, was not of particularly high quality. Viewers could
+hardly see the players on the television screen, the technology at the time being of very
+low quality. In addition, very few people owned television sets at the time. Only 400 TV
+sets were in circulation, and the average cost of $600 made owning a set impossible for
+most people.
+This situation would soon change. Television as a popular and affordable medium grew
+rapidly in the 1940s and 1950s. By the end of the 1950s, American televised sport entered
+a "Golden Age." It was during this period of time that major sporting organizations, such
+as professional leagues, and major amateur organizations, such as the International
+
+68 | P a g ewww. irlanguage .com
+Olympic Committee (IOC), realized the benefits of television. Not only could TV make
+competitions available for a huge number of spectators, it could actually make money for
+these organizations. Television companies, in turn, could make money by attracting
+viewers and selling advertising space at increased rates. Television and sport entered
+what some observers call a "symbiotic" or mutually beneficial relationship.
+The business relationship developed between the American TV company ABC and the
+Olympic Games is a clear example of the TV-sport symbiosis. In the 1960s and 1970s,
+ABC recognized the importance of using international sport to attract viewers. By being
+recognized as "The Olympic Network," ABC quickly rose from being the third biggest
+commercial network in the U.S. to being the leading network. At the same time, ABC paid
+higher and higher "rights fees" to the IOC, and the IOC, in turn, began to take a more
+commercial and professional approach to the Olympic Games. The ABC role model has
+paved the way for other television networks around the world. Today, television rights
+pay for the majority of Olympic Games expenses.
+The television and sport relationship has come a long way since the first
+Princeton/Columbia baseball game. Today, more people experience sport as spectators
+through the medium of television than they do as regular participants in sport. The
+television and sport relationship, then, presents a bit of a paradox. While on the one hand
+it has made sport more visible for more people, it has perhaps done so at the expense of
+actual participation in sport.
+------------------------------------------------------------------------------------------------------------------------
+Article #81
+Nike
+Nike and its swoosh corporate symbol are among the most recognized brand names in
+world, alongside McDonalds, Coca-Cola, and Disney. Starting in 1964 as a sport shoe
+outlet, the company grew to become the market leader in footwear and apparel. Nike has
+since diversified into a range of activities, including sports event promotion.
+Owned by Phil Knight, Nike has become synonymous with world-class sport, especially
+through its sponsorship of events and elite athletes such as Michael Jordan and Tiger
+Woods. Nike is so ever-present in the sports consumers' minds, that a survey conducted
+during the Atlanta Summer Olympic Games in 1996 revealed an extremely high
+awareness of Nike, despite that fact that Nike was not an official sponsor of the Games.
+Nike's success has, to a great extent, been due to the fact that the company and its
+swoosh symbol have become ubiquitous in consumers' minds. Nike has even run
+television commercials without even mentioning its own name, being confident enough
+that the checkmark swoosh is more than enough to make the company known.
+Phil Knight has been the main inspiration behind Nike and its corporate direction. A
+competent, although not elite, middle distance runner at the University of Oregon, Knight
+went onto Harvard business school where the Nike idea emerged out of a paper he
+developed for a class on entrepreneurship. Knight's former coach, Bill Bowerman,
+developed lightweight running shoes that became the new company's trademark in the
+early days. From these modest beginnings, Nike eventually grew to become the sports
+giant it is today.
+Ironically, part of Nike's status in the world of competitive sports merchandising has
+come from the attention it's received by critics. A short article published in the early-
+1990s in Harper's Magazine quickly mushroomed into an international outcry against
+Nike's practice of placing their factories in underdeveloped countries and paying workers
+
+69 | P a g ewww. irlanguage .com
+below-subsistence wages. Nike quickly responded to the criticisms with a number of
+tactics to either divert attention away from the criticisms (ones that Knight, interestingly,
+at first denied), or by acknowledging the practices but claiming Nike was "cleaning up its
+act."
+In many cases, Nike has made an effort to create better working conditions for those in
+underdeveloped countries making shoes and other merchandise. However, the overall
+effect of Nike's changes is not known, and several groups around the world regularly
+check, and often criticize, Nike's labour practices.
+Nike's recent marketing extravaganzas include a $200 million (U.S.) deal with the
+Brazilian National Soccer Federation. It has been rumoured that Knight's ego has much
+to do with Nike's marketing strategies. Some critics have suggested that Knight's hidden
+agenda is no less than controlling sports marketing and merchandising throughout the
+world. Nike's corporate headquarters in Oregon reflect these aspirations. Nike's
+buildings and surrounding grounds are constructed very much like a religious cathedral,
+only with elite athletes, and Knight himself, as the gods.
+
 Article #82
 Arthur Ashe
 Arthur Ashe (1943-1993) was one of the most exceptional tennis players in the history of
@@ -1081,239 +1209,3 @@ and incidents were invented.
 books did have a moral, they were more lively and interesting than earlier children's
 writing. "Little Women" inspired many writers later to write more realistic accounts of
 childhood.
-------------------------------------------------------------------------------------------------------------------------
-Article #9
-Niagara-On-The-Lake
-Niagara-on-the-Lake is a little town at the mouth of the Niagara River. It is only twelve
-miles north of Niagara Falls. It used to be true that very few tourists would bother to
-travel from the Falls down to Niagara-on-the-Lake. Nowadays, however, the little town
-itself is a major tourist attraction.
-The town has a remarkable history. The area played an important role in both the
-American Revolutionary War and the War of 1812. As a result, the little town has two forts,
-Fort George and Fort Mississauga. When Fort George was reconstructed for the public in
-the 1930s, Niagara-on-the-Lake got its first big tourist attraction.
-Because Niagara-on-the-Lake was the first capital of Ontario, it has many significant
-"firsts." There was the first parliament in the province, the first legal society, the first
-library, the first newspaper, the first museum building, and many more "firsts."
-Besides its history, the town, which is bordered by Lake Ontario and the Niagara River,
-has beautiful scenery. On a summer's day, visitors can watch the sailboats going out the
-river to the lake. On the landside, Niagara is part of the fruit belt of Ontario. Peaches,
-pears, apples, cherries and strawberries grow here in abundance. There are also long
-rows of vines, and winemaking has recently become a major industry.
-The mild humid climate allows plants to flourish. The trees, especially the oaks, grow to
-remarkable heights. Flowering trees and shrubs perfume the air in the spring. Gardens
-are often spectacular for much of the year. Because of this, Niagara-on-the-Lake attracts
-many painters and photographers. Many of the private homes also have a long history,
-and great care is taken to keep them looking their best.
-The biggest single attraction is the Shaw Festival Theatre. The Festival was founded in
-1962 by a group of Shaw enthusiasts. Early productions were often held in the historic
-Court House on the main street, and plays still take place there. In 1973, however, a new
-861 seat Shaw Theatre was built at the south end of town. Since then, traffic to Niagara-
-on-the-Lake has been steady all through the long summer season.
-In 1996, Niagara-on-the-Lake was voted "the prettiest town in Canada." Partly, it is the
-scale of things that makes the old town so attractive. The old town is only about eight
-blocks long by eight blocks wide. It has a population of little more than 1,000 people.
-Nonetheless, there is a lot for people to do and see. There are many interesting shops,
-
-11 | P a g ewww. irlanguage .com
-old hotels, bookstores, art galleries, museums, a golf course, a marina, historic churches
-and cemeteries, several parks, three theatres and lots of restaurants.
-Because it is small, Niagara-on-the-Lake is a good place to walk around or bicycle
-around. There are also horse and wagon rides. Although the main street can be hectic in
-tourist season, one doesn't have to go far off the main street to get in touch with an older
-slower time. Most of the downtown buildings haven't changed much since the days of
-Queen Victoria, and tourists can still imagine that they are back in the days before
-computers and television
-------------------------------------------------------------------------------------------------------------------------
-Article #10
-Newspapers
-All the great cities in the world now have newspapers. But newspapers, as we know them
-today, are not that old. The very first newspapers began long after the invention of
-printing. They started in Europe in the 1600s, and were usually only a couple of pages
-long. For a long time, newspapers were not very common. Governments didn't want
-public discussion of their policies and decisions. Often they closed down papers, or
-taxed them heavily. The "Stamp Tax" on newspapers and pamphlets was one of the
-causes of the American Revolution.
-Newspapers began to grow in size when they discovered advertising as a source of
-income. Nowadays, advertising is the main revenue source for most newspapers. As
-newspapers became more widely circulated, they could ask for more money for their
-advertisements. By the late eighteenth century, newspapers were in common use in
-Europe.
-The 1800s and early 1900s was the golden age of newspapers. Improvements in
-transportation, communication and printing processes made it easier to collect news
-from near and far and to publish papers more quickly and more cheaply. The Weekly
-Dispatch and the Times, both of London, England, were leading newspapers through
-much of the 1800s. The Times was one of the first papers to include illustrations. It was
-the first newspaper to use a steam engine to turn the presses. When the tax on
-newspapers was reduced in 1836, the Times was able to increase its size considerably. In
-1840, it began to use the telegraph to collect news stories. In 1855 the tax on newspapers
-was finally lifted.
-The Times made its greatest reputation during the Crimean War between Britain and
-Russia. British armies, fighting in Russia's Crimean Peninsula, were not only
-unsuccessful in the war, but were suffering severely from illnesses. The Times sent out
-the world's first war correspondent, William Howard Russell, in 1854. His reports from
-the battle lines had a powerful effect on the British public. A War Fund was organized to
-help the soldiers. Russell forced the government to accept the offer of Florence
-Nightingale to organize nurses to travel to Crimea. A photographer, Roger Fenton, sent
-back photos from the war, which were published in the Times.
-Meanwhile in America, a more popular approach to newspapers had developed. The
-newspaper had spread west with the pioneers, and nearly every little settlement had its
-own paper. American newspapers were cheaper and livelier than British ones. They were
-aimed at the average person, rather than the governing class. Examples of the new style
-of editing and publishing were Joseph Pulitzer and William Randolph Hearst. Hearst,
-especially, employed sensational and emotional writing, which aimed at stirring up the
-public to action. Hearst is sometimes accused of starting the Spanish-American War of
-
-12 | P a g ewww. irlanguage .com
-1898 with his over-heated editorials. Nonetheless, his methods were successful in
-raising circulation and were widely imitated.
-The modern newspaper contains more than hard news. In fact, news may be a fairly small
-part of it. Advertisements, gossip, show business, photos of celebrities, sports, stock
-market prices, horoscopes, comic strips, weather reports and much more are found in its
-pages. The modern newspaper is a total entertainment package. A question for the future
-is whether electronic newspapers will replace paper newspapers.
-------------------------------------------------------------------------------------------------------------------------
-Article #11
-Paul Kane, Frontier Artist
-Since Christopher Columbus first met American Indians in 1492, many Europeans had
-been fascinated by Indian life and culture. As a result, there was a demand in Europe for
-drawings and paintings of Native Americans. European artists who had never seen an
-Indian supplied most of this demand. But in the nineteenth century, several painters
-traveled into Indian Territory to make an authentic record of native life. One of the first
-artists to do this was the American painter George Catlin. In 1841, Catlin published a
-book of his work. Catlin's work helped inspire another important frontier artist, the
-Canadian Paul Kane.
-Paul Kane was born in Ireland in 1810. His family moved to Toronto, Ontario, Canada,
-when Paul was nine years old. The young boy was not very interested in school. At that
-time, there were still Indians living in wigwams in the Toronto area. Young Paul liked
-visiting the Indian village instead of going to school.
-Since Paul spent little time in school, he was largely a self-taught artist. He also became
-a surprisingly good writer, considering that he had not spent much time studying
-spelling or grammar. After working some years making and decorating furniture, Kane
-was ready to travel. He spent the years from 1836 to 1841 living and traveling in the
-United States. Then he traveled in Europe from 1841 to 1843, studying the great painters
-of the past. He was back in the U.S.A. until 1845, and then he returned to Toronto.
-Immediately upon his return, Kane headed into the wilderness areas around Georgian
-Bay, Sault Ste. Marie, and Lake Michigan. His plan was to sketch Indian life before it
-disappeared forever. American Indians were dying so rapidly from European diseases,
-such as measles and smallpox, that many people believed that they would soon vanish
-as a race. Their culture was threatened too. As white settlers demanded more land,
-Indians were being herded into small pieces of land called "reservations." Here they
-could no longer practice their traditional way of life. Kane wanted to capture Native
-American life while it still existed.
-Kane returned to Toronto at the end of 1845. He had received one good piece of advice
-and that was if he wanted to travel into the wilderness, he would have to go with
-experienced people. He was able to get the support of the Governor of the Hudson's Bay
-Company, Sir George Simpson. In May 1846, Kane joined the annual canoe fleet of fur
-traders going west. Kane would travel all through the wilderness areas of western
-Canada and northwestern U.S.A. During this time, he made hundreds of sketches of
-Indian life.
-Although Kane faced incredible hardships during his travels, he was able to see what he
-wanted to see. He was able to take part in one of the last great Buffalo hunts and killed
-two large bison himself. Traveling west with the fur traders he visited many forts and
-trading posts. He saw and painted a prairie fire. He shot a grizzly bear at close range and
-
-13 | P a g ewww. irlanguage .com
-killed several wolves that attacked his horses. He learned to travel long distances on
-snowshoes in winter. Finally, he arrived at the Pacific coast, where he made some fine
-drawings of the west coast Indians. European diseases had reached there just before
-Kane. Fifteen hundred Indians had died near Fort Vancouver in the summer of 1848. One
-wealthy chief had ruled 1,000 warriors and had ten wives, four children and eighteen
-slaves. Now he had only one wife, one child and two slaves. Kane had not come too soon.
-However, there were tribes still unaffected by western culture and western diseases.
-Kane also traveled widely around the Columbia River in northwestern U.S.A. Everywhere
-he went, he sketched Indian chiefs and scenes of native life. On his return trip, he
-encountered a large war party of 1,500 braves on the warpath against their traditional
-enemies. He was able to sketch the leading chief, Big Snake, who was later killed in
-single combat during the battle.
-When he arrived back in Toronto, Kane gave an exhibit of his sketches and watercolors.
-Most of the rest of his life was spent turning these drawings into finished paintings.
-------------------------------------------------------------------------------------------------------------------------
-Article #12
-Plains Indians
-The best known picture of an American Indian is a warrior in buckskin, riding a horse,
-wearing a headdress of eagle feathers and carrying a spear, or bow and arrow. This is a
-picture of a Plains Indian, and it appears in many Hollywood westerns and on the
-American five-cent piece. There were many tribes of Plains Indians; for the Northern
-American prairies or plains stretch from the northern forest of western Canada down to
-the States of Oklahoma and Texas in southern U.S.A.
-It is interesting that our image of the Plains Indian is only true for the last couple hundred
-years. It was not until the 1600s that Plains Indians began to ride horses. There were no
-horses in America until Spanish soldiers brought them in the 1500s and 1600s. Some of
-these horses escaped and ran wild on the prairies of America. It was these wild horses
-that the Plains Indians learned to tame.
-Before they had horses, the Indians hunted buffalo on foot. Buffalo were huge bison, or
-wild cattle, which traveled in very large herds. A big herd might have millions of buffalo.
-It was difficult to cross the prairie because these animals blocked your way.
-The Plains Indians had various ways of killing buffalo. Before they had horses, Indian
-hunters would quietly creep up close to the herd; then they would fire their arrows
-together. There was always the danger that the herd would stampede and trample the
-hunters. Another method was to drive the buffalo over a steep cliff. There are a number
-of places on the plains where this was done.
-Once the Plains Indians had horses, they preferred to hunt buffalo on horseback. When
-the tribes started to use guns, they could kill many buffalo. Artist Paul Kane describes a
-buffalo hunt in the Red River Valley in 1846. The hunters carried their bullets in their
-mouths so that they could shoot faster. They would ride right into the herd, shooting at
-close quarters. They would drop an article of clothes on the slain buffalo to mark it for
-themselves. Then they would continue the hunt. After the hunt, the Indians would skin
-the animals, and the women would dry the meat and store it in fat. A single hunt might
-kill more than 30,000 buffalo.
-The Plains Indians received nearly everything they needed from the buffalo. Of course,
-they used buffalo meat for food. They also used the buffalo skins for clothing, blankets,
-and the covering of their teepees. These teepees were cone-shaped tents, which were
-
-14 | P a g ewww. irlanguage .com
-easy to put up and take down. Plains Indians were nomadic, and followed the animals
-they hunted. Since these animals were plentiful, Plains Indians usually led a comfortable
-life. They developed complex religions and social rituals, as well as specialized societies
-or clubs. There were also rituals and customs for hunting and warfare.
-Many Plains Indians fought hard against the settlement of the Great Plains. The American
-government discouraged the hunting of buffalo, because without the buffalo the Plains
-Indians would not be able to fight. With the buffalo disappearing, the Plains Indians had
-to give up fighting and move into government-sponsored reservations.
-------------------------------------------------------------------------------------------------------------------------
-Article #13
-Pocahontas and John Smith
-In 1606, King James of England approved the establishment of two colonies along the
-eastern coast of America. The northern colony in Maine lasted only a year. The southern
-one at Jamestown in Virginia became England's first permanent settlement in America.
-In 1607, the Virginia Company sent 104 settlers to Virginia. The settlers lived in tents all
-summer. By September, more than 60 were dead because they lacked good food or water.
-The leaders of the colony were not energetic and did little to make the settlers find food.
-One member of the company, Captain John Smith, was determined that the colony would
-survive. Smith pressured the colonists to build huts, a storehouse, and a church. He
-made daring trips to Indian villages, demanding that they give the settlers food in return
-for beads and copper. He threatened settlers who were trying to leave the colony and go
-back to England.
-On one of his trips to the interior, Indians attacked John Smith. They killed his two
-companions but captured him alive. He was taken first to the local chief. This chief was
-impressed by Smith's compass and spared his life. His captors dragged Smith from
-village to village. He finally arrived at the town belonging to Powhatan. Powhatan was the
-great chief for all of the tribes in that region. Powhatan and his advisors talked about
-what to do with Smith. Suddenly, Smith was dragged forward, and his head was pushed
-against a stone. The warriors raised their clubs to kill Smith. Then Pocahontas, who was
-Powhatan's twelve-year-old daughter, begged for his life. Her words had no effect, so
-Pocahontas ran to Smith. She took his head in her arms and laid her own head against
-his head. Smith was released and went back to Jamestown.
-Soon after Smith returned, one hundred new settlers from England arrived. It was a very
-cold winter, and in January, Jamestown was accidentally set on fire. The settlers suffered
-from cold and hunger the rest of the winter. Every four or five days, Pocahontas and her
-attendants came. They brought food for the hungry settlers. Even so, half of them died.
-In the summer, John Smith explored that part of the coast of America. He made a map
-that would be very valuable for future sailors and settlers.
-On his return, Smith was elected leader of the colony at Jamestown. However, some
-settlers did not like having to follow rules. Some encouraged the Indians to try to kill
-Smith. Chief Powhatan agreed. He also refused to supply food to the colony, hoping to
-starve them out. Pocahontas warned Smith about the plot against his life. Smith had to
-fight off several attempts to kill him. Finally, the colony seemed to be growing, and the
-Indians became peaceful. But in late 1609, Smith was injured in an explosion and
-returned to England.
-Pocahontas remained a friend to the colony. She married John Rolfe, one of the settlers.
-In 1616, she traveled to England with her husband and son. There she saw John Smith
-
-15 | P a g ewww. irlanguage .com
-once again. She was so surprised to see him that she was unable to speak for several
-days. Pocahontas had believed that Smith was dead. The following year she died and
-was buried in England.
-Pocahontas' love for Smith, and Smith's determination to fight for the colony, had saved
-Jamestown and given the English their first colony in America.

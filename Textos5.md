@@ -1,4 +1,4 @@
-## 206 - What I Look for in a Friend.
+## 121 - What I Look for in a Friend.
 
 >*What is it that makes somebody your friend?  
 Some people are nice, and you have fun with them.  
@@ -29,7 +29,7 @@ A good friend is worth more than all the gold in the world.
 A good friend will make your journey through life more pleasant.  
 Make friends along the way, and the path through life will be very rewarding.*
 
-## 207 - A Funny Thing Happened on the way to School.
+## 122 - A Funny Thing Happened on the way to School.
 
 >*Last Friday it was very windy.  
 I was walking down the street with my friend John.  
@@ -65,7 +65,7 @@ We laughed about it all the way to school.
 John said that he wished he had a camera.  
 He would have taken a picture of me with the bag on my face.* 
 
-## 208 - Advice.
+## 123 - Advice.
 
 >*Sometimes my mother gives me advice.  
 She tells me to save my money for a rainy day.  
@@ -100,7 +100,7 @@ But, in the end, I always remember what she has said, and I try to live by the s
 Take the advice that your parents give you.  
 They only have your best interests at heart.*
 
-## 209 - A Trip to the Hospital.
+## 124 - A Trip to the Hospital.
 
 >*I have to get my tonsils out.  
 I'm not really happy about it, but I'm tired of being sick and having sore throats.  
@@ -131,7 +131,7 @@ It won't take long before I recover from my surgery.
 Sometimes, we need surgery to make us feel better.  
 Hospitals can be a bit frightening, but the doctors and nurses are very nice, and their job is to make you better.*
 
-## 210 - What My Cat Did.
+## 125 - What My Cat Did.
 
 >*One day I was sitting in a chair drinking a cup of tea.  
 My cat came into the room and sat on my lap.  
@@ -162,7 +162,7 @@ My cat has never had a drink of tea since that day.
 She has also never eaten another centipede.  
 If a centipede walks by, she just pretends that she doesn't see it.*
 
-## 211 - If I Was Tiny.
+## 126 - If I Was Tiny.
 
 >*Imagine what life would be like if you were two inches tall.  
 You would have to be careful that nobody stepped on you.  
@@ -193,7 +193,7 @@ I wouldn't want a book to fall on me.
 I would be afraid of being swept away by a big gust of wind.  
 I think I'd rather be my size.*
 
-## 212 - If I were a Giant.
+## 127 - If I were a Giant.
 
 >*If I were a giant, I wouldn't be able to fit in my house.  
 I'd have to live in a building that had a high ceiling, but I'd probably have a hard time getting through the door.  
@@ -223,7 +223,7 @@ I won't ever make a wish to be a giant.
 I would rather be my height.  
 I'm very happy the way I am.*
 
-## 213 - Do People Have the Right to Smoke in Public?
+## 128 - Do People Have the Right to Smoke in Public?
 
 >*My father used to smoke.  
 He got very ill.  
@@ -255,7 +255,7 @@ People should be educated about the dangers of smoking.
 Smoking should be banned in public places, but eventually I would like to believe that fewer people will smoke.  
 It would be nice to live in a smoke free environment.*
 
-## 214 - My Favorite Bedtime Story.
+## 129 - My Favorite Bedtime Story.
 
 >*Every night when I was little, my mother would read me a bedtime story.  
 My favorite story was Tom's Midnight Garden.  
@@ -281,7 +281,7 @@ I really enjoyed Tom's Midnight Garden and I was very sad when my mother and I c
 I felt that I had visited the magical garden with Tom.  
 It is a book that I will remember all of my life.*
 
-## 215 - If I Found a Magic Lamp.
+## 130 - If I Found a Magic Lamp.
 
 >*If I was walking down the beach on day, and I happened to bump my toe on a magic lamp, I would pick it up and rub it.  
 If it was a real magic lamp (but I don't believe that there really is a magic lamp), a genie would pop out in a cloud of smoke, and he would call me master.  
@@ -313,7 +313,7 @@ That's how I can get my three wishes, not through a magic lamp.
 I can only get what I want through self-determination and hard work.  
 That is the key to getting your wishes fulfilled.*
 
-## 216 - Superstitions.
+## 131 - Superstitions.
 
 >*I am not superstitious, are you?  
 Yesterday was Friday the thirteenth.  
@@ -341,7 +341,7 @@ Some of them are very old and have been passed down from generation to generatio
 I once did a project at school on superstitions.  
 It was a very interesting topic, and I got a good mark for it.*
 
-## 217 - Help.
+## 132 - Help.
 
 >*Did you ever have to call for help?  
 Were you ever in a situation that was an emergency? 
@@ -364,7 +364,7 @@ It is important to remain calm if you need help.
 If you call an emergency number, you have to be able to speak clearly, and tell the person you are talking to exactly what the problem is.  
 I hope you are never in an emergency situation, but it is a good idea to be prepared.*
 
-## 218 - The Peach Orchard.
+## 133 - The Peach Orchard.
 
 >*When I was very young, I lived near a peach orchard.  
 Now, there is a park where the orchard used to be.  
@@ -395,7 +395,7 @@ It's good to have memories like that.
 Childhood memories of time spent with my grandmother are very precious to me.  
 Sometimes, it's just the simple things that you do in life that leave you with the nicest memories.*
 
-## 219 - Learning to Dance.
+## 134 - Learning to Dance.
 
 >*I went to England with my mother.  
 She used to be a singer in a band.  
@@ -429,7 +429,7 @@ The way that I dance is different from the way that my mother dances.
 The way that I dance doesn't involve moving your feet too much.  
 I'm not too good at fancy steps.*
 
-## 220 - Super Heroes.
+## 135 - Super Heroes.
 
 >*When my brother was very young, he loved super heroes.  
 He collected plastic figures of all the super heroes.  
@@ -456,7 +456,7 @@ I look at him and remember when I used to do things like that.
 I'm more mature than my brother.  
 I know that super heroes aren't real, but I know that he is having fun and using his imagination.*
 
-## 221 - Being a Princess.
+## 136 - Being a Princess.
 
 >*Sometimes, I think that I would like to be a princess.  
 A princess would live in a palace and wear beautiful clothes.  
@@ -481,7 +481,7 @@ People don't follow me around and take my picture.
 Whenever you see a picture of a princess, she is smiling.  
 I wonder if she is smiling on the inside, or just smiling for the camera.*
 
-## 222 - My Worst Fear.
+## 137 - My Worst Fear.
 
 >*I am afraid of water.  
 I don't know why I am afraid.  
@@ -511,7 +511,7 @@ By this time next year, I would like to be able to swim the length of the pool w
 It is best to face your fears and deal with them.  
 I hope that I can overcome my fear of water.*
 
-## 223 - If I Live to be 100.
+## 138 - If I Live to be 100.
 
 >*I think I would like to live to be 100.  
 It seems like an awfully long time to live.  
@@ -535,7 +535,7 @@ Maybe in the future with better medical care and healthier lifestyles, more peop
 If I live to be 100, I'll have a birthday cake, but I won't put 100 candles on the cake.  
 I could never blow out 100 candles.*
 
-## 224 - What I Like Most and Least About Myself.
+## 139 - What I Like Most and Least About Myself.
 
 >*I was trying to think up the best and the worst things about myself.  
 I think the best thing about me is that I am very friendly.  
@@ -560,7 +560,7 @@ I have to work at getting over my sad moods more quickly.
 Being sad doesn't do anyone any good.  
 There is no use in feeling sorry for oneself.*
 
-## 225 - The Trunk in the Attic.
+## 140 - The Trunk in the Attic.
 
 >*Last month my grandmother asked me if I could help her to clean out her attic.  
 I was happy that she asked me.  
@@ -597,7 +597,7 @@ My grandmother told me to keep whatever I wanted.
 She said that it was all junk.  
 I still say that the trunk was full of treasures.*
 
-## 226 - Hot and Cold.
+## 141 - Hot and Cold.
 
 >*I notice that whenever it is summer, people complain about the heat, but whenever it is winter, people complain about the cold.  
 It seems that people are never satisfied.  
@@ -624,7 +624,7 @@ It is nicer when the heat is high, but the humidity is low.
 It would be better if I lived somewhere where it was hot, but not humid.  
 That would be just perfect.*
 
-## 227 - Walk a Mile in My Shoes.
+## 142 - Walk a Mile in My Shoes.
 
 >*Have you ever heard the saying "walk a mile in my shoes?" 
 I think it is a very good saying.  
@@ -646,7 +646,7 @@ No two people have gone through the exact same things.
 So, before you are quick to judge someone, stop and think about what it is that they might have gone through.  
 You won't always understand why people do what they do, but you can try to understand and put yourself in their position.*
 
-## 228 - If I Could Go Back in My Life.
+## 143 - If I Could Go Back in My Life.
 
 >*If I could go back in my life and do some things differently, this is what I would do:
 I would not waste so many hours in front of the television set.  
@@ -671,7 +671,7 @@ Sometimes, I am so busy looking forward to what is coming up that I don't take t
 That's what I would do if I could go back in my life.  
 In fact, I think I'll just make a habit of doing all of those things all through my life.*
 
-## 229 - Joking.
+## 144 - Joking.
 
 >*Joking is good.  
 Jokes can be very funny.  
@@ -711,7 +711,7 @@ Do you think it is funny?
 Well, maybe it's not that funny.  
 I told you that it was difficult being a comedian.*
 
-## 230 - Drugs.
+## 145 - Drugs.
 
 >*There are two different types of drugs.  
 There are legal drugs and illegal drugs.  
@@ -741,7 +741,7 @@ In America, they had a saying.
 "Just say no to drugs." 
 It is a good saying, but I think I would rather say, "I'm just too smart to take drugs."*
 
-## 231 - Divorce.
+## 146 - Divorce.
 
 >*Mary's parents just got a divorce.   
 Mary is very upset.   
@@ -772,7 +772,7 @@ If your parents get a divorce, just be understanding.
 Know that they love you and that this is a hard time for them.   
 It is a hard time for you too, but these things have a way of working themselves out in the end.*
 
-## 232 - If my Fish Could Talk.
+## 147 - If my Fish Could Talk.
 
 >*I have a goldfish.   
 He swims around in his bowl all day.   
@@ -800,7 +800,7 @@ I just like to pretend that my goldfish talks.
 He seems very happy now with his nice new home, and his new friends.   
 I don't think goldfish can smile either, but it looks like my goldfish has a smile on his face.*
 
-## 233 - The Best Teacher.
+## 148 - The Best Teacher.
 
 >*I have had a lot of teachers.   
 Some of them were good, and some of them were boring.   
@@ -830,7 +830,7 @@ They weren't just fictional people.
 After I took history from Mr. Alban, I realized that I really did have an interest in it.     
 He was my favorite teacher, and I will always be grateful to him for making me aware of just how interesting history really is.*
 
-## 234 - Weather.
+## 149 - Weather.
 
 >*Sometimes, I watch the weatherman on television.   
 It is fascinating to watch him point to different areas of the country on the map.   
@@ -860,7 +860,7 @@ So, if you are planning on walking home tonight, keep an eye on the sky.
 Are those rain clouds up there?   
 You might need an umbrella.*
 
-## 235 - How to Avoid Catching a Cold.
+## 150 - How to Avoid Catching a Cold.
 
 >*How many colds do you catch in a year?   
 Most of my friends catch quite a few colds.   
@@ -892,34 +892,3 @@ Just think of all the germs that you would be putting into your mouth if you did
 If you just give it a little bit of thought, you can avoid a lot of the germs that cause colds.   
 If you eat good foods and stay fit, your body will be able to fight off the germs that cause colds and other diseases.   
 It is not always possible to avoid colds, but if you do catch a cold, drink plenty of fluids and get a lot of rest.*
-
-## 236 - The Future.
-
->*I sometimes wonder what life will be like in the future.   
-Life has changed so much in just the past few years.   
-I'm sure that there are still big changes that are coming.   
-Do you think we'll still drive cars?   
-Maybe we'll get into computerized vehicles that we won't have to drive.   
-We'll just push a few buttons, and the vehicles will take us to wherever we have to go.   
-Maybe there won't be roads.   
-We might just fly through space to get where we want to go.   
-Instead of telephones, we'll just use our computers.   
-We'll be able to see each other when we talk.   
-That type of thing is already happening.   
-Maybe we won't have to cook our meals.   
-We might be able to push buttons to order whatever we want.   
-A nice roast beef dinner, or an ice cream sundae, might just pop out of a machine.   
-It would be nice to have a robot to clean the house for you.   
-In the past few years, computers have been extremely important.   
-People used to write to each other through the mail.   
-Now, people communicate so much more frequently through E-mail.   
-Most of my friends own computers.   
-If we had all of these things to do the work for us, what would we do?   
-We would still need people to program the computers.   
-We could spend more time being creative, rather than doing everyday chores.   
-The future holds many surprises.   
-I'm sure that technology will become even more and more amazing.   
-When my parents were young, they had never even seen a color television.   
-Nobody owned a computer.   
-It doesn't take long for things to change a lot.   
-Who knows what amazing things are in store for us?*
