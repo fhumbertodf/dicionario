@@ -560,11 +560,11 @@ Now his eyesight is bad, and he can't see very well.
 My grandfather tells me stories about when he was a boy.  
 The world was a very different place then he tells me.  
 His stories are interesting.  
-Sometimes I wish we could trade places for a day so that I would know what it felt like to be old.*  
+Sometimes I wish we could trade places for a day so that I would know what it felt like to be old.  
 My grandfather doesn't complain. 
 He jokes about his old bones.  
 I spend a lot of time with my grandfather.  
-I hope that he is around for a long time.
+I hope that he is around for a long time.*
 
 ## 109 - Time.
 
