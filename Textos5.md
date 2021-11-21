@@ -1,146 +1,3 @@
-## 201 - I Want to Dye my Hair Green.
-
->*Many of my friends have dyed their hair different colors.  
-I don't mean normal hair colors like brown or black.  
-My friends have dyed their hair orange, purple and blue.  
-I told my mother that I would like to dye my hair green.  
-I explained to my mother that I would only use food coloring.  
-The green would not last forever.  
-My mother said that dyeing your hair was a silly fad.  
-She said that I would not look good with green hair.  
-I said that if I couldn't dye my hair green, maybe I could get a nose ring.  
-My mother said "no."    
-I said that maybe a tattoo on my arm would be nice.  
-My mother said, "no way."    
-My mother said that she did some crazy things when she was a young girl.  
-She said that she used to iron her hair to make it straight.  
-That sounds quite boring to me.  
-My friend Joan came over.  
-Her hair is dyed bright pink.  
-My father said, "nice hair, Joan."    
-I don't think that he really meant it.  
-My mother says that when I am an adult I can dye my hair whatever crazy color I like, but for now she would like me to leave my hair its natural color.  
-I tried to tell her that all my friends were doing it.  
-My mother asked, "if all your friends were jumping off a cliff, would you do it too?"    
-I said "no."    
-I think I'll have to wait to have green hair, but maybe by the time I'm old enough to dye my hair green, I won't want it that color.  
-My mother says that fads change all the time.  
-One day something might be popular, and the next day it's not in style at all.  
-I'll just have to live without green hair for now.  
-I wonder what the fad will be next month.*
-
-## 202 - Why Do People Dislike Other People?
-
->*Some people don't like other people just because they look different.  
-I think that is silly.  
-I don't think that it is fair to judge someone by the way they look.  
-Some people look very nice, but they are mean or cruel.  
-Some people look very ordinary, but they are incredibly nice.  
-I remember when I was in grade one; I saw a girl across the room.  
-She had a mean look on her face.  
-I thought to myself that she was probably not a very nice person.  
-I stayed away from her, and played with the other children.  
-Then, we had to play a game, and the teacher said that she would pick partners for us.  
-The teacher picked the girl with the mean face as my partner.  
-I didn't think that the game would be much fun at all with a partner who seemed as mean as that girl.  
-I walked up to her and said hello.  
-The girl's face changed.  
-She smiled at me, and she began to talk to me.  
-Her mean face disappeared.  
-We had lots of fun playing the game.  
-We laughed a lot and enjoyed each other's company.  
-That girl became my best friend.  
-Now when I look at her I see what is inside her.  
-Sometimes she doesn't smile, but I know what she is like.  
-She is a kind and funny person.  
-I have learned that you can't "judge a book by its cover."    
-It is not fair to dislike someone just because they don't look like you want them to look.  
-You have to get to know a person.  
-It doesn't matter to me what color a person's skin is.  
-It doesn't matter to me if they are short or tall, skinny or fat or happy or sad looking.  
-I judge people by how they treat me, and I try to treat people like I would want to be treated.*
-
-## 203 - The Birthday Gift.
-
->*It is going to be my father's birthday.  
-What can I give him?  
-I don't have much money.  
-I have looked all through the stores, and I have not found anything that I think he would like, or that I can afford.  
-I have thought very hard about what to buy for him.  
-I thought that he might like some candy, but my father really doesn't eat many sweets.  
-I thought that he might like a new shirt, but he has lots of clothes.  
-I can't afford a new car or computer for him.  
-I was watching him on the weekend.  
-He cut the grass, washed the car, took out the garbage, weeded the garden and watered the plants.  
-I got an idea.  
-I went to my room and took out some paper.  
-I cut out pieces of paper, and I wrote on them.  
-I wrote on one piece of paper that I would wash the car every weekend for the summer.  
-I wrote on another piece that I would take out the garbage every week for the summer.  
-I also wrote that I would cut the grass, weed the garden and water the plants every week for the summer.  
-I made a birthday card for my dad, and I put the pieces of paper inside it.  
-I went downstairs and gave my gift to my dad.  
-My dad thought that the gift was very thoughtful.  
-He said that it was a gift from the heart.  
-I did all those things for my dad all summer.  
-He said that he had a lot of free time because I helped him so much.  
-My dad and I are good friends.  
-I don't mind doing things for him because I know that he is always there to help me out.  
-A good gift doesn't have to be something that costs a lot.  
-My dad says that the best gifts are the ones that show how much you care for the other person.  
-I'm glad my dad liked his gift.*
-
-## 204 - New Year's Day On New Year's Day people start a new year.  
-
->*Many people make resolutions.  
-They resolve to be better people.  
-Some people decide that they will lose weight so that they can be healthier.  
-Some people decide to give up smoking.  
-They also want to be healthier.  
-There are all kinds of resolutions that people make.  
-Some people try not to lose their tempers.  
-Some people say that they will work harder.  
-There are people who try to give up bad habits.  
-Every year, my brother says that he will stop biting his nails.  
-He stops biting his nails in January, but by February he always starts again.  
-That is the thing about New Year's resolutions.  
-People seldom keep them.  
-Everybody starts out with good intentions, but it is very hard to stick with them.  
-I don't make New Year's resolutions.  
-I find that I just break them.  
-I just work day by day to break my bad habits.  
-I know that I eat too many sweets.  
-Every day, I just try to resist them.  
-I think that every day is a new day regardless of whether it is New Year's Day or not.  
-Bad habits are hard to break.  
-The best thing is never to start any bad habits.  
-I don't know if my brother will ever stop biting his nails, but I know that each January he intends to stop.  
-Maybe one of these New Year's Days he'll get over that habit.*
-
-## 205 - If I Could Fly.
-
->*I sometimes imagine what it would be like if I could fly like a bird.  
-Just imagine what it would be like to soar into the sky, flying high above the trees.  
-You could stand on high rooftops and never be afraid of falling.  
-You would see so many things as you flew over rooftops and forests.  
-You would feel incredibly free as you traveled from place to place, not bothered by road signs or traffic jams.  
-If I could fly like a bird, I would start from my back yard and travel through town.  
-I would look down on the houses and factories.  
-When I got tired, I would land in a field and take a nap.  
-I would travel above rivers, and follow them as they wound along and emptied into lakes and oceans.  
-I would fly above parks, and I would call out to the children as I flew high above them.  
-I would dip and dive as I flew.  
-I would soar up high and dive down low so that I could almost touch the treetops.  
-Have you ever flown?   
-I know that you can't fly like a bird, but you might have taken an airplane ride.  
-When you're in an airplane, you pass through clouds.  
-It is exciting to take an airplane ride.  
-I love taking airplane flights.  
-I like to look down at the Earth.  
-When you are up that high, everything below you looks tiny.  
-That's the closest I'll get to flying like a bird.  
-But I can still use my imagination and spread my wings and soar high above the world just like a bird.* 
-
 ## 206 - What I Look for in a Friend.
 
 >*What is it that makes somebody your friend?  
@@ -883,3 +740,186 @@ If you know someone who is thinking about trying drugs, tell them that their ent
 In America, they had a saying.  
 "Just say no to drugs." 
 It is a good saying, but I think I would rather say, "I'm just too smart to take drugs."*
+
+## 231 - Divorce.
+
+>*Mary's parents just got a divorce.   
+Mary is very upset.   
+She thinks that her parents don't love her anymore.   
+She thinks that they got a divorce because of her.   
+She is wrong.   
+Her parents love her just as much as they always did.   
+They aren't getting divorced because of Mary.   
+Sometimes, marriages just don't work out.   
+It isn't really anyone's fault.   
+Marriage isn't easy.   
+It is hard for two people to stay together for a lifetime.   
+Sometimes, people change as they get older, and they move on.   
+Some people have perfectly good marriages, and they stay together for their entire lives.   
+Divorce doesn't happen because the parents don't love the children anymore.   
+A lot of children feel that it is their fault, but it isn't their fault at all.   
+Children neither cause the divorce, nor can they prevent it.   
+It is up to the parents.   
+Divorce isn't the end of the world.   
+Children can still see both parents and stay with them.   
+Life goes on.   
+Sometimes children can get new stepmothers or stepfathers.   
+That can be a good thing.   
+You just have to be understanding, and know that your parents still love you.   
+Life doesn't always go the way that we planned it, but it has its twists and turns.   
+Life is an adventure.   
+If your parents get a divorce, just be understanding.   
+Know that they love you and that this is a hard time for them.   
+It is a hard time for you too, but these things have a way of working themselves out in the end.*
+
+## 232 - If my Fish Could Talk.
+
+>*I have a goldfish.   
+He swims around in his bowl all day.   
+He looks bored.   
+I look inside the bowl and watch him.     
+His mouth always moves.   
+He looks like he is talking.   
+I imagine what my goldfish would say if he really could talk.   
+I think he would say: "Hey, I'm bored in this little bowl. Why don't you get me a bigger tank with more fish in it? I would like to have some friends to swim around with."   
+I went out and bought a bigger tank for my goldfish.   
+I put some plants at the bottom of the tank, and I got a miniature deep-sea diver to put at the bottom of the tank.   
+I looked into the tank and imagined what my goldfish was saying.   
+He seemed to be saying: "This is a nice tank. It's roomy in here, and you decorated it well, but I still don't have any friends to swim with."   
+I went to the pet store and bought three more goldfish.   
+I put them into the tank.   
+All of the goldfish seemed to look at each other.   
+They swam near each other and seemed to be playing games.   
+I knew which one was my goldfish because he has a black spot on his fin.   
+I looked at him, and imagined that he was talking again.   
+He said: "This is great! I have a big new home and friends to swim with.   
+These are nice goldfish that you brought home for me; thank you."   
+Goldfish can't really talk.   
+I know that.   
+I just like to pretend that my goldfish talks.   
+He seems very happy now with his nice new home, and his new friends.   
+I don't think goldfish can smile either, but it looks like my goldfish has a smile on his face.*
+
+## 233 - The Best Teacher.
+
+>*I have had a lot of teachers.   
+Some of them were good, and some of them were boring.   
+There is one teacher whom I remember very well.   
+He is the best teacher that I ever had.   
+His name was Mr. Alban.   
+He was a history teacher.   
+History is not my favorite subject.   
+I don't really enjoy history a lot.   
+When I was in Mr. Alban's class, he made history seem exciting.   
+He was more of an actor than a teacher.   
+If he was describing a war, he would make us feel all the emotions that the soldiers and their families would have felt.   
+We could almost hear the guns firing and the people shouting.   
+He would paint a picture in our minds that was very vivid.   
+When I had a history test in his class, I didn't have to study much.   
+I would remember every word that he had said.   
+I would see him doing the actions that went along with his stories.   
+He was very animated.   
+He would shout out orders as if he was a general, or he would speak softly and reverently when describing the death of a great hero.   
+The most important thing that I learned from Mr. Alban was that I did really like history.   
+I just thought that I didn't like it because most people had made it dull by just reading from the textbooks.   
+History is not just a series of dates and dull facts.   
+History is what really happened.   
+History is real life.   
+All the historical figures had real families and emotions.   
+They weren't just fictional people.   
+After I took history from Mr. Alban, I realized that I really did have an interest in it.     
+He was my favorite teacher, and I will always be grateful to him for making me aware of just how interesting history really is.*
+
+## 234 - Weather.
+
+>*Sometimes, I watch the weatherman on television.   
+It is fascinating to watch him point to different areas of the country on the map.   
+He tells us where the weather will be nice and where it will be bad.   
+The weatherman is not always right.   
+Weather reporting is not an exact science.   
+Nothing is very exact when it comes to the weather.   
+The weather department does a lot of research, but they can never be sure of exactly what will happen.   
+Sometimes, it looks like it will be clear, but the wind changes direction and clouds move in.   
+The weatherman can warn people if there is a chance of a hurricane or tornado.   
+The weatherman can also warn people of floods.   
+Sometimes, entire towns have to be evacuated because of bad weather.   
+It is important to be aware of the weather.   
+For example, it is not good to be caught in the middle of a field when there is going to be a thunderstorm.   
+You might want to take extra precautions if there is going to be a heavy snowstorm.   
+You would need to be in a secure place if a hurricane or tornado was predicted.   
+You might want to cancel a picnic if you knew that it would rain that day.   
+The weather affects us in so many ways.   
+Some people are really affected by dull, cloudy days.   
+If there are no sunny days, they become very depressed.   
+Heavy air pressure can cause some people to have headaches.     
+Weather affects all of us in one way or another.   
+It is always a topic of conversation.   
+People often say things like "hello, it's a beautiful day today."   
+Often we plan our lives and activities around the weather.   
+So, if you are planning on walking home tonight, keep an eye on the sky.   
+Are those rain clouds up there?   
+You might need an umbrella.*
+
+## 235 - How to Avoid Catching a Cold.
+
+>*How many colds do you catch in a year?   
+Most of my friends catch quite a few colds.   
+They cough, sniffle and sneeze.   
+They carry around tissues and blow their noses all the time.   
+Their eyes water, and they have scratchy throats.   
+I don't get many colds.   
+In fact, I can go for a whole year and never catch a cold.   
+That is why I consider myself an expert on how not to catch a cold.   
+I'll tell you how to avoid catching a cold.   
+I think that you need to take a lot of vitamin C.   
+I eat a lot of fruits and vegetables.   
+I drink fruit juice too.   
+I also take vitamin C pills.   
+Whenever I begin to feel a cold coming on, I make sure that I have taken my vitamin C pill, and I drink a lot of orange juice.   
+That usually knocks the cold right out of my system.   
+I make sure that I get a lot of fresh air.   
+In the winter, a lot of buildings are shut up tight so that the air is stale, and people's germs circulate through the buildings.   
+I get outside and breathe in fresh clean air.   
+If somebody is rude enough to cough or sneeze right in front of me without covering his or her mouth, I just hold my breath for a second.    
+I'm not sure if this works or not, but I don't want to breathe in anybody's cold germs.   
+Many germs are passed through hands.   
+It is important to wash your hands thoroughly if you touch anything in a public place.   
+If I hold a banister while I am walking down the stairs, I think of all the people who have used that banister, and I make sure that I wash my hands before I eat.   
+Doorknobs also have a lot of germs on them.   
+Money is another thing that is passed from hand to hand and is covered with germs.   
+Sometimes, I see people stick money into their mouths.   
+Just think of all the germs that you would be putting into your mouth if you did that.   
+If you just give it a little bit of thought, you can avoid a lot of the germs that cause colds.   
+If you eat good foods and stay fit, your body will be able to fight off the germs that cause colds and other diseases.   
+It is not always possible to avoid colds, but if you do catch a cold, drink plenty of fluids and get a lot of rest.*
+
+## 236 - The Future.
+
+>*I sometimes wonder what life will be like in the future.   
+Life has changed so much in just the past few years.   
+I'm sure that there are still big changes that are coming.   
+Do you think we'll still drive cars?   
+Maybe we'll get into computerized vehicles that we won't have to drive.   
+We'll just push a few buttons, and the vehicles will take us to wherever we have to go.   
+Maybe there won't be roads.   
+We might just fly through space to get where we want to go.   
+Instead of telephones, we'll just use our computers.   
+We'll be able to see each other when we talk.   
+That type of thing is already happening.   
+Maybe we won't have to cook our meals.   
+We might be able to push buttons to order whatever we want.   
+A nice roast beef dinner, or an ice cream sundae, might just pop out of a machine.   
+It would be nice to have a robot to clean the house for you.   
+In the past few years, computers have been extremely important.   
+People used to write to each other through the mail.   
+Now, people communicate so much more frequently through E-mail.   
+Most of my friends own computers.   
+If we had all of these things to do the work for us, what would we do?   
+We would still need people to program the computers.   
+We could spend more time being creative, rather than doing everyday chores.   
+The future holds many surprises.   
+I'm sure that technology will become even more and more amazing.   
+When my parents were young, they had never even seen a color television.   
+Nobody owned a computer.   
+It doesn't take long for things to change a lot.   
+Who knows what amazing things are in store for us?*

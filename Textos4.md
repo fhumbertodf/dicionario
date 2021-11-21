@@ -778,3 +778,146 @@ My bedroom is very cozy.
 At night, I turn off the lamp and get under the covers.  
 I set my alarm clock for seven o'clock.  
 I lay my head on the pillow, and I fall asleep.*
+
+## 201 - I Want to Dye my Hair Green.
+
+>*Many of my friends have dyed their hair different colors.  
+I don't mean normal hair colors like brown or black.  
+My friends have dyed their hair orange, purple and blue.  
+I told my mother that I would like to dye my hair green.  
+I explained to my mother that I would only use food coloring.  
+The green would not last forever.  
+My mother said that dyeing your hair was a silly fad.  
+She said that I would not look good with green hair.  
+I said that if I couldn't dye my hair green, maybe I could get a nose ring.  
+My mother said "no."    
+I said that maybe a tattoo on my arm would be nice.  
+My mother said, "no way."    
+My mother said that she did some crazy things when she was a young girl.  
+She said that she used to iron her hair to make it straight.  
+That sounds quite boring to me.  
+My friend Joan came over.  
+Her hair is dyed bright pink.  
+My father said, "nice hair, Joan."    
+I don't think that he really meant it.  
+My mother says that when I am an adult I can dye my hair whatever crazy color I like, but for now she would like me to leave my hair its natural color.  
+I tried to tell her that all my friends were doing it.  
+My mother asked, "if all your friends were jumping off a cliff, would you do it too?"    
+I said "no."    
+I think I'll have to wait to have green hair, but maybe by the time I'm old enough to dye my hair green, I won't want it that color.  
+My mother says that fads change all the time.  
+One day something might be popular, and the next day it's not in style at all.  
+I'll just have to live without green hair for now.  
+I wonder what the fad will be next month.*
+
+## 202 - Why Do People Dislike Other People?
+
+>*Some people don't like other people just because they look different.  
+I think that is silly.  
+I don't think that it is fair to judge someone by the way they look.  
+Some people look very nice, but they are mean or cruel.  
+Some people look very ordinary, but they are incredibly nice.  
+I remember when I was in grade one; I saw a girl across the room.  
+She had a mean look on her face.  
+I thought to myself that she was probably not a very nice person.  
+I stayed away from her, and played with the other children.  
+Then, we had to play a game, and the teacher said that she would pick partners for us.  
+The teacher picked the girl with the mean face as my partner.  
+I didn't think that the game would be much fun at all with a partner who seemed as mean as that girl.  
+I walked up to her and said hello.  
+The girl's face changed.  
+She smiled at me, and she began to talk to me.  
+Her mean face disappeared.  
+We had lots of fun playing the game.  
+We laughed a lot and enjoyed each other's company.  
+That girl became my best friend.  
+Now when I look at her I see what is inside her.  
+Sometimes she doesn't smile, but I know what she is like.  
+She is a kind and funny person.  
+I have learned that you can't "judge a book by its cover."    
+It is not fair to dislike someone just because they don't look like you want them to look.  
+You have to get to know a person.  
+It doesn't matter to me what color a person's skin is.  
+It doesn't matter to me if they are short or tall, skinny or fat or happy or sad looking.  
+I judge people by how they treat me, and I try to treat people like I would want to be treated.*
+
+## 203 - The Birthday Gift.
+
+>*It is going to be my father's birthday.  
+What can I give him?  
+I don't have much money.  
+I have looked all through the stores, and I have not found anything that I think he would like, or that I can afford.  
+I have thought very hard about what to buy for him.  
+I thought that he might like some candy, but my father really doesn't eat many sweets.  
+I thought that he might like a new shirt, but he has lots of clothes.  
+I can't afford a new car or computer for him.  
+I was watching him on the weekend.  
+He cut the grass, washed the car, took out the garbage, weeded the garden and watered the plants.  
+I got an idea.  
+I went to my room and took out some paper.  
+I cut out pieces of paper, and I wrote on them.  
+I wrote on one piece of paper that I would wash the car every weekend for the summer.  
+I wrote on another piece that I would take out the garbage every week for the summer.  
+I also wrote that I would cut the grass, weed the garden and water the plants every week for the summer.  
+I made a birthday card for my dad, and I put the pieces of paper inside it.  
+I went downstairs and gave my gift to my dad.  
+My dad thought that the gift was very thoughtful.  
+He said that it was a gift from the heart.  
+I did all those things for my dad all summer.  
+He said that he had a lot of free time because I helped him so much.  
+My dad and I are good friends.  
+I don't mind doing things for him because I know that he is always there to help me out.  
+A good gift doesn't have to be something that costs a lot.  
+My dad says that the best gifts are the ones that show how much you care for the other person.  
+I'm glad my dad liked his gift.*
+
+## 204 - New Year's Day On New Year's Day people start a new year.  
+
+>*Many people make resolutions.  
+They resolve to be better people.  
+Some people decide that they will lose weight so that they can be healthier.  
+Some people decide to give up smoking.  
+They also want to be healthier.  
+There are all kinds of resolutions that people make.  
+Some people try not to lose their tempers.  
+Some people say that they will work harder.  
+There are people who try to give up bad habits.  
+Every year, my brother says that he will stop biting his nails.  
+He stops biting his nails in January, but by February he always starts again.  
+That is the thing about New Year's resolutions.  
+People seldom keep them.  
+Everybody starts out with good intentions, but it is very hard to stick with them.  
+I don't make New Year's resolutions.  
+I find that I just break them.  
+I just work day by day to break my bad habits.  
+I know that I eat too many sweets.  
+Every day, I just try to resist them.  
+I think that every day is a new day regardless of whether it is New Year's Day or not.  
+Bad habits are hard to break.  
+The best thing is never to start any bad habits.  
+I don't know if my brother will ever stop biting his nails, but I know that each January he intends to stop.  
+Maybe one of these New Year's Days he'll get over that habit.*
+
+## 205 - If I Could Fly.
+
+>*I sometimes imagine what it would be like if I could fly like a bird.  
+Just imagine what it would be like to soar into the sky, flying high above the trees.  
+You could stand on high rooftops and never be afraid of falling.  
+You would see so many things as you flew over rooftops and forests.  
+You would feel incredibly free as you traveled from place to place, not bothered by road signs or traffic jams.  
+If I could fly like a bird, I would start from my back yard and travel through town.  
+I would look down on the houses and factories.  
+When I got tired, I would land in a field and take a nap.  
+I would travel above rivers, and follow them as they wound along and emptied into lakes and oceans.  
+I would fly above parks, and I would call out to the children as I flew high above them.  
+I would dip and dive as I flew.  
+I would soar up high and dive down low so that I could almost touch the treetops.  
+Have you ever flown?   
+I know that you can't fly like a bird, but you might have taken an airplane ride.  
+When you're in an airplane, you pass through clouds.  
+It is exciting to take an airplane ride.  
+I love taking airplane flights.  
+I like to look down at the Earth.  
+When you are up that high, everything below you looks tiny.  
+That's the closest I'll get to flying like a bird.  
+But I can still use my imagination and spread my wings and soar high above the world just like a bird.* 

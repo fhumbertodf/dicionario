@@ -1,186 +1,3 @@
-## 231 - Divorce.
-
->*Mary's parents just got a divorce.   
-Mary is very upset.   
-She thinks that her parents don't love her anymore.   
-She thinks that they got a divorce because of her.   
-She is wrong.   
-Her parents love her just as much as they always did.   
-They aren't getting divorced because of Mary.   
-Sometimes, marriages just don't work out.   
-It isn't really anyone's fault.   
-Marriage isn't easy.   
-It is hard for two people to stay together for a lifetime.   
-Sometimes, people change as they get older, and they move on.   
-Some people have perfectly good marriages, and they stay together for their entire lives.   
-Divorce doesn't happen because the parents don't love the children anymore.   
-A lot of children feel that it is their fault, but it isn't their fault at all.   
-Children neither cause the divorce, nor can they prevent it.   
-It is up to the parents.   
-Divorce isn't the end of the world.   
-Children can still see both parents and stay with them.   
-Life goes on.   
-Sometimes children can get new stepmothers or stepfathers.   
-That can be a good thing.   
-You just have to be understanding, and know that your parents still love you.   
-Life doesn't always go the way that we planned it, but it has its twists and turns.   
-Life is an adventure.   
-If your parents get a divorce, just be understanding.   
-Know that they love you and that this is a hard time for them.   
-It is a hard time for you too, but these things have a way of working themselves out in the end.*
-
-## 232 - If my Fish Could Talk.
-
->*I have a goldfish.   
-He swims around in his bowl all day.   
-He looks bored.   
-I look inside the bowl and watch him.     
-His mouth always moves.   
-He looks like he is talking.   
-I imagine what my goldfish would say if he really could talk.   
-I think he would say: "Hey, I'm bored in this little bowl. Why don't you get me a bigger tank with more fish in it? I would like to have some friends to swim around with."   
-I went out and bought a bigger tank for my goldfish.   
-I put some plants at the bottom of the tank, and I got a miniature deep-sea diver to put at the bottom of the tank.   
-I looked into the tank and imagined what my goldfish was saying.   
-He seemed to be saying: "This is a nice tank. It's roomy in here, and you decorated it well, but I still don't have any friends to swim with."   
-I went to the pet store and bought three more goldfish.   
-I put them into the tank.   
-All of the goldfish seemed to look at each other.   
-They swam near each other and seemed to be playing games.   
-I knew which one was my goldfish because he has a black spot on his fin.   
-I looked at him, and imagined that he was talking again.   
-He said: "This is great! I have a big new home and friends to swim with.   
-These are nice goldfish that you brought home for me; thank you."   
-Goldfish can't really talk.   
-I know that.   
-I just like to pretend that my goldfish talks.   
-He seems very happy now with his nice new home, and his new friends.   
-I don't think goldfish can smile either, but it looks like my goldfish has a smile on his face.*
-
-## 233 - The Best Teacher.
-
->*I have had a lot of teachers.   
-Some of them were good, and some of them were boring.   
-There is one teacher whom I remember very well.   
-He is the best teacher that I ever had.   
-His name was Mr. Alban.   
-He was a history teacher.   
-History is not my favorite subject.   
-I don't really enjoy history a lot.   
-When I was in Mr. Alban's class, he made history seem exciting.   
-He was more of an actor than a teacher.   
-If he was describing a war, he would make us feel all the emotions that the soldiers and their families would have felt.   
-We could almost hear the guns firing and the people shouting.   
-He would paint a picture in our minds that was very vivid.   
-When I had a history test in his class, I didn't have to study much.   
-I would remember every word that he had said.   
-I would see him doing the actions that went along with his stories.   
-He was very animated.   
-He would shout out orders as if he was a general, or he would speak softly and reverently when describing the death of a great hero.   
-The most important thing that I learned from Mr. Alban was that I did really like history.   
-I just thought that I didn't like it because most people had made it dull by just reading from the textbooks.   
-History is not just a series of dates and dull facts.   
-History is what really happened.   
-History is real life.   
-All the historical figures had real families and emotions.   
-They weren't just fictional people.   
-After I took history from Mr. Alban, I realized that I really did have an interest in it.     
-He was my favorite teacher, and I will always be grateful to him for making me aware of just how interesting history really is.*
-
-## 234 - Weather.
-
->*Sometimes, I watch the weatherman on television.   
-It is fascinating to watch him point to different areas of the country on the map.   
-He tells us where the weather will be nice and where it will be bad.   
-The weatherman is not always right.   
-Weather reporting is not an exact science.   
-Nothing is very exact when it comes to the weather.   
-The weather department does a lot of research, but they can never be sure of exactly what will happen.   
-Sometimes, it looks like it will be clear, but the wind changes direction and clouds move in.   
-The weatherman can warn people if there is a chance of a hurricane or tornado.   
-The weatherman can also warn people of floods.   
-Sometimes, entire towns have to be evacuated because of bad weather.   
-It is important to be aware of the weather.   
-For example, it is not good to be caught in the middle of a field when there is going to be a thunderstorm.   
-You might want to take extra precautions if there is going to be a heavy snowstorm.   
-You would need to be in a secure place if a hurricane or tornado was predicted.   
-You might want to cancel a picnic if you knew that it would rain that day.   
-The weather affects us in so many ways.   
-Some people are really affected by dull, cloudy days.   
-If there are no sunny days, they become very depressed.   
-Heavy air pressure can cause some people to have headaches.     
-Weather affects all of us in one way or another.   
-It is always a topic of conversation.   
-People often say things like "hello, it's a beautiful day today."   
-Often we plan our lives and activities around the weather.   
-So, if you are planning on walking home tonight, keep an eye on the sky.   
-Are those rain clouds up there?   
-You might need an umbrella.*
-
-## 235 - How to Avoid Catching a Cold.
-
->*How many colds do you catch in a year?   
-Most of my friends catch quite a few colds.   
-They cough, sniffle and sneeze.   
-They carry around tissues and blow their noses all the time.   
-Their eyes water, and they have scratchy throats.   
-I don't get many colds.   
-In fact, I can go for a whole year and never catch a cold.   
-That is why I consider myself an expert on how not to catch a cold.   
-I'll tell you how to avoid catching a cold.   
-I think that you need to take a lot of vitamin C.   
-I eat a lot of fruits and vegetables.   
-I drink fruit juice too.   
-I also take vitamin C pills.   
-Whenever I begin to feel a cold coming on, I make sure that I have taken my vitamin C pill, and I drink a lot of orange juice.   
-That usually knocks the cold right out of my system.   
-I make sure that I get a lot of fresh air.   
-In the winter, a lot of buildings are shut up tight so that the air is stale, and people's germs circulate through the buildings.   
-I get outside and breathe in fresh clean air.   
-If somebody is rude enough to cough or sneeze right in front of me without covering his or her mouth, I just hold my breath for a second.    
-I'm not sure if this works or not, but I don't want to breathe in anybody's cold germs.   
-Many germs are passed through hands.   
-It is important to wash your hands thoroughly if you touch anything in a public place.   
-If I hold a banister while I am walking down the stairs, I think of all the people who have used that banister, and I make sure that I wash my hands before I eat.   
-Doorknobs also have a lot of germs on them.   
-Money is another thing that is passed from hand to hand and is covered with germs.   
-Sometimes, I see people stick money into their mouths.   
-Just think of all the germs that you would be putting into your mouth if you did that.   
-If you just give it a little bit of thought, you can avoid a lot of the germs that cause colds.   
-If you eat good foods and stay fit, your body will be able to fight off the germs that cause colds and other diseases.   
-It is not always possible to avoid colds, but if you do catch a cold, drink plenty of fluids and get a lot of rest.*
-
-## 236 - The Future.
-
->*I sometimes wonder what life will be like in the future.   
-Life has changed so much in just the past few years.   
-I'm sure that there are still big changes that are coming.   
-Do you think we'll still drive cars?   
-Maybe we'll get into computerized vehicles that we won't have to drive.   
-We'll just push a few buttons, and the vehicles will take us to wherever we have to go.   
-Maybe there won't be roads.   
-We might just fly through space to get where we want to go.   
-Instead of telephones, we'll just use our computers.   
-We'll be able to see each other when we talk.   
-That type of thing is already happening.   
-Maybe we won't have to cook our meals.   
-We might be able to push buttons to order whatever we want.   
-A nice roast beef dinner, or an ice cream sundae, might just pop out of a machine.   
-It would be nice to have a robot to clean the house for you.   
-In the past few years, computers have been extremely important.   
-People used to write to each other through the mail.   
-Now, people communicate so much more frequently through E-mail.   
-Most of my friends own computers.   
-If we had all of these things to do the work for us, what would we do?   
-We would still need people to program the computers.   
-We could spend more time being creative, rather than doing everyday chores.   
-The future holds many surprises.   
-I'm sure that technology will become even more and more amazing.   
-When my parents were young, they had never even seen a color television.   
-Nobody owned a computer.   
-It doesn't take long for things to change a lot.   
-Who knows what amazing things are in store for us?*
-
 ## 237 - Giving a Speech.
 
 >*I had to give a speech last week.   
@@ -918,3 +735,164 @@ Hearing someone call her name, Annie looked around.
 She blinked; once, twice, and finally everything came into focus.   
 Her brother was tugging at her leg, wondering why she was staring into outer space with a big grin on her face!   
 "Oh," Little Annie said, not really knowing that she had been sitting there all along.*
+
+## 261 - My Friend in the Next Office
+
+>*Sometimes she asks my advice now about her work or about a problem and I ask her
+advice. Sometimes she comes in to my office and says " I'm really angry, can I whine to
+you?" Then she talks about a problem and I listen, and then she returns cheerfully to her
+office. Sometimes I go into her office and say. " I'm upset about something that
+happened; can I come in for a minute?" Then I grumble to her and she listens, and then I
+go back cheerfully to my office. Each of us feels better when we have shared our
+problems. Then they are no longer problems.
+My Friend In the Next Office
+When I started my job a year ago at the university, I did not know my way around. I did
+not know where to find anything. I had a million questions. But Dianne in the next office
+took me on a tour showing me the places to eat, the library, the lecture rooms, where to
+get a picture ID card, how to get from one building to another. When I had a question I
+asked Dianne: how to use the telephone, where to make copies, where to print with my
+computer, the location of my mailbox.
+She teaches as I do. We both spend a lot of time helping students and answering their
+questions. She giggles a lot; I hear her laugh with her students.
+Dianne is shy in a group of people. She is quiet and does not start a conversation.
+Everyone around her talks and she listens. On Friday afternoons, she makes popcorn for
+everyone. We all sit in the staff room and eat microwaved popcorn and drink tea and talk.
+We start to relax for the weekend and talk about our plans.
+She is a good friend; she helps my students when I am not there; she wishes me good
+luck when I go to a lecture. I am very glad that she can be my friend in the office beside
+mine.*
+
+## 262 - The Musician
+
+>*There once was a little girl named Rain Angel. She loved to sit at the piano and play. Rain
+Angel was a very gifted girl. She had a voice that gave people shivers, and she loved to
+sing!
+As Rain got older, she continued to love music. Rain became involved in the choirs and
+bands at her high school. She loved performing in front of people. She couldn't help but
+feel the sense of power she had when she was up on stage, and there was always loud
+clapping when she finished a song.
+Rain soon went out on her own and looked for someone that could help her become
+famous. Rain wanted to share her talent with the world. She felt that her special talent for
+music helped people feel good.
+Rain went out into the big world, and she did very well. She was always performing her
+best, and someone finally noticed her. Her new agent helped her to make her first album.
+Rain became famous because she never quit trying.
+Rain loved her new way of life. She continued singing and playing her piano. She was
+even taught how to write her own music!
+Rain Angel had always dreamed of becoming a celebrity. She always remembered her
+friends and family when she was famous because they had always believed in her.
+Rain Angel strove for a faraway place, and it became her reality. She always believed that
+what she wanted to become was her choice. She believed that if you have the strength
+and determination you can make your dreams come true.*
+
+## 263 - The Circus
+
+>*Wow! A big tent was in the middle of the town's parking lot! We were going to a three-ring
+circus. I couldn't wait for it to begin. Inside and outside of the tent, toys, balloons and
+food were being sold. All of the children were so very excited.
+Inside the tent, we found good seats so we could see everything. The band started to
+play loud music, and the ringmaster came out with a big tall hat on his head.
+In one ring, there were small animals, dogs, monkeys and parrots doing tricks. The dogs
+were dressed in funny clothes, and so were the monkeys. They rode on bicycles, danced
+and climbed ladders.
+There were wild tigers and lions in a big round wire cage. A man with a whip was inside
+the cage with them. He had them trained to jump through a hoop of fire and to roll over.
+He even kissed them! He was very brave!
+During the break in the middle of the circus, funny clowns came out and did silly things.
+They had happy faces and sad faces. Some had big red noses that honked if you
+squeezed them. There were rides on big elephants too. I didn't go on one because it cost
+too much money.
+The last act took up the whole tent. It was acrobats. They hung from their teeth, their feet
+and their necks high up in the air! They also swung high up in the air and "flew" to each
+other. It's kind of scary to watch because I was afraid they might fall.
+I had a very good time at the circus. However, my tummy felt kind of sick from all the
+cotton candy and junk food I ate!*
+
+## 264 - Going to the Grocery Store
+
+>*Each week I go to the grocery store to buy food for my family. I get a shopping cart from
+the front of the store, and I push the cart all around the store. The cart is large, but when I
+am finished shopping, the cart is nearly full!
+The grocery store is also called a supermarket. When I go shopping, I start out in the
+produce section of the supermarket. The produce section is where the fresh fruits and
+vegetables are kept. I like to buy different kinds of fruit, such as apples, oranges, and
+bananas. The vegetables that I often buy are carrots, peas, and corn. I also buy tomatoes
+when they are bright red in color. I often buy a bag of potatoes or a bag of rice.
+After visiting the produce section, I go to the meat section. Here I buy poultry, such as
+chicken and turkey. I often buy seafood, especially fish. I also buy beef, and sometimes
+pork or lamb. I also visit the dairy section, where I can buy milk and cheese. Sometimes I
+also buy ice cream or yogurt.
+When I have finished in the meat and dairy sections, I then move to the bakery section.
+This is where loaves of bread are baked and sold. There are many different kinds of
+bread in the bakery section. The bakery section also sells pasta, such as macaroni and
+spaghetti. And, of course, you can buy pies, cakes, and cookies in the bakery section.
+These foods are very sweet and tasty!
+I also pick up a few other things at the supermarket, such as soap, toothpaste, and
+cleaning supplies. But sometimes I forget to buy something that I had planned to get.
+Maybe I should make a list of the things I need to buy!*
+
+## 265 - A Day at the Beach
+
+>*When the hot summer weather arrives, many people like to cool off by visiting the beach.
+Often, there is a cool breeze that comes off the water. And, of course, the water itself is
+cool and refreshing.
+One of the favourite activities at the beach is building sandcastles. Children use small
+shovels and pails to move the sand. They can build small forts and castles by carefully
+forming and shaping the sand. Building sandcastles is a lot of fun, but you shouldn't
+build them too close to the water: a wave might come and wash your sandcastle away!
+There are also many games that people like to play at the beach. Some people play catch
+with a small plastic disc called a Frisbee. The Frisbee glides smoothly through the air.
+Other people like to play beach volleyball in the soft sand.
+Some people prefer just to relax on the beach. They like to lie down on a blanket and feel
+the warm sunshine. I like to sit on the beach with an ice-cream cone. But you have to eat
+it quickly, before it melts.
+Of course, the main attraction of a beach is the water. Many children learn to swim at the
+beach, and enjoy playing in the water. Some people like to swim vigorously. Other people
+like to relax in the water on an inflatable, floating mattress. Other people just wade
+around in the water, as a way to keep cool. When it is a windy day, some people try
+sports such as surfing.
+Going to the beach is surely one of the best ways to spend a summer day!*
+
+## 266 - Making Cookies
+
+>*Ummmm. Something smells good! My friend's mom is making cookies. They are
+chocolate chip, my favourite! I think I'll go home and ask my mom if we can make
+cookies, too.
+I run all the way home and rush through the door. I yell, "Mom, Mom!" She comes out
+from her bedroom, her eyes wide. "What?" she answers, a little worried. I breathlessly
+ask if we can please, pretty please, make cookies. She smiles and says, "I guess so."
+"YES!" I reply.
+First mom tells me to get out the cooking stuff; so I get out the mixer and bowl, the
+measuring cups and spoons and the cookie sheets. Then she tells me to get out the
+recipe book. I remind her that the recipe is on the chocolate chip package. "Right," she
+says. Then she asks me to look at the recipe and get out the things we need: like flour,
+sugar and butter.
+We set the oven temperature to 350 degrees F. Then, we mix all of the flour and other
+stuff (ingredients) together. Last, we add the chocolate chips. We drop the batter by big
+teaspoons full onto the cookie sheets. We set the timer for 12 minutes and just sit back
+and enjoy the good smell!
+The buzzer rings. We take the cookies out. Oh, do they look good! We don't even wait for
+them to cool down. Both Mom and I get a big glass of cold milk and two big warm
+cookies each. Yum! Yum! Want to join us?!*
+
+## 267 - Stars in the Midnight Sky
+
+>*"Twinkle, twinkle, little star, how I wonder what you are; up above the world so high, like
+a diamond in the sky, twinkle, twinkle little star." This is a little poem/song I always say
+when I am outside, and I see the stars. When I see the first star of the night, I sometimes
+say this one: "Star light, star bright, first star I see tonight; I wish I may; I wish I might,
+have the wish I wish tonight." Do you have a special thing to say about the stars?
+Stars are beautiful bright spots in the sky. Stars are usually seen at night when it is dark.
+We can't see them in the day time because the sun is so bright, the brightest star of all. I
+like staying up late just to look at the stars.
+One time I was outside at midnight, and the stars seemed to sparkle and dance. They
+really did look like diamonds dancing in the sky!
+If you watch the stars long enough, you may see a falling star or a shooting star. I have
+seen both. A falling star is where the star just seems to drop, and it leaves a trail of what
+appears like star dust. A shooting star is very beautiful. It "shoots" across the sky
+leaving a long trail of colourful "star dust." Shooting stars seem to brighten up the whole
+sky. They usually seem quite close to the earth.
+Have you ever watched the stars and got the urge to reach out and touch them, or even
+to join them in their secret dance? I wonder what it would be like to see a star up close.
+Would it look like the moon? Maybe one day when I am older, I will go up in a rocket ship
+and visit the dancing stars in the midnight sky!*
