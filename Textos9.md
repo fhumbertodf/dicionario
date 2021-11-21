@@ -1,6 +1,6 @@
 Article #22
 Hawaii
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 21 | P a g ewww. irlanguage .com
 Of the fifty states in the United States, forty-nine are located on the mainland of North
 America. The other state is Hawaii, which consists of several islands in the middle of the
@@ -49,7 +49,7 @@ evidence from many areas of science.
 Darwin was born in a small town in England in 1809. When he was a young man, he went
 to university, first to study medicine, and later to study religion. However, Darwin found
 his schoolwork to be very boring. Instead, he preferred outdoor activities and was very
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 22 | P a g ewww. irlanguage .com
 interested in nature.
 While Darwin was at university, the British navy was planning to send one of its ships,
@@ -98,7 +98,7 @@ twentieth centuries. It was based on African-American music that was derived in 
 from rhythms in western Africa. The earliest jazz musicians were influenced by a music
 style known as "ragtime," which was popular during the late nineteenth century. Jazz
 music also incorporated some aspects of a related kind of music called the "blues."
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 23 | P a g ewww. irlanguage .com
 By the beginning of the twentieth century, a fully developed form of jazz was being
 played in New Orleans, a city in the southern United States. Jazz musicians played
@@ -147,7 +147,7 @@ dead bodies create this unusual structure beneath the surface of the water. The 
 the underwater life surrounding it are especially beautiful.
 Australia was separated from the rest of the world for millions of years. As a result, many
 of the plant and animal species in Australia are very different from those in other parts of
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 24 | P a g ewww. irlanguage .com
 the world. For example, many of the animals in Australia belong to a special category
 called the "marsupials." Marsupials are mammals, but they are a special kind of mammal,
@@ -196,7 +196,7 @@ Australia, South Australia, Tasmania, Victoria, New South Wales, and Queensland)
 Tasmania is a small island off the southern coast, and Victoria, New South Wales, and
 Queensland are found in the eastern part of the country.
 The two largest cities in Australia are Sydney and Melbourne, both of which are in the
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 25 | P a g ewww. irlanguage .com
 southeastern part of the country. Sydney has a beautiful harbor that is one of the largest
 in the world, and Melbourne has many beautiful parks and gardens. The capital city of the
@@ -244,7 +244,7 @@ the great scientists of the past who discovered the surprising truth.
 ------------------------------------------------------------------------------------------------------------------------
 Article #28
 George Washington Carver
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 26 | P a g ewww. irlanguage .com
 George Washington Carver is possibly the most famous agricultural scientist of all time.
 He invented hundreds of products that could be made from crops such as peanuts and
@@ -293,7 +293,7 @@ Of course, every country needs to enforce its laws. This means that police offic
 needed, and so are "prosecutors"-the lawyers whose job is to make criminal charges
 against people who break the laws, and to prove that those charges are true. However, it
 is very important that people's freedoms are not taken away wrongly. People should not
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 27 | P a g ewww. irlanguage .com
 be punished unfairly, and people who are accused of crimes must have the opportunity
 to defend themselves.
@@ -342,7 +342,7 @@ permanent settlements were established during the seventeenth century, by settle
 the Netherlands. Those people named their town "New Amsterdam." Soon, the colony
 was taken over by English settlers, who re-named the city "New York." New York grew
 quickly, and by the nineteenth century it was the largest city of the United States.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 28 | P a g ewww. irlanguage .com
 New York was usually the place where new immigrants to the United States would arrive.
 In the nineteenth century, immigrants from Germany and Ireland were numerous in New
@@ -391,7 +391,7 @@ began as religious missions that were started by Spanish priests. Mexico owned
 California during the early nineteenth century, but few Mexican people lived there. The
 United States gained control of California during the 1840s, and the discovery of gold
 brought many Americans and others to California.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 29 | P a g ewww. irlanguage .com
 Today, California contains some of the largest cities in the United States. Within the
 greater Los Angeles area, one can find Hollywood, known as the movie capital of the
@@ -440,7 +440,7 @@ One difficulty in preventing the use of performance-enhancing drugs is that it i
 always possible to detect the use of the drugs. Tests have been developed to detect the
 drugs, but new varieties of the drugs are often not detected. Also, athletes who stop
 using the drugs well before a drug test may avoid being detected.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 30 | P a g ewww. irlanguage .com
 Preventing the use of performance-enhancing drugs in athletes is difficult, but it is
 important. Most athletes want to compete without using artificial substances that provide
@@ -489,7 +489,7 @@ people eat a famous Scottish food called haggis.
 Today, Scotland remains part of the United Kingdom, but some Scottish people would
 like Scotland to become independent. Whatever the Scottish people decide, their country
 will remain a unique and interesting place.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 31 | P a g ewww. irlanguage .com
 ------------------------------------------------------------------------------------------------------------------------
 Article #34
@@ -537,7 +537,7 @@ requires no expensive equipment, merely a ball and a playing surface, preferably
 grassy area. For children in most parts of the world, soccer is the sport that is played
 most widely.
 Soccer is also known as football, especially in England. However, soccer should not be
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 32 | P a g ewww. irlanguage .com
 confused with American Football, Australian Rules Football, and Rugby Football, which
 are very different sports.
@@ -586,7 +586,7 @@ parts of the world. When they reached new areas, they found that it was very eas
 the large animals, which had not previously been hunted by humans. As these
 prehistoric people moved into Europe, Australia, and the Americas, they killed large
 numbers of large animals. Within a few hundred years, many species of animals had
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 33 | P a g ewww. irlanguage .com
 become extinct. For example, prehistoric people reached New Zealand less than 1000
 years ago, but they soon hunted a huge bird, called the giant moa, to extinction.
@@ -635,7 +635,7 @@ The weight gain that can result from consuming too much fast food and too many s
 drinks can have several harmful effects. For example, people who are very obese have an
 increased risk of heart disease and of diabetes. Of course, fast food and soft drinks are
 not the only causes of obesity. Other eating habits may be involved, and so are lack of
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 34 | P a g ewww. irlanguage .com
 exercise and genetic factors.
 To avoid the health problems that are associated with obesity, it is important that one
@@ -684,7 +684,7 @@ Sexual harassment is a form of intimidation and abuse of power that causes much 
 for many employees. In recent years, many steps have been taken to reduce the
 occurrence of sexual harassment. Educational campaigns have been designed to teach
 people that sexual harassment is wrong. Stronger penalties for sexual harassment have
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 35 | P a g ewww. irlanguage .com
 been introduced.
 Another way to reduce the prevalence of sexual harassment is to develop a culture of
@@ -733,7 +733,7 @@ very collectivist. Collectivist countries also differ from each other in many wa
 The idea of individualism versus collectivism is an interesting way to understand some
 of the differences between cultures. By learning about ideas like this, one can better
 appreciate the customs of other peoples.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 36 | P a g ewww. irlanguage .com
 ------------------------------------------------------------------------------------------------------------------------
 Article #40
@@ -781,7 +781,7 @@ These new developments allowed the construction of many amazing tunnels, bridges
 towers, and office buildings.
 For centuries, people had dreamed about the possibility of connecting the island of Great
 Britain to the mainland of Europe. However, it was only in 1994 that such a link was
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 37 | P a g ewww. irlanguage .com
 completed, when a tunnel was dug under the English Channel, between England and
 France. The Channel Tunnel, also known as the "Chunnel," actually consists of three
@@ -830,7 +830,7 @@ also learned that people could communicate by moving their lips. Helen could not
 instead, she communicated with her family by making sign movements with her hands
 and body. However, Helen became very frustrated by her inability to see, hear, and talk.
 She often became very angry and had many "temper tantrums."
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 38 | P a g ewww. irlanguage .com
 When Helen Keller was six years old, her family took her to see Dr. Alexander Graham
 Bell, who was an expert on educating deaf children. (This man was also famous for
@@ -879,7 +879,7 @@ production of cars. The first car to be produced in large numbers was called the
 T."
 The Model T Ford and other cars that were soon produced in large numbers were cheap
 enough that many people could afford to buy them. Many new roads were built and
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 39 | P a g ewww. irlanguage .com
 paved throughout North America to allow cars to be driven from town to town. People
 were able to travel much more easily and to visit places that had previously been difficult
@@ -928,7 +928,7 @@ including AIDS; moreover, many young women had been uncomfortable with the idea 
 unrestricted sexual behaviour. As a result, sexual attitudes became slightly more
 conservative during the 1980s and 1990s, although they remained much more liberal
 than in previous decades.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 40 | P a g ewww. irlanguage .com
 In the early twenty-first century, most young people in Western countries begin having
 sex during their high school years, although some people wait until they are
@@ -976,7 +976,7 @@ Today, the federal and state governments of the United States are working to pre
 the natural environment along the Mississippi River. People recognize the importance of
 keeping this river healthy and clean.
 ------------------------------------------------------------------------------------------------------------------------
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 41 | P a g ewww. irlanguage .com
 Article #46
 Doctors Without Borders
@@ -1025,7 +1025,7 @@ geography. The city's central location has made its O'Hare International Airport
 for most airlines in the United States. Its location on the shores of Lake Michigan has
 made it a major port and business centre, where the agricultural and industrial products
 of the American Midwest are shipped overseas.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 42 | P a g ewww. irlanguage .com
 Until about the 1830s, Chicago was a minor trading post. But then it grew rapidly as the
 most important town in the rapidly developing areas of the midwestern United States. In
@@ -1074,7 +1074,7 @@ Anthony and Elizabeth Cady Stanton brought attention to this issue, and persuade
 many people that women should vote.
 The first part of the United States to recognize women's right to vote was Wyoming, in
 the year 1869. During the following decades, many other states recognized women's right
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 43 | P a g ewww. irlanguage .com
 to vote, particularly in the western part of the country, where women had a high social
 status. However, the United States was not the first country to recognize women's right
@@ -1123,7 +1123,7 @@ Christmas, and refuses to donate money to help the poor. But, while sleeping, Sc
 visited by ghosts from his past, present and future. These ghosts show Scrooge how
 badly he has behaved. When Scrooge wakes up, he becomes a kind and generous man
 who fully appreciates the spirit of the Christmas holiday.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 44 | P a g ewww. irlanguage .com
 Another famous novel of Dickens is A Tale of Two Cities. This is a story of the violence
 and upheaval during the French Revolution. The story is famous for the heroic act of
@@ -1172,7 +1172,7 @@ decisions during the escape.
 Mark Twain died in 1910, after writing many more novels and many stories of his travels
 around the world. Twain's works are still widely read today. His books are appreciated for
 their humor, for their interesting descriptions of life in nineteenth century America, and
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 45 | P a g ewww. irlanguage .com
 for showing both the good and evil that people can do. Many critics consider Twain to
 have been the greatest American writer.
@@ -1220,7 +1220,7 @@ had very different cultures and very different ways of making a living.
 On the west coast of North America, many large rivers flow into the Pacific Ocean. In
 these rivers is an abundance of fish, such as salmon. The Indians in these areas
 obtained much of their food by fishing. They lived in settled villages, and became experts
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 46 | P a g ewww. irlanguage .com
 in carving wood from the tall trees of the area. They carved large canoes for traveling on
 the rivers and oceans, and they also carved tall "totem poles." Totem poles were

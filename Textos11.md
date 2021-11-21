@@ -29,7 +29,7 @@ problems in sport no longer exist. Like any institution, race relations in sport
 thought of for their long-term trends, not individual exceptions.
 Arthur Ashe contracted the HIV virus through a blood transfusion and died of AIDS in
 1993, aged 50. While since his death he has become revered and respected, in the 1980s
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 70 | P a g ewww. irlanguage .com
 near the end of his life he was unpopular for his ideas. However, his combination of
 political campaigning and athletic prowess has made him a revered figure in American
@@ -77,7 +77,7 @@ conventional attitudes regarding women's participation in sport dominated North
 American culture, Babe Didrikson rose to fame by dominating not just one, but a number
 of sports.
 Didrikson flouted conventional notions of femininity and "proper" female activity by
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 71 | P a g ewww. irlanguage .com
 excelling in field events such as javelin and shot-put, in addition to traditionally male-
 dominated sports such as baseball, swimming, and golf. Interestingly, Didrikson would
@@ -126,7 +126,7 @@ eagerly anticipated. The inquiry heard testimony from a large number of athletes
 coaches, sports administrators, and others. The most interesting submissions were
 made by Johnson's coach Charlie Francis, his physician Jamie Astaphan, and of course
 from Johnson himself. The inquiry disclosed drug taking on a scale never before
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 72 | P a g ewww. irlanguage .com
 suspected. It was discovered that, besides the common practice of coaches encouraging
 athletes to take drugs, many others were guilty of turning a 'blind eye' to the problem and
@@ -175,7 +175,7 @@ the game was so widespread that a world championship was justified. By the time 
 1998 World Cup was staged in France, 112 countries competed. Despite the sport
 originating in England, that country did not win a World Cup until 1966.
 One notable exception to the soccer fanaticism that is seen in many countries around the
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 73 | P a g ewww. irlanguage .com
 world is the U.S.A. There has always been a problem developing soccer in the country
 that dominates so many other professional and amateur sports. One of the main reasons
@@ -224,7 +224,7 @@ through boycotts, and the Olympic movement was probably the most visible means o
 symbolically fighting the Cold War.
 The post-World War II years were lean ones for the Olympic movement. The IOC and
 hosting cities and nations often had trouble breaking even. At its worst, the Games went
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 74 | P a g ewww. irlanguage .com
 into great financial debt, most notoriously in the Summer Games in Montreal in 1976.
 However, since that time, the Games have taken a more "market friendly" approach,
@@ -272,7 +272,7 @@ Article #89
 Michael Jordan
 Michael Jordan is one of the most recognized sports figures in the world. To understand
 the breadth of his fame, it is probably best to think of Jordan in two senses: as a person
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 75 | P a g ewww. irlanguage .com
 and an athlete with incredible athletic prowess and skill, and as a cultural and media icon.
 The second way of thinking about Jordan is probably equal to the first. After all, it was
@@ -321,7 +321,7 @@ most successful players take in tennis in the private clubs. When King began com
 in the elite levels of tennis, the sport was strictly amateur. She first entered Wimbledon in
 1961, and only two years later she advanced to the final. She won her first Wimbledon
 title in 1966, at the young age of 22. Her first place prize for winning was a $60 gift
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 76 | P a g ewww. irlanguage .com
 voucher for Harrods department store. By the end of her remarkable career, King would
 amass a remarkable 39 Grand Slam titles.
@@ -370,7 +370,7 @@ emergence of several urban-based marathons. Some, notably the Boston Marathon, h
 been around for decades; however, many new ones emerged, especially in the 1970s and
 1980s. The emergence of these popular races coincided with a late-twentieth century
 boom in the sports and exercise industry. As a result, the sport of running took off.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 77 | P a g ewww. irlanguage .com
 Also, lasting images from top international competitions began to attract people to
 marathon running. In the Olympic marathon in 1952, Emil Zatopek won the race after
@@ -419,7 +419,7 @@ created for the sole purpose of creating more leverage with advertisers. After g
 greater legitimacy and earning more revenue, the up-start AFL was able to negotiate
 independently with other television networks and sign on big-name players. The most
 notable was star quarterback Joe Namath. With the AFL rising as a legitimate business
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 78 | P a g ewww. irlanguage .com
 competitor, the NFL and AFL negotiated a merger, resulting in the NFL league, as it is
 known to this day. Since the merger, the NFL has maintained almost a complete
@@ -468,7 +468,7 @@ important except in the impact it has on other lives."
 ------------------------------------------------------------------------------------------------------------------------
 Article #94
 Title IX
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 79 | P a g ewww. irlanguage .com
 In 1972, the United States Congress passed Title IX of the Educational Amendments. This
 instituted a law that would seriously affect all U.S. educational institutions' sports
@@ -516,7 +516,7 @@ was for a period of time probably the most talked about person in the world, but
 of the discussions were about his athletic career.
 Until his internationally famous trial, Simpson was a relative unknown outside the U.S. A
 very wealthy and highly decorated former professional football player, Simpson made the
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 80 | P a g ewww. irlanguage .com
 transition to acting and television commentating after his illustrious football career.
 However, when he was charged in June of 1994 with the murder of his estranged wife
@@ -565,7 +565,7 @@ older style of jumping, the front leg led the jumper up and over the bar in a fa
 position. Fosbury's technique involves approaching the bar in a curve with a last second
 acceleration. Then, at the point of take-off, the body rotates, positioning the back to the
 bar and leaping backwards. The head faces the sky as the body arches over the bar with
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 81 | P a g ewww. irlanguage .com
 the mid-body and legs trailing behind.
 Fosbury had begun experimenting with the technique when he was only sixteen years
@@ -614,7 +614,7 @@ substantially as a result.
 Today, sports fans often complain that players' salaries are too high. While certainly at
 times it seems difficult to justify the huge salaries of today, it should be kept in mind that
 before the current era of free agency and big contracts, players barely made a
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 82 | P a g ewww. irlanguage .com
 subsistence wage, and often worked under conditions of servitude. The situation now
 might be less than perfect; however, it's certainly a vast improvement over the pre-free
@@ -662,7 +662,7 @@ Some of these track events require great speed for a short distance. In the 100 
 the athletes must sprint as quickly as possible. Some athletes can run 100 metres in only
 10 seconds!
 Other track races are much longer, and these events require great endurance. In the
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 83 | P a g ewww. irlanguage .com
 marathon, the athletes must run a distance of 42 kilometres. Because this is such a long
 distance, the athletes cannot run too quickly at the start. Instead, it is important to run at
@@ -711,7 +711,7 @@ people began using electric lights in their homes.
 Another invention of Edison's is no longer used today. That invention was called the
 phonograph. It was a machine that could be used to record sounds, such as music and
 conversation. When Edison invented this machine, in 1877, it was the first time that
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 84 | P a g ewww. irlanguage .com
 anyone had been able to preserve sounds. Today, people do not use the phonograph any
 more. Instead, they use compact discs (or CDs) to record music and other sounds.
@@ -771,7 +771,7 @@ exhibits. Everyone likes the grandstand shows. Nowadays, not so many people live
 farms. But people from towns and cities still enjoy going to fall fairs. They are part of our
 North American heritage.
 ------------------------------------------------------------------------------------------------------------------------
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 4 | Pagewww. irlanguage .com
 Article #2
 Hiroshima
@@ -820,7 +820,7 @@ the world visit here each year. Summers at the Falls are especially busy, with t
 and parking problems. However, the Falls are beautiful in winter too.
 Many have asked why people travel so far to see water falling over a cliff. The size and
 beauty of Niagara Falls help to make it special. While many falls are higher than Niagara,
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 5 | Pagewww. irlanguage .com
 very few are as wide or have such a volume of water. It also helps that Niagara is
 relatively easy to travel to.
@@ -869,7 +869,7 @@ Texas. American settlers in Texas interbred their animals with the Spanish breed
 Texas longhorn cow was the result! It was famous for its bad temper and aggressiveness.
 The Longhorn was a dangerous animal, with each of its horns measuring up to three and
 one-half feet long.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 6 | Pagewww. irlanguage .com
 After the American Civil War ended in 1865, disbanded soldiers, who were former black
 slaves, and young men seeking adventure headed west. At that time, there were about
@@ -918,7 +918,7 @@ Of course, one advantage that Governor Bush had was a familiar name. In fact, wh
 did well in some early polls, it is likely that some people really voted for his father. They
 thought that George H. W. Bush was running again. The Bush family was able to swing a
 lot of support to George W. It also helped that his brother, Jeb, was now Governor of
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 7 | Pagewww. irlanguage .com
 Florida.
 Parents George and Barbara were both born in eastern United States. But in 1948,
@@ -967,7 +967,7 @@ all Heaven before me, and the great God Himself."
 In the fall of 1741, Handel received an invitation from the Lord Lieutenant of Ireland to
 present operas and concerts there. Handel traveled from London to Dublin with his entire
 luggage and many of his singers. However, in order to rehearse on the way, he had to
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 8 | Pagewww. irlanguage .com
 hire local people to fill in. Once, the composer soundly criticized one local singer who
 failed to meet his standards.
@@ -1016,7 +1016,7 @@ to Canada.
 The influence of the Irish on North American culture has been very great in many areas.
 Prominent Irish-Americans include Presidents John F. Kennedy and Ronald Reagan.
 Meanwhile, in Ireland itself, a strong independence movement developed. A rebellion
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 9 | Pagewww. irlanguage .com
 against England in 1916 began a struggle that resulted in independence for most of
 Ireland. Some Protestant areas in Northern Ireland preferred to stay with England.
@@ -1065,7 +1065,7 @@ Massachusetts, where they live most of these years. When they moved back to Bost
 1848, Anna took a job looking after other people's children, and Louisa looked after the
 house. Meanwhile, their mother worked outside the home.
 While working on laundry or sewing, Louisa was thinking up stories. At night she would
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 10 | P a g ewww. irlanguage .com
 write them down. When she was eighteen, she began selling poems and stories to
 magazines. Within ten years, Louisa was earning a substantial income from writing. One
@@ -1114,7 +1114,7 @@ In 1996, Niagara-on-the-Lake was voted "the prettiest town in Canada." Partly, i
 scale of things that makes the old town so attractive. The old town is only about eight
 blocks long by eight blocks wide. It has a population of little more than 1,000 people.
 Nonetheless, there is a lot for people to do and see. There are many interesting shops,
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 11 | P a g ewww. irlanguage .com
 old hotels, bookstores, art galleries, museums, a golf course, a marina, historic churches
 and cemeteries, several parks, three theatres and lots of restaurants.
@@ -1163,7 +1163,7 @@ aimed at the average person, rather than the governing class. Examples of the ne
 of editing and publishing were Joseph Pulitzer and William Randolph Hearst. Hearst,
 especially, employed sensational and emotional writing, which aimed at stirring up the
 public to action. Hearst is sometimes accused of starting the Spanish-American War of
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 12 | P a g ewww. irlanguage .com
 1898 with his over-heated editorials. Nonetheless, his methods were successful in
 raising circulation and were widely imitated.
@@ -1212,7 +1212,7 @@ Although Kane faced incredible hardships during his travels, he was able to see 
 wanted to see. He was able to take part in one of the last great Buffalo hunts and killed
 two large bison himself. Traveling west with the fur traders he visited many forts and
 trading posts. He saw and painted a prairie fire. He shot a grizzly bear at close range and
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 13 | P a g ewww. irlanguage .com
 killed several wolves that attacked his horses. He learned to travel long distances on
 snowshoes in winter. Finally, he arrived at the Pacific coast, where he made some fine
@@ -1261,7 +1261,7 @@ kill more than 30,000 buffalo.
 The Plains Indians received nearly everything they needed from the buffalo. Of course,
 they used buffalo meat for food. They also used the buffalo skins for clothing, blankets,
 and the covering of their teepees. These teepees were cone-shaped tents, which were
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 14 | P a g ewww. irlanguage .com
 easy to put up and take down. Plains Indians were nomadic, and followed the animals
 they hunted. Since these animals were plentiful, Plains Indians usually led a comfortable
@@ -1310,7 +1310,7 @@ Indians became peaceful. But in late 1609, Smith was injured in an explosion and
 returned to England.
 Pocahontas remained a friend to the colony. She married John Rolfe, one of the settlers.
 In 1616, she traveled to England with her husband and son. There she saw John Smith
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 15 | P a g ewww. irlanguage .com
 once again. She was so surprised to see him that she was unable to speak for several
 days. Pocahontas had believed that Smith was dead. The following year she died and

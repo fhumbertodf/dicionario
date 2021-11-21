@@ -39,7 +39,7 @@ kilometres above the level of the sea. Jet airplanes allow people to travel grea
 in a short time. For example, it is possible to fly across a great ocean, such as the Pacific
 or the Atlantic, in several hours.
 Ships were once the only way to travel across the oceans. Before airplanes, it took many
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 67 | P a g ewww. irlanguage .com
 weeks or months to travel around the world. Today, many people still travel by ship when
 crossing smaller bodies of water. Some ships, called ferries, allow people to bring their
@@ -87,7 +87,7 @@ got a telephone call. It was the man that was holding the ticket draw. Tasha did
 she would win, but the man on the telephone said she did!
 She listened as the man told her where she would have to go to get her free air plane ride.
 She had to go near the town of Grimsby. She was allowed to pick a friend to go with her
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 68 | P a g ewww. irlanguage .com
 on the air plane ride. Tasha was so happy! She asked her twin sister Tawnya to go with
 her. Tawnya was very excited! Neither of them had been on an air plane before.
@@ -136,7 +136,7 @@ when they heard Jane and Bill coming.
 After a little while Jane and Bill decided to go home. They got into some dry clothes.
 Jane started to sneeze. She had gotten a little bit too wet!
 Bill noticed that the rain had stopped. "Look outside Jane," he said. Jane wrapped a
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 69 | P a g ewww. irlanguage .com
 blanket around her shoulders and looked outside. There was a beautiful, bright rainbow
 across the sky Violet, blue, green, yellow, orange and red, the rainbow shone high in the
@@ -184,7 +184,7 @@ My parents were the strictest with her.
 They had lots of rules for her to follow.
 She is the first child, so they want her to be perfect.
 My younger brother is the baby of the family.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 70 | P a g ewww. irlanguage .com
 I think that we all spoil him.
 We let him get away with some things that he shouldn't get away with.
@@ -232,7 +232,7 @@ Article #107
 A Ghost
 One dark and gloomy night, I was sitting in my bedroom reading ghost stories.
 The stories were very scary.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 71 | P a g ewww. irlanguage .com
 A storm was brewing outside my window.
 The wind began to howl, and the trees shook and bent in the wind.
@@ -317,7 +317,7 @@ Social psychologists study interactions among people. For example, a social
 psychologist might try to learn about the situations that cause people to behave
 aggressively. Another question studied by social psychologists is why certain people
 become attracted to each other. One of the interesting problems in social psychology is
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 5 | Pagewww. irlanguage .com
 conformity: what causes people to behave in the same way, and to follow what others do
 and say?
@@ -366,7 +366,7 @@ Nepotism happens when an official unfairly gives advantages to his or her relati
 example, a government official might hire a brother or sister to do a job even though
 other people would be much better qualified for the job. Of course, all of us want to help
 our relatives, but it is wrong to do this at the expense of the public.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 6 | Pagewww. irlanguage .com
 Embezzlement happens when an official secretly steals some money from a company or
 government. For example, a manager at a company might secretly move some of the
@@ -415,7 +415,7 @@ largest city, Toronto, as well as the capital city of Canada--Ottawa. In the sou
 Ontario are four of the largest lakes in the world, known as the Great Lakes.
 Next to Ontario is the province of Quebec. Unlike the other provinces, where most people
 speak English, most of the people in Quebec speak French. The capital of Quebec is
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 7 | Pagewww. irlanguage .com
 called Quebec City, and this is one of the oldest cities in North America. Quebec City
 contains many buildings that are hundreds of years old. Also in the province of Quebec
@@ -463,7 +463,7 @@ the Pope complained that it took too long. However, when the work was finished, 
 ceiling of the Sistine Chapel was covered with beautiful paintings of many scenes from
 the Bible.
 Fortunately, many of the works of Leonardo and of Michelangelo can still be seen today
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 8 | Pagewww. irlanguage .com
 in the art galleries of Europe. During the past 500 years, the color of the paintings had
 faded somewhat, but in recent years, some work has been done to restore the paintings
@@ -511,7 +511,7 @@ have been the best writer who ever lived.
 William Shakespeare was born in the town of Stratford, England, in the year 1564. When
 he was a young man, Shakespeare moved to the city of London, where he began writing
 plays. His plays were soon very successful, and were enjoyed both by the common
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 9 | Pagewww. irlanguage .com
 people of London and also by the rich and famous. In addition to his plays, Shakespeare
 wrote many short poems and a few longer poems. Like his plays, these poems are still
@@ -560,7 +560,7 @@ shaped in such a way that it is easy to push the puck along the ice. The players
 the puck to each other by sliding it across the ice.
 To score a goal, a hockey player must shoot the puck into the net of the opposing team,
 but this is a difficult task. The net is less than two metres wide, and it is protected by a
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 10 | P a g ewww. irlanguage .com
 player called the goaltender. However, some players can shoot the puck very suddenly
 and with great power.
@@ -609,7 +609,7 @@ North America. Later, the governments of Canada and the United States made Chine
 immigration illegal.
 Eventually, the people of Canada and the United States realized that their laws had been
 unfair. They changed the rules so that Chinese people could immigrate in the same way
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 11 | P a g ewww. irlanguage .com
 that people from other countries could do so. In recent decades, many Chinese people
 have moved to North America, and have formed a very lively and successful community.
@@ -657,7 +657,7 @@ interesting language!
 ------------------------------------------------------------------------------------------------------------------------
 Article #11
 African Slavery in the Americas
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 12 | P a g ewww. irlanguage .com
 One of the most tragic parts of the history of North and South America is the period of
 African slavery. For hundreds of years, many people were taken from Africa, by force, to
@@ -705,7 +705,7 @@ things that are unhealthy.
 For example, many women believe that they must be very thin in order to be attractive.
 They see pictures of fashion models who are very thin and then believe that an attractive
 woman must look the same way. However, many men prefer the appearance of women
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 13 | P a g ewww. irlanguage .com
 who are not so thin.
 In order to become thin, some women try to reduce the amount of food that they eat.
@@ -754,7 +754,7 @@ exercise machines to develop their cardio-vascular fitness. But many people impr
 their cardio-vascular fitness by playing recreational sports, such as tennis or soccer, or
 by dancing vigorously. By having good cardio-vascular fitness, one is less likely to suffer
 from heart disease. Of course, there is one way to improve cardio-vascular fitness that
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 14 | P a g ewww. irlanguage .com
 does not involve exercise: stop smoking!
 Another important aspect of physical fitness is called flexibility. Flexibility refers to one's
@@ -802,7 +802,7 @@ opinions of twelve honest men who knew about the crime, the victim, and the accu
 person. This was the beginning of trial by jury in English-speaking countries, and the
 method soon became very popular. People trusted this new method much more than
 they trusted the old methods.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 15 | P a g ewww. irlanguage .com
 Later, the system of trial by jury changed somewhat. Instead of having a jury of twelve
 men and women who knew about the crime, juries were chosen so that the twelve people
@@ -850,7 +850,7 @@ Today, many Americans still admire the brilliant achievements of Benjamin Frankl
 did so much to improve people's lives. The picture of Benjamin Franklin can be seen on
 the American hundred-dollar bill.
 ------------------------------------------------------------------------------------------------------------------------
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 16 | P a g ewww. irlanguage .com
 Article #16
 Preservation of Forests
@@ -899,7 +899,7 @@ television programs. Other people feel that individuals should be able to choose
 they want to watch on TV. Many of these people believe that violent television is unlikely
 to affect people's behaviour.
 One of the concerns that some people have about violent TV is that viewers might imitate
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 17 | P a g ewww. irlanguage .com
 aggressive acts. For example, consider a TV program that shows professional wrestlers.
 Some people believe that children who watch the program might copy the actions of the
@@ -948,7 +948,7 @@ survive in a place where fruits and vegetables were not available. In previous t
 Inuit were known as the "Eskimos," which means "people who eat raw meat." However,
 the Inuit did not like this name.
 The Inuit invented many useful tools for surviving in the cold, northern areas. They
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 18 | P a g ewww. irlanguage .com
 sewed warm clothing from the furs and skins of the animals they hunted. For
 transportation, they used dogs, which could pull them in sleds across the snow. For
@@ -997,7 +997,7 @@ power than the king. Until the twentieth century, the Parliaments of England bec
 more democratic, as more and more people were allowed to vote.
 Today, England still has a constitutional monarchy. But not all English-speaking
 countries recognize the English queen. For example, the United States became an
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 19 | P a g ewww. irlanguage .com
 independent country over 200 years ago and has been a republic ever since.
 In some countries, there is debate about the future of the monarchy. Canada, Australia,
@@ -1046,7 +1046,7 @@ people drink so frequently that they develop a physiological addiction to alcoho
 problem can have terrible consequences for a person's health, personal relationships,
 and career.
 Alcoholic beverages are firmly a part of Western culture, and of many other cultures also.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 20 | P a g ewww. irlanguage .com
 On the one hand, drinks provide many people with much enjoyment and appreciation. On
 the other hand, alcohol is a drug that can be abused, leading to accidents and addiction.

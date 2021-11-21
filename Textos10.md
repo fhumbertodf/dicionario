@@ -15,7 +15,7 @@ other side were Russia, France, and Britain.
 The people in these countries at first welcomed the news of a war. Many people were
 intensely patriotic, and supported the war effort without thinking carefully about the
 reasons for the war. Some people thought that war would bring adventure and glory to
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 47 | P a g ewww. irlanguage .com
 their lives, and they cheered enthusiastically in the streets.
 After the war started, it soon became clear that it was a terrible disaster. In the western
@@ -64,7 +64,7 @@ Lincoln managed the Civil War with skill and determination. Gradually the North 
 win the war. In 1863, Lincoln made the "Emancipation Proclamation," which freed the
 slaves. Later that year, Lincoln gave his most famous speech, the Gettysburg Address.
 The Civil War had brought terrible suffering to many Americans, and people were very
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 48 | P a g ewww. irlanguage .com
 bitter after the war. But Lincoln wanted the country to become united again, and he urged
 people to forgive. However, in April of 1865, only months after the war ended, Lincoln
@@ -113,7 +113,7 @@ nineteenth century. Beethoven died in 1827, but his music remains famous for its
 and originality. His greatest symphonies, such as the Fifth Symphony, are among the
 world's best-known works of music.
 Today, the works of Mozart and Beethoven are still popular among those who appreciate
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 49 | P a g ewww. irlanguage .com
 great music. Music fans can look back with wonder at the musical creativity that
 flourished in Vienna more than two centuries ago.
@@ -161,7 +161,7 @@ people are inspired by the courage and endurance of Amelia Earhart.
 Article #57
 Life in Academia
 A person like me, who teaches and conducts research at an academic institution, is
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 50 | P a g ewww. irlanguage .com
 called "academic." The academic institution may be a form of a university, a college or
 another post-secondary institution. I have been working in universities for almost eleven
@@ -209,7 +209,7 @@ There are about 50 universities throughout the country, most of which are public
 funded institutions. Some of the most recognized universities include the University of
 Toronto, McGill University, the University of British Columbia, and Queen's University.
 A community college offers a variety of programs for students who want to learn
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 51 | P a g ewww. irlanguage .com
 technical skills, skills that they can apply to the real world quickly. These programs are
 usually one or two years in length emphasizing hand-on experience in classroom setting.
@@ -258,7 +258,7 @@ the effective and efficient use of a firm's human capital, the human resources
 management function supports planning to meet the personnel needs of the business,
 development of employees to their full potential, and control of all personnel policies and
 programs.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 52 | P a g ewww. irlanguage .com
 While each of the aforementioned functional areas within a firm used to operate
 somewhat independently with its own objectives and resources, information and other
@@ -306,7 +306,7 @@ Article #61
 E-Commerce
 Electronic commerce (or simply e-commerce) is more than just buying and selling
 products or services online. It encompasses the entire online process of developing,
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 53 | P a g ewww. irlanguage .com
 marketing, selling, delivering, servicing, and paying for products and services. E-
 commerce systems rely on the resources of the Internet and other computer networks to
@@ -355,7 +355,7 @@ and conversations with neighbors.
 The most frustrating moment was my inability to explain to other people when I was
 accused of something I did not do. Knowing that I was not able to defend myself properly
 due to lack of conversation skills, a few people often took advantage of me for their own
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 54 | P a g ewww. irlanguage .com
 benefits.
 However, throughout the years I met a lot of good people who gave me strength and
@@ -404,7 +404,7 @@ Lake Erie by the Detroit River. At its northeast end, Lake Erie empties into the
 River, which drops 99 metres as it flows north to Lake Ontario, which is the smallest of
 the Great Lakes at 19,010 sq km. Lake Ontario is linked with the Atlantic Ocean via the St.
 Lawrence River.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 55 | P a g ewww. irlanguage .com
 The Great Lakes, interconnected by rivers, straits, and canals, are a natural resource of
 tremendous significance in North America; they serve as the focus of the industrial
@@ -452,7 +452,7 @@ border of Nepal and Tibet, China, is the world's tallest mountain and highest el
 with a peak at 29,035 feet (or 8850 m). The National Geographic Society revised the
 height of Mt. Everest in 1999 from 29,028 feet (or 8848 m) due to new GPS calculations.
 What is the world's tallest mountain from base to peak? Mauna Kea in Hawaii is the one.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 56 | P a g ewww. irlanguage .com
 Its base is on the sea floor, and it rises 33,480 feet (or 10,314 meters) in total, reaching
 13,796 feet (or 4205 m) above sea level.
@@ -501,7 +501,7 @@ Nipissing University, and Lakehead University.
 The Province of Quebec has seven publicly funded universities with many of them
 having several branch campuses throughout the province. They are University of
 Montreal, University of Quebec, Laval University, Concordia University, McGill University,
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 57 | P a g ewww. irlanguage .com
 University of Sherbrooke, and Bishop's University. While French is the official language
 of instruction at most of these institutions, English is the official one at both Concordia
@@ -549,7 +549,7 @@ Site.
 Article #68
 Sport Canada
 Sport Canada is the name of Canada's federal government program to help support
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 58 | P a g ewww. irlanguage .com
 athletes. The purpose of Sport Canada is to develop and encourage sport, health, and
 exercise programs for all Canadians. However, Sport Canada's main emphasis is on
@@ -598,7 +598,7 @@ meant that players, coaches, and owners of teams were not allowed to make money 
 playing the game of hockey.
 It took several decades for the NHL to become the most dominant league. In the early
 days, a few professional or commercial leagues competed with the NHL for the public's
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 59 | P a g ewww. irlanguage .com
 entertainment dollar. Leagues competed vigorously for the best players in order to be
 successful and attract spectators and fans. While this was beneficial to players because
@@ -647,7 +647,7 @@ result, the International Olympic Committee started testing for steroids during 
 Olympic Games in Montreal, Canada.
 Probably the most famous case of an athlete using drugs was Canadian sprinter Ben
 Johnson. After winning the 100-metre sprint in the 1988 Summer Olympic Games in
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 60 | P a g ewww. irlanguage .com
 Seoul, South Korea, Johnson's drug test was found to be positive. Johnson took a
 synthetic steroid to build muscle mass and enhance power. Eventually, Johnson was
@@ -695,7 +695,7 @@ funding. Many people thought this was a shame given the positive messages the
 program gave to otherwise inactive Canadians. Despite the program's termination,
 ParticipAction has made a long-lasting impression on Canadians. Hopefully, its positive
 example of physical fitness for Canadians will continue in the future.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 61 | P a g ewww. irlanguage .com
 ------------------------------------------------------------------------------------------------------------------------
 Article #72
@@ -744,7 +744,7 @@ took precedence. However, around the turn of the century, several amateur sport
 organizations emerged. These groups attempted to organize sports competitions, set
 rules, and develop teams and leagues. As a result, organized competitions quickly grew
 in number around this period in time, especially in the 50-year period between 1870 and
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 62 | P a g ewww. irlanguage .com
 1920.
 Some of the earliest organized sports in Canada were rifle shooting, rowing, track and
@@ -793,7 +793,7 @@ professional and amateur leagues existed in Canada long before then. Many small-
 teams competed for local or provincial championships, and had a strong influence on
 those Canadians who had little access to, or knowledge of, big-city teams in Toronto or
 Montreal. In fact, it was not until NHL games were broadcast on the Canadian national
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 63 | P a g ewww. irlanguage .com
 radio "Hockey Night in Canada" radio broadcasts that many Canadians had experienced
 an NHL game. Indeed, despite the fact that the NHL was considered Canada's most
@@ -842,7 +842,7 @@ wave to the crowds and perform rowing "tricks" such as removing his hands from t
 oars in the middle of the race. He was even known to fake an injury in the middle of a
 race, only to recover just in time to win the race. Of course, the additional purpose of this
 strategy was to raise gambling odds, thus making himself and his financial handlers
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 64 | P a g ewww. irlanguage .com
 wealthier from his victories.
 In the 1870s and 1880s, Hanlan won and then successfully defended his World
@@ -891,7 +891,7 @@ A more recent development in rowing is recreational and Masters rowing. In an at
 to regain popularity in the sport, many clubs in North America are offering less
 competitive recreational programs and encouraging older Masters rowers to participate.
 This is probably a positive move in at least two reasons. One is that the sport will attract
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 65 | P a g ewww. irlanguage .com
 many more participants. However, the other equally important reason is that the sport
 might dispense some of the "elitist" image many people have of the sport as an "English
@@ -939,7 +939,7 @@ Article #78
 Globalization and Sport
 One of the most recognized and widely debated terms in recent times is "globalization."
 While there is little consensus as to what it actually is, there is little doubt that the world
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 66 | P a g ewww. irlanguage .com
 has in one way or another become more inter-connected. Mass communications and
 transportation technology, in addition to the rise of transnational corporate culture, have
@@ -988,7 +988,7 @@ equality. Some sports, such as football or boxing, encourage very little female
 participation, although even these so-called "masculine" sports are changing. Women's
 boxing, for example, will probably be included in the Olympic Games by the end of this
 decade.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 67 | P a g ewww. irlanguage .com
 In the late 1800s and early 1900s, when sports and physical education programs were
 first organized in North America, women were forbidden from participating for so-called
@@ -1037,7 +1037,7 @@ This situation would soon change. Television as a popular and affordable medium 
 rapidly in the 1940s and 1950s. By the end of the 1950s, American televised sport entered
 a "Golden Age." It was during this period of time that major sporting organizations, such
 as professional leagues, and major amateur organizations, such as the International
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 68 | P a g ewww. irlanguage .com
 Olympic Committee (IOC), realized the benefits of television. Not only could TV make
 competitions available for a huge number of spectators, it could actually make money for
@@ -1086,7 +1086,7 @@ Ironically, part of Nike's status in the world of competitive sports merchandisi
 come from the attention it's received by critics. A short article published in the early-
 1990s in Harper's Magazine quickly mushroomed into an international outcry against
 Nike's practice of placing their factories in underdeveloped countries and paying workers
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 69 | P a g ewww. irlanguage .com
 below-subsistence wages. Nike quickly responded to the criticisms with a number of
 tactics to either divert attention away from the criticisms (ones that Knight, interestingly,

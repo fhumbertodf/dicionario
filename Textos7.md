@@ -18,7 +18,7 @@ listen to pop, rock, classical and some country. As you can see, I like many typ
 music. I have seen musicals, too, like Phantom of the Opera and Les Miserables. Those
 musicals were amazing. There were such bright costumes and stage sets, not to mention
 the wonderful songs and singing.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 48 | P a g ewww. irlanguage .com
 Music has been on this earth since the beginning of time, and it touches every one in a
 different way. I know it has not only touched me, but is a big part of my very being!
@@ -65,7 +65,7 @@ building and went on her way to try and find her classroom.
 Natalie got through her classes and met a lot of new people, nice people. Her classes
 seemed to go by really fast, and the day went by even faster.
 When Natalie got home she was so excited. She told her mom that classes weren't all
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 49 | P a g ewww. irlanguage .com
 that scary; the students and the teachers weren't scary either! Natalie knew that the
 school work would be hard, but she felt good about the people she had met that day. She
@@ -113,7 +113,7 @@ muscles and bones. It gets oxygen to our brain to help us think better. It can h
 smarter!
 Doing things that we believe are right and good gives us peace inside. It makes us be
 nicer people and is good for our spirit. When we do what we know is right, it helps to
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 50 | P a g ewww. irlanguage .com
 reduce stress, which isn't good for any part of us.
 When we take care of our body, mind, and spirit, we feel good all over and inside, too!
@@ -161,7 +161,7 @@ Canada and many other countries, too. You should see some of the fireworks that 
 There are many different colours. There's pink, blue, purple, yellow, green, red, even
 white, silver and gold. Fireworks make loud bangs, squeals, siren sounds, and
 sometimes all at once. There are lots of different sounds, but I can't even explain what
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 51 | P a g ewww. irlanguage .com
 they are all like.
 Fireworks are best when it's very dark outside. They light up the whole sky! Sometimes,
@@ -209,7 +209,7 @@ am me and that music is alive in me.
 Article #76
 Babies
 My baby is asleep in my arms. Her soft cheek rests against my chest, while her sweet
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 52 | P a g ewww. irlanguage .com
 breath puffs gently on my skin. Her tiny lips are puckered a bit. Her little eyelids flutter.
 I wonder what she dreams about as she sleeps. Does she dream? I have heard her
@@ -258,7 +258,7 @@ downstairs, we read together. Sometimes Mom will read to us, and sometimes we wi
 read to her. If Dad is not working, he will sometimes read, too. Mostly it is Mom we read
 with though. When we read, Mom helps us with words we cannot read. We have to try
 and sound the word out, but if we are really stuck, she will help us. If we come to a place
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 53 | P a g ewww. irlanguage .com
 in our reading where we do not understand the meaning of what was written, we stop
 reading and look at Mom. She will tell us what it means or help us figure it out on our
@@ -305,7 +305,7 @@ sorting the dishes and putting them back into the cupboard.
 Math is a powerful tool. Math should be our friend, and we will find more ways to use it to
 better our lives.
 ------------------------------------------------------------------------------------------------------------------------
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 54 | P a g ewww. irlanguage .com
 Article #79
 My Sister's Visit to Canada
@@ -354,7 +354,7 @@ beside a lake, and across the lake about 50 km away the large city can sometimes
 seen. Today the wind blew cooler air across the lake over the people on the beach. There
 were children playing in the water. One man helped his son dig holes in the sand, and the
 water ran into the holes. One lady held her children's hands and walked down into the
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 55 | P a g ewww. irlanguage .com
 water. Families climbed over the rocks and sat on the last rock where the water was deep.
 Teenagers rode bicycles and roller blades along the path beside the beach. Adults
@@ -403,7 +403,7 @@ fix anything that is broken in the house.
 I am very proud of my parents; they are over eighty years old and often hurt when they
 move around. But still they help other people, and they help each other. They have been
 married for over fifty years, but still my father loves my mother enough to plant roses for
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 56 | P a g ewww. irlanguage .com
 her to cheer her up when she was ill.
 ------------------------------------------------------------------------------------------------------------------------
@@ -450,7 +450,7 @@ roads. Also, the student driver should know the many rules about changing lanes,
 turning, stopping, and many other aspects of driving. In addition, the driver should be
 familiar with the way the car is operated; it is important to know how to use the lights,
 signals, brakes, accelerator, and steering wheel.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 57 | P a g ewww. irlanguage .com
 When a person starts learning to drive, it may take some time to become skilful. It takes
 some practice to become an expert in driving a car. One must become familiar with
@@ -498,7 +498,7 @@ of snow over the fields and trees can give a feeling of peace and calm. If you h
 seen snow before, you should someday experience this strange and wonderful
 substance!
 ------------------------------------------------------------------------------------------------------------------------
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 58 | P a g ewww. irlanguage .com
 Article #85
 Christmas
@@ -547,7 +547,7 @@ their lives.
 Today, the tradition of Thanksgiving celebration continues. Families gather to eat a large
 bird called a turkey. They also eat pumpkin pie. This is a sweet dessert that is made from
 a large orange vegetable that grows on the ground.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 59 | P a g ewww. irlanguage .com
 In the United States, Thanksgiving is celebrated on the fourth Thursday of November. But
 the following day, Friday, is also a holiday, and then comes the weekend. In Canada,
@@ -595,7 +595,7 @@ the spring season. The first of these days is called Good Friday. Christians rec
 Good Friday as the day when Jesus suffered and died on behalf of humanity.
 The second of these days is called Easter Sunday. Easter Sunday occurs two days after
 Good Friday. Christians celebrate Easter Sunday as the day when Jesus rose from the
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 60 | P a g ewww. irlanguage .com
 dead and went to Heaven. For Christians, Easter is the most solemn holiday of the year.
 Many people attend church services on Good Friday and on Easter Sunday.
@@ -642,7 +642,7 @@ Article #90
 Hobbies
 Hobbies are activities that people do in their spare time, for the sake of enjoyment. A
 hobby usually involves work of some kind, but the work is fun for the person who does it.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 61 | P a g ewww. irlanguage .com
 Some people enjoy their hobbies very much and like to spend much time on those
 hobbies.
@@ -690,7 +690,7 @@ life!
 So far, it is impossible to know whether or not there are intelligent beings on other
 planets. But even if those beings do exist, it seems very unlikely that we will ever meet
 them.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 62 | P a g ewww. irlanguage .com
 ------------------------------------------------------------------------------------------------------------------------
 Article #92
@@ -739,7 +739,7 @@ on farms. There are other students who find jobs mowing lawns or collecting tras
 Quite a few students work in stores. Some of these students have jobs as cashiers, and
 some have jobs putting products on store shelves. Other students work in restaurants,
 as waiters or as cooks.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 63 | P a g ewww. irlanguage .com
 Other students work in offices. Some of them work as assistants for other employees.
 Their tasks might include typing letters, programming computers, or delivering mail.
@@ -787,7 +787,7 @@ course, you can also listen the radio at home, or even at work. Listening to the
 popular activity for many people, and each city has many different radio stations.
 There are many different kinds of radio stations. Some radio stations provide news and
 information. Other radio stations have a "talk" format, where listeners can call the radio
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 64 | P a g ewww. irlanguage .com
 station's experts, to discuss political affairs or to ask for personal advice.
 Although there are many radio stations that provide news and opinions, most radio
@@ -836,7 +836,7 @@ satisfaction and pride!
 ------------------------------------------------------------------------------------------------------------------------
 Article #97
 Visiting the Doctor
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 65 | P a g ewww. irlanguage .com
 When people feel sick, they go to a doctor. But sometimes people visit the doctor even
 when they are not sick. Doctors can perform a medical "check-up", to find out if a person
@@ -884,7 +884,7 @@ same street where I lived. Sometimes, we walked to school together.
 During the summer months, many people came from the big city to visit our village. The
 people liked to get away from the busy streets of the city. They enjoyed the quietness
 and the slow pace of village life. They also liked to spend their vacations near the lakes
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 66 | P a g ewww. irlanguage .com
 that were near the village. People from the city often said that people who live in villages
 seemed very friendly.

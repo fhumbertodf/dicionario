@@ -39,7 +39,7 @@ While the battle was raging, the Texans back at the colony declared their indepe
 from Mexico.
 Sam Houston now gathered men to fight the Mexican army. At first, he retreated while
 waiting for a suitable opportunity. When Santa Ana's rapid advance left the bulk of the
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 16 | P a g ewww. irlanguage .com
 Mexican army behind, Houston prepared to fight. Santa Ana's advance troops moved into
 swampy land by the San Jacinto River. Houston's men attacked while the Mexicans were
@@ -87,7 +87,7 @@ reminded them of the virtues and holiness of St. Francis.
 ------------------------------------------------------------------------------------------------------------------------
 Article #16
 Summertime
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 17 | P a g ewww. irlanguage .com
 In North America, July and August are holiday months. Most schools and colleges are
 not in session then. Families look for activities to keep the children amused. Although
@@ -136,7 +136,7 @@ of so, using the telephone meant either contacting the operator to dial a number
 dialing yourself. After that, all you had to do was talk or listen.
 Nowadays, the telephone has become a very complex instrument; it rivals the computer
 as to the number of possible uses. Answering machines have been around for several
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 18 | P a g ewww. irlanguage .com
 decades, but they are now being replaced by voicemail. Voicemail does away with the
 need for an answering machine. Messages are stored on the system. That means that it
@@ -185,7 +185,7 @@ chemical industries and synthetic products. Most Texans now live in cities. Many
 companies have their headquarters in Dallas. Other large manufacturing cities are
 Houston, Corpus Christi, Fort Worth and Austin, which is the Capital of Texas.
 Several cities, such as San Antonio and El Paso, have a strong Spanish influence. This
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 19 | P a g ewww. irlanguage .com
 dates back to the first Spanish visitors in the sixteenth century. The old mission at San
 Antonio is famous as the Alamo, where an important battle for Texas independence was
@@ -234,7 +234,7 @@ dangerous car.
 Behind this story is the pressure on Ford to produce a small car to compete with
 imported vehicles. The Pinto was rushed into production in spite of warnings that the
 gas tank was in a dangerous position. It would have cost Ford an additional $11.00 per
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 20 | P a g ewww. irlanguage .com
 car to fix the problem. Ford decided not to.
 Later, Ford produced a cost-benefit analysis to justify their position. Estimating that the
@@ -283,7 +283,7 @@ Meanwhile, Spanish conquerors had found immense riches in gold and silver. Herna
 Cortes had captured the Kingdom of the Aztecs in Mexico in 1519. He had sent immense
 treasures to Europe. Soon after this, Francesco Pizarro began to explore the west coast
 of South America. In 1531, Pizarro invaded Peru and destroyed the Kingdom of the Incas.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 21 | P a g ewww. irlanguage .com
 Pizarro melted down the gold and silver treasures of the Incas, and sent gold and silver
 bricks back to Spain. The rush to find more gold became very heated.
@@ -332,7 +332,7 @@ trip through rapids and around rocks at top speed. The fur trader was found some
 later in very rough shape hundreds of miles down the river. No one would believe that he
 had come so far so fast.
 The Grand Canyon stretches for about 250 miles in the State of Arizona. The canyon was
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 22 | P a g ewww. irlanguage .com
 carved out by the flow of the river itself. In places the canyon is more than a mile deep. It
 stretches from four to 18 miles wide at the top. The canyon valley contains worn rocks
@@ -381,7 +381,7 @@ However, the Commission wanted to preserve all the beautiful scenery along the r
 and near the Falls for the general public. The first commissioner of the parks was Sir
 Casimir Gzowski, a distinguished engineer of Polish birth.
 Before the Queen Victoria Park Commission began to buy up land besides the Falls,
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 23 | P a g ewww. irlanguage .com
 tourists had to pay for everything. There were no public washrooms, no drinking
 fountains, and no safety barriers around the Falls. As a result, it was not uncommon for
@@ -430,7 +430,7 @@ these things in the 1820s. He also thought that flourmills needed a more reliabl
 of water to operate.
 St. Catharines is on Twelve-Mile Creek below the Niagara Escarpment. This creek runs
 towards Lake Ontario. It rises above the Escarpment, which stands from 150 to 300 feet
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 24 | P a g ewww. irlanguage .com
 high, then runs towards Lake Ontario. If Merritt could join the Twelve-Mile Creek to one of
 the rivers, which ran to Lake Erie, the canal would provide transportation and waterpower.
@@ -479,7 +479,7 @@ fewer employees.
 Wal-Mart also has the Wal-Mart Foundation, which sponsors numerous good causes.
 Among their programs are high school scholarship, fundraising for local hospitals and
 sick children, environmental concerns and community "matching grant' outreach.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 25 | P a g ewww. irlanguage .com
 So, what's not to like about Wal-Mart? The main complaint is that their business style is
 extremely aggressive. Wal-Mart's attitudes towards manufacturers and suppliers are:
@@ -527,7 +527,7 @@ Article #25
 Yellowstone National Park
 The area is rich in wildlife. Among the mammals are black bears, grizzly bears, elk,
 moose, mule deer, bison, bighorn sheep, coyotes, pronghorn antelope, beaver and
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 26 | P a g ewww. irlanguage .com
 wolves. Birds, especially waterfowl, are common all year. These include the trumpeter
 swan, blue heron, cormorants, bald eagles, osprey, pelicans, Canada geese and many
@@ -576,7 +576,7 @@ distinguished visitors speak; rock bands are in concert.
 Then there is always the question of student rights and responsibilities. What kinds of
 student behavior are unacceptable? Should the university pay attention to student
 activities off-campus? Committees meet, with student representation, to set guidelines
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 27 | P a g ewww. irlanguage .com
 for these matters.
 Another issue is who sets the agenda for the university. Corporate sponsors today are
@@ -625,7 +625,7 @@ Attending college and university is known to be one of the most carefree periods
 person's life. As long as you keep up with your readings and assignments, you should be
 able to avoid major difficulties. Facilities for athletics, student radio and newspapers,
 pubs and lounges and generally pleasant surroundings make campus life agreeable. It is
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 28 | P a g ewww. irlanguage .com
 a good time to make friends, learn new skills and take calculated risks. Moreover,
 colleges and universities are a good practical investment, as they help to prepare young
@@ -673,7 +673,7 @@ Article #29
 David Livingstone ? Medical Missionary
 During the reign of Queen Victoria (1837-1901), British people traveled around the whole
 world. They charted the seas, mapped out distant countries and studied plants, animals
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 29 | P a g ewww. irlanguage .com
 and people. They also claimed many lands for England. This kind of international travel
 was made easier by improved transportation and communication. New inventions such
@@ -723,7 +723,7 @@ The British government commissioned him to explore the Zambesi River. They hoped
 that ships could sail up the river into the interior. Unfortunately, the Zambesi had too
 many rapids. However, Livingstone did find a route up the Shire River to Lake Nyassa. He
 continued to struggle against the slave trade, which was now being taken over by Arabs.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 30 | P a g ewww. irlanguage .com
 Livingstone died in Africa in 1873. He was the first white man to explore Botswana,
 Zimbabwe, Zambia, Malawi and surrounding areas. He was not only a great explorer, but
@@ -771,7 +771,7 @@ Article #31
 Florence Nightingale
 It could be said that Florence Nightingale was responsible for inventing modern nursing.
 Indeed, Nightingale did open up the professions to women generally. Her example and
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 31 | P a g ewww. irlanguage .com
 influence during the mid to late nineteenth Century were an important factor in opening
 doors to women.
@@ -821,7 +821,7 @@ proper treatment of the sick and injured.
 ------------------------------------------------------------------------------------------------------------------------
 Article #32
 Harriet Tubman
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 32 | P a g ewww. irlanguage .com
 Before the American Civil War, the economy of the Southern States was based on the use
 of slave labour. The social and political leaders of the Old South were the plantation
@@ -869,7 +869,7 @@ Article #33
 Hernias Repaired Here
 A hernia occurs when there is a tear or weakness in the muscle layers of the abdomen.
 This allows the intestines to push forward into the gap. Usually the person feels some
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 33 | P a g ewww. irlanguage .com
 discomfort, and may notice an egg-shaped swelling. In a few cases, the muscle layers
 may clamp down on the protruding intestine, and cut off its oxygen supply. This can
@@ -918,7 +918,7 @@ seven years of age, Julie had an unbelievable range of four octaves. She soon ch
 her last name to "Andrews," the last name of her stepfather.
 As she grew older, Julie became one of England's most popular performers. In early
 childhood, Julie loved to play with her two younger half-brothers, but soon went on to
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 34 | P a g ewww. irlanguage .com
 stardom. At age twelve, Julie was cast in a London play and stopped the show with her
 remarkable talent. She starred in many different BBC productions during the forties.
@@ -967,7 +967,7 @@ potato chips, followed by Doritos, Ruffles, Tostitos, Cheetos, and Fritos. Inter
 Frito-Lay has 28% of the market worldwide. That amounts to $5.9 billion annually.
 Why are potato chips and corn chips so popular? Well, they are versatile. You can eat
 them by themselves or with a sandwich for lunch. They can replace other forms of
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 35 | P a g ewww. irlanguage .com
 potatoes and corn. They can also come in various flavours. For example, potato chip
 flavours include ketchup, salt and vinegar, barbeque, dill pickle and cheddar. Potato
@@ -1016,7 +1016,7 @@ season, and with great success. In 1957, a permanent theatre was built.
 The Stratford season in 2001 runs for more than six months, from late April to early
 November. There are fourteen plays in production at three different theatres. Altogether
 there are 668 performances, with a total attendance of 580,000 people. About 40% of the
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 36 | P a g ewww. irlanguage .com
 audience comes from the United States.
 Tom Patterson's plan to ease unemployment in Stratford has worked well. The festival
@@ -1065,7 +1065,7 @@ Snow's article was quite controversial. Not everyone agreed with him that scienc
 technology are being ignored by our educational system. But Snow certainly has a point
 when he says that scientific people and literary people view the world differently. These
 two different mindsets often lead to conflict in the workplace. Snow may be right that it is
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 37 | P a g ewww. irlanguage .com
 too easy for literary-minded students to ignore science, and scientifically minded
 students to ignore literature.
@@ -1114,7 +1114,7 @@ Both sides were tired of fighting by this time, and a peace treaty was signed on
 December 24, 1814. This agreement restored everything to the way it had been when the
 war began. Although this really meant that no one had won the war, both sides claimed
 victory. The Americans felt that they had gained full recognition of their independence.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 38 | P a g ewww. irlanguage .com
 Britain would no longer board their ships, or encourage the Indians to fight them.
 Canadians felt that they had shown Americans that they wanted to develop their own
@@ -1163,7 +1163,7 @@ plot or the stone grave marker. Sometimes poor people are buried at government
 expense.
 It is traditional in North American to bury the whole body in the ground. However,
 cremation is becoming more popular. The advantage of cremation is that it is less
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 39 | P a g ewww. irlanguage .com
 expensive, uses less land, and it appeals to people who don't want an elaborate funeral.
 Some people may wonder why so much attention is paid to a dead person. But funerals
@@ -1211,7 +1211,7 @@ became ill. War with Germany broke out in 1914, and the Russians suffered many d
 and losses. In March 1917, there was popular revolution, and the Tsar was deposed.
 From that time on, the royal family was prisoners. At first, they were treated kindly, but in
 November, the Bolsheviks or communists gained control of the revolution. Lenin and his
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 40 | P a g ewww. irlanguage .com
 followers hated the Tsar.
 The royal family had been living in Tobolsk in Siberia. Because of fears that they might
@@ -1260,7 +1260,7 @@ male and female prisoners.
 Since the convicts were technically under a sentence of death, there was little concern
 for making them comfortable. At first, the convicts were chained below decks, but later
 some were released when well out to sea. One man had been sentenced for the theft of a
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 41 | P a g ewww. irlanguage .com
 winter coat; another for stealing cucumbers from a garden; a third for carrying off a
 sheep. Among the women, one was guilty of stealing a large cheese; another of taking
@@ -1309,7 +1309,7 @@ cost of all this was $3.5 million, a huge sum in those days.
 Pellatt and his wife liked to entertain. They often opened up Casa Loma for special events.
 Sometimes, he would invite all 1,000 men from the Queen's Own Rifles over for the
 weekend. The Pellatts also held parties for the staff.
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 42 | P a g ewww. irlanguage .com
 Pellatt had hoped that Casa Loma would be the center of an extensive subdivision. He
 hoped that wealthy people would build grand homes nearby, and so he had bought up
@@ -1358,7 +1358,7 @@ nonetheless has a romantic crush on Charlie Brown. Snoopy, the dog, represents a
 detached inventive individual who also relies on basic creature comforts.
 These characters add up to a "human comedy." In the comic strip, we can see ourselves
 and the people around us: making mistakes, getting second chances, but tending to do
-‫ایرانیان‬ ‫زبان‬ ‫آموزش‬ ‫مرجع‬
+
 43 | P a g ewww. irlanguage .com
 the same things over again.
 Behind the humour of "Peanuts" there is a serious message. Words can hurt.
