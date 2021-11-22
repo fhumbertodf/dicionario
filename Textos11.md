@@ -1,6 +1,5 @@
-------------------------------------------------------------------------------------------------------------------------
-Article #79
-Women in Sport
+## 79 - Women in Sport
+
 The struggle to attain equality for female participation in sport has been a long and hard-
 fought one. One hundred years ago, a majority of people-many women included-would
 have thought it unnatural, if not immoral, to permit women to participate in sports. Today,
@@ -10,8 +9,6 @@ equality. Some sports, such as football or boxing, encourage very little female
 participation, although even these so-called "masculine" sports are changing. Women's
 boxing, for example, will probably be included in the Olympic Games by the end of this
 decade.
-
-67 | P a g ewww. irlanguage .com
 In the late 1800s and early 1900s, when sports and physical education programs were
 first organized in North America, women were forbidden from participating for so-called
 "scientific" or "medical" reasons. Physicians as a group often spoke out against female
@@ -41,9 +38,9 @@ become common in international sport.
 In the late-nineteenth century, the founder of the modern Olympic Games, Pierre de
 Coubertin, said that the sight of women participating in sport was an affront to the
 human eye, and unnatural. We've come a long way since then.
-------------------------------------------------------------------------------------------------------------------------
-Article #80
-Sport and Television
+
+## 80 - Sport and Television
+
 There is little question that television has radically changed the sporting world.
 Television has done more than just make existing sports more accessible to a mass
 audience. It has been argued that the very nature of sport and spectators' experiences of
@@ -59,8 +56,6 @@ This situation would soon change. Television as a popular and affordable medium 
 rapidly in the 1940s and 1950s. By the end of the 1950s, American televised sport entered
 a "Golden Age." It was during this period of time that major sporting organizations, such
 as professional leagues, and major amateur organizations, such as the International
-
-68 | P a g ewww. irlanguage .com
 Olympic Committee (IOC), realized the benefits of television. Not only could TV make
 competitions available for a huge number of spectators, it could actually make money for
 these organizations. Television companies, in turn, could make money by attracting
@@ -81,9 +76,9 @@ through the medium of television than they do as regular participants in sport. 
 television and sport relationship, then, presents a bit of a paradox. While on the one hand
 it has made sport more visible for more people, it has perhaps done so at the expense of
 actual participation in sport.
-------------------------------------------------------------------------------------------------------------------------
-Article #81
-Nike
+
+## 81 - Nike
+
 Nike and its swoosh corporate symbol are among the most recognized brand names in
 world, alongside McDonalds, Coca-Cola, and Disney. Starting in 1964 as a sport shoe
 outlet, the company grew to become the market leader in footwear and apparel. Nike has
@@ -108,8 +103,6 @@ Ironically, part of Nike's status in the world of competitive sports merchandisi
 come from the attention it's received by critics. A short article published in the early-
 1990s in Harper's Magazine quickly mushroomed into an international outcry against
 Nike's practice of placing their factories in underdeveloped countries and paying workers
-
-69 | P a g ewww. irlanguage .com
 below-subsistence wages. Nike quickly responded to the criticisms with a number of
 tactics to either divert attention away from the criticisms (ones that Knight, interestingly,
 at first denied), or by acknowledging the practices but claiming Nike was "cleaning up its
@@ -126,8 +119,8 @@ world. Nike's corporate headquarters in Oregon reflect these aspirations. Nike's
 buildings and surrounding grounds are constructed very much like a religious cathedral,
 only with elite athletes, and Knight himself, as the gods.
 
-Article #82
-Arthur Ashe
+## 82 - Arthur Ashe
+
 Arthur Ashe (1943-1993) was one of the most exceptional tennis players in the history of
 the sport. Born in Richmond, Virginia, Ashe served in the United States Army and had a
 good early amateur career. By the end of his life in 1993, Ashe was recognized not only
@@ -157,14 +150,12 @@ problems in sport no longer exist. Like any institution, race relations in sport
 thought of for their long-term trends, not individual exceptions.
 Arthur Ashe contracted the HIV virus through a blood transfusion and died of AIDS in
 1993, aged 50. While since his death he has become revered and respected, in the 1980s
-
-70 | P a g ewww. irlanguage .com
 near the end of his life he was unpopular for his ideas. However, his combination of
 political campaigning and athletic prowess has made him a revered figure in American
 history.
-------------------------------------------------------------------------------------------------------------------------
-Article #83
-Bjorn Borg
+
+## 83 - Bjorn Borg
+
 The professional career of tennis player Bjorn Borg was one of the most interesting ones
 in recent sports history. Borg's success in his sport came at an early age. Borg won
 Wimbledon when he was only 20 years old. However, by the time he was 26, and in the
@@ -196,17 +187,15 @@ career was a catalyst for Swedish tennis players. Those who followed in his foot
 and held him up as their hero included tennis stars Mats Wilander and Stephan Edberg.
 Perhaps most important of all, Borg gave to the sport of tennis a degree of showmanship,
 visibility, and marketability that was used as a role model for the sport in future decades.
-------------------------------------------------------------------------------------------------------------------------
-Article #84
-"Babe" Didrikson
+
+## 84 - "Babe" Didrikson
+
 Mildred "Babe" Didrikson (1913-1956) was one of the most celebrated female athletes of
 the first half of the twentieth century. Competing in the 1930s and 1940s, when
 conventional attitudes regarding women's participation in sport dominated North
 American culture, Babe Didrikson rose to fame by dominating not just one, but a number
 of sports.
 Didrikson flouted conventional notions of femininity and "proper" female activity by
-
-71 | P a g ewww. irlanguage .com
 excelling in field events such as javelin and shot-put, in addition to traditionally male-
 dominated sports such as baseball, swimming, and golf. Interestingly, Didrikson would
 always have to battle popular accounts that attacked or questioned her femininity and
@@ -233,9 +222,9 @@ several decades the challenges to sport made by other female athletes such as Bi
 Jean King, Martine Navratilova, and Florence Griffith Joyner. Didrikson forced a re-
 examination of the meaning of sports, making many aware of the social and political
 importance of an institution typically not thought of as such.
-------------------------------------------------------------------------------------------------------------------------
-Article #85
-The Dubin Inquiry
+
+## 85 - The Dubin Inquiry
+
 The Dubin Inquiry was a Canadian federal government inquiry into the state of amateur
 sport in Canada, more specifically into the use of performance-enhancing drugs by
 Canadian athletes. The inquiry followed in the footsteps of Canadian sprinter Ben
@@ -254,8 +243,6 @@ eagerly anticipated. The inquiry heard testimony from a large number of athletes
 coaches, sports administrators, and others. The most interesting submissions were
 made by Johnson's coach Charlie Francis, his physician Jamie Astaphan, and of course
 from Johnson himself. The inquiry disclosed drug taking on a scale never before
-
-72 | P a g ewww. irlanguage .com
 suspected. It was discovered that, besides the common practice of coaches encouraging
 athletes to take drugs, many others were guilty of turning a 'blind eye' to the problem and
 ignoring it.
@@ -279,9 +266,9 @@ scene to claim that drug use is less a reflection of individual athletes who che
 more a reflection of a cultural and institutional epidemic in sport. Drug use has perhaps
 become so common in the culture of elite sport that dealing with the problem by
 punishing individual athletes might be ineffective.
-------------------------------------------------------------------------------------------------------------------------
-Article #86
-FIFA
+
+## 86 - FIFA
+
 Created in 1904 with seven member nations, FIFA (Federation Internationale de Football
 Associations) is the international governing body of soccer. Soccer is the most widely
 watched and played game in the world. FIFA organizes the World Cup, which takes place
@@ -303,8 +290,6 @@ the game was so widespread that a world championship was justified. By the time 
 1998 World Cup was staged in France, 112 countries competed. Despite the sport
 originating in England, that country did not win a World Cup until 1966.
 One notable exception to the soccer fanaticism that is seen in many countries around the
-
-73 | P a g ewww. irlanguage .com
 world is the U.S.A. There has always been a problem developing soccer in the country
 that dominates so many other professional and amateur sports. One of the main reasons
 for this is the country is inundated with its professional sports system. For one reasons
@@ -318,9 +303,9 @@ ideal for commercials and advertising-based American television.
 The most recent evolution in soccer has been in the women's game. The 1999 Women's
 World Cup held in the U.S.A. was an unqualified success. Indeed, FIFA's president
 proclaimed that "the future of football is female."
-------------------------------------------------------------------------------------------------------------------------
-Article #87
-International Olympic Committee
+
+## 87 - International Olympic Committee
+
 The International Olympic Committee (IOC) was formed in 1896 to govern the
 organization and development of what were understood to be a modern version of the
 Greek Olympic Games. Its first president was Dimitros Vikelas, a Greek, and its secretary
@@ -352,8 +337,6 @@ through boycotts, and the Olympic movement was probably the most visible means o
 symbolically fighting the Cold War.
 The post-World War II years were lean ones for the Olympic movement. The IOC and
 hosting cities and nations often had trouble breaking even. At its worst, the Games went
-
-74 | P a g ewww. irlanguage .com
 into great financial debt, most notoriously in the Summer Games in Montreal in 1976.
 However, since that time, the Games have taken a more "market friendly" approach,
 encouraging private sponsorship and negotiating massive television contracts with
@@ -362,9 +345,9 @@ more financially solvent organization than it was a few decades ago. However, it
 clear that the IOC is following its founder's original plan for the movement. After all, de
 Coubertin was a pure amateur at heart. The current commercially oriented Olympics
 would make de Coubertin concerned, to say the least.
-------------------------------------------------------------------------------------------------------------------------
-Article #88
-Earvin "Magic" Johnson
+
+## 88 - Earvin "Magic" Johnson
+
 Earvin "Magic" Johnson is recognized as one of the best basketball players in the history
 of the sport. He will also be remembered as the first sports performer of international
 stature to declare openly that he had contracted the HIV virus.
@@ -395,13 +378,11 @@ status as an athlete in the public eye, making his career that much more notable
 little question, then, that the combination of incredible athletic prowess and the events
 surrounding his retirement will bestow upon Magic Johnson a prestigious position in
 sports history.
-------------------------------------------------------------------------------------------------------------------------
-Article #89
-Michael Jordan
+
+## 89 - Michael Jordan
+
 Michael Jordan is one of the most recognized sports figures in the world. To understand
 the breadth of his fame, it is probably best to think of Jordan in two senses: as a person
-
-75 | P a g ewww. irlanguage .com
 and an athlete with incredible athletic prowess and skill, and as a cultural and media icon.
 The second way of thinking about Jordan is probably equal to the first. After all, it was
 his endorsement of dozens of commercial products, spots in movies, and in general his
@@ -436,9 +417,9 @@ Jordan then made a brief comeback in the NBA, only to retire soon after. History
 recognize Jordan not only for his athletic prowess-arguably the best the sport of
 basketball has ever seen-and for his iconic status in the later-twentieth century world of
 sport's marketing and image production.
-------------------------------------------------------------------------------------------------------------------------
-Article #90
-Billie Jean King
+
+## 90 - Billie Jean King
+
 During her competitive days, Billie Jean King was one of the most successful players in
 women's tennis. However, King is probably more recognized for her political support of
 women's tennis, and her fight to achieve respect for lesbian and gay athletes in tennis,
@@ -449,8 +430,6 @@ most successful players take in tennis in the private clubs. When King began com
 in the elite levels of tennis, the sport was strictly amateur. She first entered Wimbledon in
 1961, and only two years later she advanced to the final. She won her first Wimbledon
 title in 1966, at the young age of 22. Her first place prize for winning was a $60 gift
-
-76 | P a g ewww. irlanguage .com
 voucher for Harrods department store. By the end of her remarkable career, King would
 amass a remarkable 39 Grand Slam titles.
 Although women's tennis was amateur, King and a few other players began arguing for
@@ -477,9 +456,9 @@ hiding her sexuality, which is what female lesbian athletes had been doing for y
 King was the first major sports superstar to come out. As such, King will be justifiably
 recognized as one of the first and most important fighters for the sexual rights of gays
 and lesbians in sport.
-------------------------------------------------------------------------------------------------------------------------
-Article #91
-Marathon
+
+## 91 - Marathon
+
 Few sports events integrate the competitive side of sport with the social and playful side
 of sport like marathon running. This might seem like a strange thing to say about what is
 such a rigorous and physically challenging event. However, major city marathons attract
@@ -498,8 +477,6 @@ emergence of several urban-based marathons. Some, notably the Boston Marathon, h
 been around for decades; however, many new ones emerged, especially in the 1970s and
 1980s. The emergence of these popular races coincided with a late-twentieth century
 boom in the sports and exercise industry. As a result, the sport of running took off.
-
-77 | P a g ewww. irlanguage .com
 Also, lasting images from top international competitions began to attract people to
 marathon running. In the Olympic marathon in 1952, Emil Zatopek won the race after
 having competed-and also won-in the 5,000 and 10,000 metres races. In 1960 and 1964,
@@ -518,9 +495,9 @@ included in the Olympic program.
 Today, major city marathons in Boston, New York, London, Berlin, and cities around the
 world make the race one of the most attractive participatory and spectator amateur
 sports events in the world.
-------------------------------------------------------------------------------------------------------------------------
-Article #92
-National Football League
+
+## 92 - National Football League
+
 The NFL (National Football League) is one of the, wealthiest and most powerful sports
 organizations in the world. Many of the single franchises or teams are worth $200-300
 million each. As such, each team should be thought of as a major corporation.
@@ -547,8 +524,6 @@ created for the sole purpose of creating more leverage with advertisers. After g
 greater legitimacy and earning more revenue, the up-start AFL was able to negotiate
 independently with other television networks and sign on big-name players. The most
 notable was star quarterback Joe Namath. With the AFL rising as a legitimate business
-
-78 | P a g ewww. irlanguage .com
 competitor, the NFL and AFL negotiated a merger, resulting in the NFL league, as it is
 known to this day. Since the merger, the NFL has maintained almost a complete
 monopoly over American professional football.
@@ -557,9 +532,8 @@ more specifically, of American-style commercial enterprise. The league's success
 no small part, been due to the relationship between the media and the sport. In a sense,
 football is a perfect example of a modern media-generated sport, successfully linking
 American norms and values with a sport tailor-made for commercial profit.
-------------------------------------------------------------------------------------------------------------------------
-Article #93
-Jackie Robinson
+
+## 93 - Jackie Robinson
 On April 15, 1947, Jackie Robinson (1919-1972) became the first African American to play
 in the Major League Baseball league. On that day, he started for the Brooklyn Dodgers.
 The so-called "colour-line" had existed in baseball and many other sports for decades in
@@ -593,11 +567,9 @@ before there would be complete acceptance of black players. To this day, there i
 representation of blacks in management and coaching positions in baseball.
 Robinson died in 1972. His headstone bears an epitaph that he wrote: "A life is not
 important except in the impact it has on other lives."
-------------------------------------------------------------------------------------------------------------------------
-Article #94
-Title IX
 
-79 | P a g ewww. irlanguage .com
+## 94 - Title IX
+
 In 1972, the United States Congress passed Title IX of the Educational Amendments. This
 instituted a law that would seriously affect all U.S. educational institutions' sports
 programs. The law specified that it was unlawful to discriminate on the basis of sex in
@@ -634,9 +606,9 @@ Today, women's sport has achieved a much higher level of respectability and supp
 schools. However, there is still resistance to complete equalization, and female-
 supportive administrators continue to fight legal battles in support of girls' and women's
 participation in sport.
-------------------------------------------------------------------------------------------------------------------------
-Article #95
-O. J. Simpson
+
+## 95 - O. J. Simpson
+
 It has been argued that the trial of Orenthal James (O.J.) Simpson for murder was the
 defining cultural experience of the U.S. in the 1990s. It dominated the front pages of
 newspapers in the U.S. and many other countries for several months. Indeed, Simpson
@@ -644,8 +616,6 @@ was for a period of time probably the most talked about person in the world, but
 of the discussions were about his athletic career.
 Until his internationally famous trial, Simpson was a relative unknown outside the U.S. A
 very wealthy and highly decorated former professional football player, Simpson made the
-
-80 | P a g ewww. irlanguage .com
 transition to acting and television commentating after his illustrious football career.
 However, when he was charged in June of 1994 with the murder of his estranged wife
 Nicole Simpson and her friend Ronald Goldman, and after his dramatic suicide getaway
@@ -675,9 +645,9 @@ police, an exhaustive months-long trial ensued, leading to Simpson's famous acqu
 More than just a murder trial, however, O.J. Simpson's trial highlighted the racial
 tensions in the U.S. In fact, history will undoubtedly remember Simpson more for his trial
 than for his illustrious football career.
-------------------------------------------------------------------------------------------------------------------------
-Article #96
-Fosbury Flop
+
+## 96 - Fosbury Flop
+
 American athlete Dick Fosbury devised the high jump technique known as the "Fosbury
 Flop." His new technique revolutionized one of the oldest events in track and field
 competition. While Fosbury never broke the world record using his new technique, other
@@ -693,8 +663,6 @@ older style of jumping, the front leg led the jumper up and over the bar in a fa
 position. Fosbury's technique involves approaching the bar in a curve with a last second
 acceleration. Then, at the point of take-off, the body rotates, positioning the back to the
 bar and leaping backwards. The head faces the sky as the body arches over the bar with
-
-81 | P a g ewww. irlanguage .com
 the mid-body and legs trailing behind.
 Fosbury had begun experimenting with the technique when he was only sixteen years
 old. In a meet in 1968 in which Fosbury used his new technique, a local newspaper's
@@ -704,9 +672,9 @@ Since Fosbury's competitive days, his technique has been widely copied. Once
 experienced jumpers mastered the technique, records started to fall in the sport, due
 mostly to the Fosbury Flop, but also to better equipment and running surfaces. Dick
 Fosbury will always be known for his revolutionizing of the sport of high jump.
-------------------------------------------------------------------------------------------------------------------------
-Article #97
-Free Agency
+
+## 97 - Free Agency
+
 "Free agency" refers to the ability of athletes to negotiate their own contracts and
 working conditions in professional sport. Before the 1970s, most professional sports had
 some sort of reserve system for athletes. In their reserve systems, players were forced to
@@ -742,14 +710,12 @@ substantially as a result.
 Today, sports fans often complain that players' salaries are too high. While certainly at
 times it seems difficult to justify the huge salaries of today, it should be kept in mind that
 before the current era of free agency and big contracts, players barely made a
-
-82 | P a g ewww. irlanguage .com
 subsistence wage, and often worked under conditions of servitude. The situation now
 might be less than perfect; however, it's certainly a vast improvement over the pre-free
 agency days.
-------------------------------------------------------------------------------------------------------------------------
-Article #98
-New Zealand
+
+## 98 - New Zealand
+
 New Zealand is a country that is located in the South Pacific ocean. The country is made
 up of two large islands, the North Island and the South Island, which are separated by a
 narrow channel of water. Although New Zealand has many beautiful mountains and
@@ -780,9 +746,9 @@ summer begins in December and winter begins in June. The South Island is cooler 
 the North Island, but both islands have similar amounts of rain. This rain gives the fields
 and forests of New Zealand a beautiful green colour. Each year, many tourists visit New
 Zealand, to experience the beautiful countryside and the interesting cultures of its people.
-------------------------------------------------------------------------------------------------------------------------
-Article #99
-Track and Field
+
+## 99 - Track and Field
+
 In many parts of the world, the sport of track and field is very popular. Actually, the sport
 of track and field includes many different sports. In some of these sports, the athletes
 run on a track. The athletes race against each other to find out who can run the fastest.
@@ -790,8 +756,6 @@ Some of these track events require great speed for a short distance. In the 100 
 the athletes must sprint as quickly as possible. Some athletes can run 100 metres in only
 10 seconds!
 Other track races are much longer, and these events require great endurance. In the
-
-83 | P a g ewww. irlanguage .com
 marathon, the athletes must run a distance of 42 kilometres. Because this is such a long
 distance, the athletes cannot run too quickly at the start. Instead, it is important to run at
 a steady pace and keep some energy for the end of the race. Some athletes can run the
@@ -816,9 +780,9 @@ Both men and women compete in the sport of track and field. Many boys and girls 
 track and field as part of their education in school. Those boys and girls who have much
 talent, and who work very hard, might someday compete in the Olympics. But for most
 people, track and field is just a fun and healthy way to get exercise and to make friends.
-------------------------------------------------------------------------------------------------------------------------
-Article #100
-Thomas Edison
+
+## 100 - Thomas Edison
+
 Thomas Edison was one of the most famous inventors of all time. He was born in a small
 town in the United States during the year 1847. When he was a young boy, Thomas found
 school to be very boring. A teacher once told Thomas's mother that he believed the
@@ -839,8 +803,6 @@ people began using electric lights in their homes.
 Another invention of Edison's is no longer used today. That invention was called the
 phonograph. It was a machine that could be used to record sounds, such as music and
 conversation. When Edison invented this machine, in 1877, it was the first time that
-
-84 | P a g ewww. irlanguage .com
 anyone had been able to preserve sounds. Today, people do not use the phonograph any
 more. Instead, they use compact discs (or CDs) to record music and other sounds.
 Edison also helped to improve some inventions that already existed. For example, he
@@ -853,8 +815,8 @@ said that "Genius is one per cent inspiration, and ninety-nine percent perspirat
 other words, a successful person should have good ideas, but the most important thing
 is to work very hard.
 
-Article #1
-Come to the Fair
+## 1 - Come to the Fair
+
 Fall fairs have been a feature of North American life since early in the nineteenth century.
 At the end of the harvest, people from rural areas have come together to celebrate.
 Usually, these fairs take the form of a competition regarding the best of all farm products
@@ -898,11 +860,9 @@ crafts, food and household exhibits. Men like the machinery, the horse races and
 exhibits. Everyone likes the grandstand shows. Nowadays, not so many people live on
 farms. But people from towns and cities still enjoy going to fall fairs. They are part of our
 North American heritage.
-------------------------------------------------------------------------------------------------------------------------
 
-4 | Pagewww. irlanguage .com
-Article #2
-Hiroshima
+## 2 - Hiroshima
+
 North American children know about Hiroshima. They are taught about the dangers of
 nuclear war. Sometimes they learn the details of the damage that was done. They learn
 about what happened at 8:15 am on August 6, 1945. People were eating breakfast;
@@ -940,16 +900,14 @@ many people to try to "ban the bomb." They wanted to ensure that atomic bombs wo
 not be used again. Even some of the scientists and aircrews involved in making and
 dropping the bomb at Hiroshima wanted it banned. Perhaps if we can all remember what
 happened that day, there will be no more Hiroshima's.
-------------------------------------------------------------------------------------------------------------------------
-Article #3
-Niagara Falls
+
+## 3 - Niagara Falls
+
 Niagara Falls is one of the world's leading tourist attractions. Millions of people around
 the world visit here each year. Summers at the Falls are especially busy, with traffic jams
 and parking problems. However, the Falls are beautiful in winter too.
 Many have asked why people travel so far to see water falling over a cliff. The size and
 beauty of Niagara Falls help to make it special. While many falls are higher than Niagara,
-
-5 | Pagewww. irlanguage .com
 very few are as wide or have such a volume of water. It also helps that Niagara is
 relatively easy to travel to.
 When the first Europeans came to Niagara, the Falls were surrounded by forest. The
@@ -983,9 +941,8 @@ have gone over the falls in a barrel, while others have walked above the falls o
 tightrope. Poets and artists have visited here to capture its beauty. Lovers have come to
 gaze on its romantic scenery. All of these, and many others, have helped to make Niagara
 Falls world famous.
-------------------------------------------------------------------------------------------------------------------------
-Article #4
-Cowboys
+
+## 4 - Cowboys
 The Golden Age of the American cowboy was short lived. It began in the 1860s with the
 great cattle drives from Texas north to Kansas. By 1890, when railroads had reached
 remote areas, there was no more need for large-scale cattle drives.
@@ -997,8 +954,6 @@ Texas. American settlers in Texas interbred their animals with the Spanish breed
 Texas longhorn cow was the result! It was famous for its bad temper and aggressiveness.
 The Longhorn was a dangerous animal, with each of its horns measuring up to three and
 one-half feet long.
-
-6 | Pagewww. irlanguage .com
 After the American Civil War ended in 1865, disbanded soldiers, who were former black
 slaves, and young men seeking adventure headed west. At that time, there were about
 five million cattle in Texas. Back in the East, there was a big demand for beef. By this
@@ -1027,9 +982,9 @@ In the 1870s, there were probably 40,000 cowboys in the West. After the prairies
 fenced in, there was less work. Large ranches still employ cowboys to round up the
 cattle for branding or for sale. Even today, about 20,000 cowboys still work in North
 America.
-------------------------------------------------------------------------------------------------------------------------
-Article #5
-George W. Bush Jr.
+
+## 5 - George W. Bush Jr.
+
 George W. Bush Jr. was inaugurated as the 43rd President of the United States on
 January 20, 2001. Of course, people knew that he was the son of the 41st President,
 George H. W. Bush. He had also been Governor of Texas since 1994. However, aside from
@@ -1046,8 +1001,6 @@ Of course, one advantage that Governor Bush had was a familiar name. In fact, wh
 did well in some early polls, it is likely that some people really voted for his father. They
 thought that George H. W. Bush was running again. The Bush family was able to swing a
 lot of support to George W. It also helped that his brother, Jeb, was now Governor of
-
-7 | Pagewww. irlanguage .com
 Florida.
 Parents George and Barbara were both born in eastern United States. But in 1948,
 George moved to Texas where he made a fortune in the oil business. He went into
@@ -1072,9 +1025,9 @@ conservative values. However, George W. did not appear as an ideologist to peopl
 his opponents were willing to work with him. When he ran for president in 2000, Bush
 described himself as a "compassionate conservative." Only time will tell how successful
 Bush will be as U.S. President.
-------------------------------------------------------------------------------------------------------------------------
-Article #6
-Handel's "Messiah"
+
+## 6 - Handel's "Messiah"
+
 George Frederick Handel was a native of Germany and spoke with a German accent all
 his life. Most of that life, however, was spent in London, England. As a young musician,
 Handel's sponsor was the Elector of Hanover. Later on, when the Elector became King
@@ -1095,8 +1048,6 @@ all Heaven before me, and the great God Himself."
 In the fall of 1741, Handel received an invitation from the Lord Lieutenant of Ireland to
 present operas and concerts there. Handel traveled from London to Dublin with his entire
 luggage and many of his singers. However, in order to rehearse on the way, he had to
-
-8 | Pagewww. irlanguage .com
 hire local people to fill in. Once, the composer soundly criticized one local singer who
 failed to meet his standards.
 Handel was warmly received in Dublin, where his concerts were sold out. Even his
@@ -1118,9 +1069,9 @@ later.
 "The Messiah" remains Handel's most popular work, combining wonderful music with
 inspiring religious sentiments. The Biblical text speaks of hope and salvation, and the
 music allows the text to soar into angelic songs.
-------------------------------------------------------------------------------------------------------------------------
-Article #7
-Ireland
+
+## 7 - Ireland
+
 Ireland is an island in the Atlantic Ocean just west of Britain. For much of its history, it
 has been an advantage to Ireland to be far from the mainland. The Romans or the other
 early Empires never conquered Ireland. It was the remoteness of Ireland that helped
@@ -1144,8 +1095,6 @@ to Canada.
 The influence of the Irish on North American culture has been very great in many areas.
 Prominent Irish-Americans include Presidents John F. Kennedy and Ronald Reagan.
 Meanwhile, in Ireland itself, a strong independence movement developed. A rebellion
-
-9 | Pagewww. irlanguage .com
 against England in 1916 began a struggle that resulted in independence for most of
 Ireland. Some Protestant areas in Northern Ireland preferred to stay with England.
 Republican groups such as the Irish Republican Army wanted to "liberate" the north from
@@ -1161,9 +1110,9 @@ their homeland. However, this exodus from Ireland has helped to spread Irish mus
 culture and products around the world. On St. Patrick's Day (March 17th), nearly
 everyone becomes Irish for the day. Then there is a great party with Celtic music, Irish
 dancing, green beer and the wearing of the green.
-------------------------------------------------------------------------------------------------------------------------
-Article #8
-Louisa May Alcott
+
+## 8 - Louisa May Alcott
+
 New England in the early and middle years of the nineteenth century had a flourishing
 culture. People were passionately interested in ideas and education. Most New
 Englanders were strongly opposed to slavery. They were also concerned about other
@@ -1193,8 +1142,6 @@ Massachusetts, where they live most of these years. When they moved back to Bost
 1848, Anna took a job looking after other people's children, and Louisa looked after the
 house. Meanwhile, their mother worked outside the home.
 While working on laundry or sewing, Louisa was thinking up stories. At night she would
-
-10 | P a g ewww. irlanguage .com
 write them down. When she was eighteen, she began selling poems and stories to
 magazines. Within ten years, Louisa was earning a substantial income from writing. One
 day her publisher suggested that she write a story for girls. At first Louisa didn't like the

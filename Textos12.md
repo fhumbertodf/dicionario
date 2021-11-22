@@ -1,6 +1,5 @@
-------------------------------------------------------------------------------------------------------------------------
-Article #9
-Niagara-On-The-Lake
+## 9 - Niagara-On-The-Lake
+
 Niagara-on-the-Lake is a little town at the mouth of the Niagara River. It is only twelve
 miles north of Niagara Falls. It used to be true that very few tourists would bother to
 travel from the Falls down to Niagara-on-the-Lake. Nowadays, however, the little town
@@ -31,8 +30,6 @@ In 1996, Niagara-on-the-Lake was voted "the prettiest town in Canada." Partly, i
 scale of things that makes the old town so attractive. The old town is only about eight
 blocks long by eight blocks wide. It has a population of little more than 1,000 people.
 Nonetheless, there is a lot for people to do and see. There are many interesting shops,
-
-11 | P a g ewww. irlanguage .com
 old hotels, bookstores, art galleries, museums, a golf course, a marina, historic churches
 and cemeteries, several parks, three theatres and lots of restaurants.
 Because it is small, Niagara-on-the-Lake is a good place to walk around or bicycle
@@ -41,9 +38,9 @@ tourist season, one doesn't have to go far off the main street to get in touch w
 slower time. Most of the downtown buildings haven't changed much since the days of
 Queen Victoria, and tourists can still imagine that they are back in the days before
 computers and television
-------------------------------------------------------------------------------------------------------------------------
-Article #10
-Newspapers
+
+## 10 - Newspapers
+
 All the great cities in the world now have newspapers. But newspapers, as we know them
 today, are not that old. The very first newspapers began long after the invention of
 printing. They started in Europe in the 1600s, and were usually only a couple of pages
@@ -80,8 +77,6 @@ aimed at the average person, rather than the governing class. Examples of the ne
 of editing and publishing were Joseph Pulitzer and William Randolph Hearst. Hearst,
 especially, employed sensational and emotional writing, which aimed at stirring up the
 public to action. Hearst is sometimes accused of starting the Spanish-American War of
-
-12 | P a g ewww. irlanguage .com
 1898 with his over-heated editorials. Nonetheless, his methods were successful in
 raising circulation and were widely imitated.
 The modern newspaper contains more than hard news. In fact, news may be a fairly small
@@ -89,9 +84,9 @@ part of it. Advertisements, gossip, show business, photos of celebrities, sports
 market prices, horoscopes, comic strips, weather reports and much more are found in its
 pages. The modern newspaper is a total entertainment package. A question for the future
 is whether electronic newspapers will replace paper newspapers.
-------------------------------------------------------------------------------------------------------------------------
-Article #11
-Paul Kane, Frontier Artist
+
+## 11 - Paul Kane, Frontier Artist
+
 Since Christopher Columbus first met American Indians in 1492, many Europeans had
 been fascinated by Indian life and culture. As a result, there was a demand in Europe for
 drawings and paintings of Native Americans. European artists who had never seen an
@@ -129,8 +124,6 @@ Although Kane faced incredible hardships during his travels, he was able to see 
 wanted to see. He was able to take part in one of the last great Buffalo hunts and killed
 two large bison himself. Traveling west with the fur traders he visited many forts and
 trading posts. He saw and painted a prairie fire. He shot a grizzly bear at close range and
-
-13 | P a g ewww. irlanguage .com
 killed several wolves that attacked his horses. He learned to travel long distances on
 snowshoes in winter. Finally, he arrived at the Pacific coast, where he made some fine
 drawings of the west coast Indians. European diseases had reached there just before
@@ -145,9 +138,9 @@ enemies. He was able to sketch the leading chief, Big Snake, who was later kille
 single combat during the battle.
 When he arrived back in Toronto, Kane gave an exhibit of his sketches and watercolors.
 Most of the rest of his life was spent turning these drawings into finished paintings.
-------------------------------------------------------------------------------------------------------------------------
-Article #12
-Plains Indians
+
+## 12 - Plains Indians
+
 The best known picture of an American Indian is a warrior in buckskin, riding a horse,
 wearing a headdress of eagle feathers and carrying a spear, or bow and arrow. This is a
 picture of a Plains Indian, and it appears in many Hollywood westerns and on the
@@ -178,8 +171,6 @@ kill more than 30,000 buffalo.
 The Plains Indians received nearly everything they needed from the buffalo. Of course,
 they used buffalo meat for food. They also used the buffalo skins for clothing, blankets,
 and the covering of their teepees. These teepees were cone-shaped tents, which were
-
-14 | P a g ewww. irlanguage .com
 easy to put up and take down. Plains Indians were nomadic, and followed the animals
 they hunted. Since these animals were plentiful, Plains Indians usually led a comfortable
 life. They developed complex religions and social rituals, as well as specialized societies
@@ -188,9 +179,9 @@ Many Plains Indians fought hard against the settlement of the Great Plains. The 
 government discouraged the hunting of buffalo, because without the buffalo the Plains
 Indians would not be able to fight. With the buffalo disappearing, the Plains Indians had
 to give up fighting and move into government-sponsored reservations.
-------------------------------------------------------------------------------------------------------------------------
-Article #13
-Pocahontas and John Smith
+
+## 13 - Pocahontas and John Smith
+
 In 1606, King James of England approved the establishment of two colonies along the
 eastern coast of America. The northern colony in Maine lasted only a year. The southern
 one at Jamestown in Virginia became England's first permanent settlement in America.
@@ -227,16 +218,14 @@ Indians became peaceful. But in late 1609, Smith was injured in an explosion and
 returned to England.
 Pocahontas remained a friend to the colony. She married John Rolfe, one of the settlers.
 In 1616, she traveled to England with her husband and son. There she saw John Smith
-
-15 | P a g ewww. irlanguage .com
 once again. She was so surprised to see him that she was unable to speak for several
 days. Pocahontas had believed that Smith was dead. The following year she died and
 was buried in England.
 Pocahontas' love for Smith, and Smith's determination to fight for the colony, had saved
 Jamestown and given the English their first colony in America.
 
-Article #14
-Remember The Alamo!
+## 14 - Remember The Alamo!
+
 The first Europeans in the American Southwest were Spanish explorers and conquerors.
 They were followed by religious orders that set up missions to Christianize the Indians.
 One of these missions was San Antonio de Valero; it was founded in 1718 in what is now
@@ -276,8 +265,6 @@ While the battle was raging, the Texans back at the colony declared their indepe
 from Mexico.
 Sam Houston now gathered men to fight the Mexican army. At first, he retreated while
 waiting for a suitable opportunity. When Santa Ana's rapid advance left the bulk of the
-
-16 | P a g ewww. irlanguage .com
 Mexican army behind, Houston prepared to fight. Santa Ana's advance troops moved into
 swampy land by the San Jacinto River. Houston's men attacked while the Mexicans were
 having their midday siesta. Their battle cry was "Remember the Alamo!" The battle was
@@ -285,9 +272,9 @@ soon over. Many Mexicans were killed, but only a couple of Texans were killed. S
 was a prisoner.
 Santa Ana readily agreed now to recognize Texas as an independent republic. Ninety
 years later, in 1845, Texas became the 28th State of the U.S.A.
-------------------------------------------------------------------------------------------------------------------------
-Article #15
-Gribbio
+
+## 15 - Gribbio
+
 St. Francis of Assisi, who lived in Italy in the early thirteenth century, was known for his
 love of animals. He was the first person who celebrated the birth of Jesus by gathering
 live animals around a manger. He often talked to the birds as he traveled along.
@@ -321,11 +308,9 @@ The wolf and the people kept the agreement. Two years later the wolf died. The p
 remembered how it no longer hurt anyone and that not a single dog ever barked at it. The
 townspeople of Gribbio lamented its death. Whenever it went through town, it had
 reminded them of the virtues and holiness of St. Francis.
-------------------------------------------------------------------------------------------------------------------------
-Article #16
-Summertime
 
-17 | P a g ewww. irlanguage .com
+## 16 - Summertime
+
 In North America, July and August are holiday months. Most schools and colleges are
 not in session then. Families look for activities to keep the children amused. Although
 not all workers get a full two months of holidays, most people take a holiday in the
@@ -364,17 +349,15 @@ at the theatres in the summer. Air-conditioned theatres with new movies and lots
 and popcorn are favorite summer places.
 After two months of summer activities, most people are ready to go back to school and
 work. But they usually have lots of happy memories to take back with them.
-------------------------------------------------------------------------------------------------------------------------
-Article #17
-Telephone Systems
+
+## 17 - Telephone Systems
+
 When Alexander Graham Bell developed the telephone in the 1870s, it was fairly simple
 to use. You talked into the mouthpiece and then held it to your ear to listen. For a century
 of so, using the telephone meant either contacting the operator to dial a number, or
 dialing yourself. After that, all you had to do was talk or listen.
 Nowadays, the telephone has become a very complex instrument; it rivals the computer
 as to the number of possible uses. Answering machines have been around for several
-
-18 | P a g ewww. irlanguage .com
 decades, but they are now being replaced by voicemail. Voicemail does away with the
 need for an answering machine. Messages are stored on the system. That means that it
 is possible to forward the message to someone else's phone, or transfer the call to a
@@ -405,9 +388,9 @@ Don't use voicemail as a way to avoid answering the telephone. Some people use
 voicemail to screen calls; this can be annoying to someone who can never contact you
 directly. Check your messages regularly and reply to them promptly. Enjoy the
 telecommunications revolution!
-------------------------------------------------------------------------------------------------------------------------
-Article #18
-Texas
+
+## 18 - Texas
+
 The state of Texas is famous for having the biggest and best of everything. Before Alaska
 became a state, Texas was the largest American state. It was also famous for its huge
 cattle ranches. Cotton is a major crop, but much of the wealth comes from oil and gas.
@@ -422,8 +405,6 @@ chemical industries and synthetic products. Most Texans now live in cities. Many
 companies have their headquarters in Dallas. Other large manufacturing cities are
 Houston, Corpus Christi, Fort Worth and Austin, which is the Capital of Texas.
 Several cities, such as San Antonio and El Paso, have a strong Spanish influence. This
-
-19 | P a g ewww. irlanguage .com
 dates back to the first Spanish visitors in the sixteenth century. The old mission at San
 Antonio is famous as the Alamo, where an important battle for Texas independence was
 fought.
@@ -450,9 +431,9 @@ manufacturing and tourism. The colorful history of Texas and its wonderful scene
 contribute to a thriving tourist industry. Texas is also an important business and financial
 area. Yes, even though times have changed, Texans proudly maintain that their state still
 has the biggest and the best of everything.
-------------------------------------------------------------------------------------------------------------------------
-Article #19
-The Ford Pinto Case
+
+## 19 - The Ford Pinto Case
+
 Businessmen often complain that their profits are negatively affected by government
 regulations. On the other hand, history has proven that it is necessary to regulate
 business in at least one area--public safety. There is ample evidence that consideration
@@ -471,8 +452,6 @@ dangerous car.
 Behind this story is the pressure on Ford to produce a small car to compete with
 imported vehicles. The Pinto was rushed into production in spite of warnings that the
 gas tank was in a dangerous position. It would have cost Ford an additional $11.00 per
-
-20 | P a g ewww. irlanguage .com
 car to fix the problem. Ford decided not to.
 Later, Ford produced a cost-benefit analysis to justify their position. Estimating that the
 faulty design would cause 180 additional deaths, Ford valued these at $200,000 per
@@ -494,9 +473,9 @@ look closely at product or service safety. This is especially true today when th
 line" in business is seen as a justification for every decision. For this reason,
 governments have to oversee issues of public safety. Most businesses are too busy
 working on profits to have much time or concern for doing so.
-------------------------------------------------------------------------------------------------------------------------
-Article #20
-The Golden Man ? El Dorado
+
+## 20 - The Golden Man ? El Dorado
+
 When Christopher Columbus sailed west from Spain in 1492, he was trying to reach the
 Spice Islands (which today are called Indonesia). Spices were very scarce and valuable
 in Europe at this time. No one knew that two vast oceans and the American continents
@@ -520,8 +499,6 @@ Meanwhile, Spanish conquerors had found immense riches in gold and silver. Herna
 Cortes had captured the Kingdom of the Aztecs in Mexico in 1519. He had sent immense
 treasures to Europe. Soon after this, Francesco Pizarro began to explore the west coast
 of South America. In 1531, Pizarro invaded Peru and destroyed the Kingdom of the Incas.
-
-21 | P a g ewww. irlanguage .com
 Pizarro melted down the gold and silver treasures of the Incas, and sent gold and silver
 bricks back to Spain. The rush to find more gold became very heated.
 Rumours came down from the mountains of Colombia about a golden man - el hombre
@@ -554,9 +531,9 @@ that Europeans desperately needed to stay alive. In many cases, the Europeans
 destroyed the trading and social systems that had produced their wealth. When we think
 about the great achievements of a few conquerors and explorers, we are also sad about
 how much death and damage they caused.
-------------------------------------------------------------------------------------------------------------------------
-Article #21
-The Grand Canyon
+
+## 21 - The Grand Canyon
+
 The Grand Canyon is one of the most spectacular sights in nature. It is found in one
 section of the valley of the Colorado River. The river begins its course high in the Rocky
 Mountains of the State of Colorado. The river travels a total of 1,400 miles through
@@ -569,8 +546,6 @@ trip through rapids and around rocks at top speed. The fur trader was found some
 later in very rough shape hundreds of miles down the river. No one would believe that he
 had come so far so fast.
 The Grand Canyon stretches for about 250 miles in the State of Arizona. The canyon was
-
-22 | P a g ewww. irlanguage .com
 carved out by the flow of the river itself. In places the canyon is more than a mile deep. It
 stretches from four to 18 miles wide at the top. The canyon valley contains worn rocks
 that rise up like a mountain range. The canyon has been worn down through many layers
@@ -598,9 +573,9 @@ source of electric power for this section of the country.
 Visitors to the Grand Canyon are often filled with awe by the size and beauty of the
 canyon. People seem very small in comparison to the immense cliffs, valleys and the
 mighty river.
-------------------------------------------------------------------------------------------------------------------------
-Article #22
-The Niagara Park's Commission
+
+## 22 - The Niagara Park's Commission
+
 Niagara Falls, Canada, became a major tourist attraction in the mid-1830s. By this time,
 roads, canals and railways were able to bring people from urban centers, like New York
 and Boston. However, the chance for big profits attracted dishonest businessmen. One
@@ -618,8 +593,6 @@ However, the Commission wanted to preserve all the beautiful scenery along the r
 and near the Falls for the general public. The first commissioner of the parks was Sir
 Casimir Gzowski, a distinguished engineer of Polish birth.
 Before the Queen Victoria Park Commission began to buy up land besides the Falls,
-
-23 | P a g ewww. irlanguage .com
 tourists had to pay for everything. There were no public washrooms, no drinking
 fountains, and no safety barriers around the Falls. As a result, it was not uncommon for
 tourists crowding close to the Falls, or hypnotized by the flow of the river, to step too
@@ -643,9 +616,9 @@ The Niagara Parks Commission has played a major role in making Niagara Falls and
 Niagara River one of the leading tourist areas in the world. The Commission shows how
 governments can work to make visits to natural wonders like Niagara Falls a good
 experience for the general public.
-------------------------------------------------------------------------------------------------------------------------
-Article #23
-The Welland Canal
+
+## 23 - The Welland Canal
+
 Before railways and automobiles became common, transporting goods over long
 distances was a difficult chore. In early North America, roads were often bad or non-
 existent. In the winter, snow and cold weather made travel difficult. Frontier farmers had
@@ -667,8 +640,6 @@ these things in the 1820s. He also thought that flourmills needed a more reliabl
 of water to operate.
 St. Catharines is on Twelve-Mile Creek below the Niagara Escarpment. This creek runs
 towards Lake Ontario. It rises above the Escarpment, which stands from 150 to 300 feet
-
-24 | P a g ewww. irlanguage .com
 high, then runs towards Lake Ontario. If Merritt could join the Twelve-Mile Creek to one of
 the rivers, which ran to Lake Erie, the canal would provide transportation and waterpower.
 The problem was to find a way to move boats up the escarpment.
@@ -689,9 +660,9 @@ The Welland Canal has been rebuilt three times since the first canal opened in 1
 large sea-going and lake vessels cross the Niagara Peninsula from Lake Ontario to Lake
 Erie. They carry grain, coal, iron ore, oil and many other bulk products. The Welland
 Canal remains one of the most important commercial waterways in the world.
-------------------------------------------------------------------------------------------------------------------------
-Article #24
-Wal-Mart Stores
+
+## 24 - Wal-Mart Stores
+
 Wal-Mart is now the world's largest retail organization. Wal-Mart employs around 1.2
 million people worldwide. In 2000, Wal-Mart had sales of more than $191 billion, with
 profits of $6.3 billion. Profits increased 16% from the previous year.
@@ -716,8 +687,6 @@ fewer employees.
 Wal-Mart also has the Wal-Mart Foundation, which sponsors numerous good causes.
 Among their programs are high school scholarship, fundraising for local hospitals and
 sick children, environmental concerns and community "matching grant' outreach.
-
-25 | P a g ewww. irlanguage .com
 So, what's not to like about Wal-Mart? The main complaint is that their business style is
 extremely aggressive. Wal-Mart's attitudes towards manufacturers and suppliers are:
 "You do it our way, or we won't do business with you." This puts Wal-Mart at an
@@ -730,9 +699,9 @@ company that works with Wal-Mart becomes one of their employees.
 Any company, which so dominates one area of the market, will have a lot of power. So far,
 Wal-Mart has been successful in getting what it wants, and providing customers with
 what they want.
-------------------------------------------------------------------------------------------------------------------------
-Article #25
-Yellowstone National Park
+
+## 25 - Yellowstone National Park
+
 The Rocky Mountains of North America are quite old. Even though they were very
 volcanic millions of years ago, only a couple was still active today. In Yellowstone
 National Park, however, there is a large area of land, which indicates recent volcanic
@@ -759,13 +728,11 @@ eroding its rocky banks. It is the yellow colour of these canyon walls that gave
 Yellowstone its name. The area has many waterfalls, including the 308-foot high Lower
 Falls in the Yellowstone River. There are many beautiful lakes, and the largest is
 Yellowstone Lake.
-------------------------------------------------------------------------------------------------------------------------
-Article #25
-Yellowstone National Park
+
+## 25 - Yellowstone National Park
+
 The area is rich in wildlife. Among the mammals are black bears, grizzly bears, elk,
 moose, mule deer, bison, bighorn sheep, coyotes, pronghorn antelope, beaver and
-
-26 | P a g ewww. irlanguage .com
 wolves. Birds, especially waterfowl, are common all year. These include the trumpeter
 swan, blue heron, cormorants, bald eagles, osprey, pelicans, Canada geese and many
 kinds of ducks. Sport fish are also plentiful.
@@ -782,9 +749,9 @@ in Yellowstone Park and about 50 of them are spectacular. Some shoot their spray
 200 feet high.
 Visitors from all over the world are delighted that this region has been preserved as a
 national park!
-------------------------------------------------------------------------------------------------------------------------
-Article #26
-Student Newspapers
+
+## 26 - Student Newspapers
+
 In North America, most colleges and universities, as well as many high schools, have a
 student newspaper. These newspapers focus on happenings at the school. They inform
 the student population about activities on campus and often include world news, which
@@ -813,8 +780,6 @@ distinguished visitors speak; rock bands are in concert.
 Then there is always the question of student rights and responsibilities. What kinds of
 student behavior are unacceptable? Should the university pay attention to student
 activities off-campus? Committees meet, with student representation, to set guidelines
-
-27 | P a g ewww. irlanguage .com
 for these matters.
 Another issue is who sets the agenda for the university. Corporate sponsors today are
 buying exclusive rights to distribute their products on campus. Governments are
@@ -824,9 +789,9 @@ So there is no shortage of topics for student journalists to address. Of course,
 write about everything that young people are interested in - music, movies, computers,
 sports, travel and pop culture. Student newspapers are an important training group for
 democracy. They are also very interesting to read.
-------------------------------------------------------------------------------------------------------------------------
-Article #27
-Canadian Colleges and Universities
+
+## 27 - Canadian Colleges and Universities
+
 Canada has about fifty accredited universities spread across ten provinces. All, except
 one, are primarily government-funded. This means that there is considerable uniformity
 regarding programs, administration and policy. Private colleges tend to be smaller and
@@ -862,14 +827,12 @@ Attending college and university is known to be one of the most carefree periods
 person's life. As long as you keep up with your readings and assignments, you should be
 able to avoid major difficulties. Facilities for athletics, student radio and newspapers,
 pubs and lounges and generally pleasant surroundings make campus life agreeable. It is
-
-28 | P a g ewww. irlanguage .com
 a good time to make friends, learn new skills and take calculated risks. Moreover,
 colleges and universities are a good practical investment, as they help to prepare young
 people for a changing world.
-------------------------------------------------------------------------------------------------------------------------
-Article #28
-Coffee and Donuts
+
+## 28 - Coffee and Donuts
+
 "Let's go for coffee!" All over North America friends like to meet at the coffee shop. Here
 people sit and talk about the day's business, news and sports, personal concerns, shop
 talk, or simply gossip. Coffee shops have an informal atmosphere that encourages
@@ -905,13 +868,11 @@ fried breads with various toppings. Most donuts have a hole in the middle. Even 
 donut.
 Everywhere you go in North America, you will see coffee shops. So take half an hour to
 stop in and relax. You'll enjoy the great North American "coffee break!"
-------------------------------------------------------------------------------------------------------------------------
-Article #29
-David Livingstone ? Medical Missionary
+
+## 29 - David Livingstone ? Medical Missionary
+
 During the reign of Queen Victoria (1837-1901), British people traveled around the whole
 world. They charted the seas, mapped out distant countries and studied plants, animals
-
-29 | P a g ewww. irlanguage .com
 and people. They also claimed many lands for England. This kind of international travel
 was made easier by improved transportation and communication. New inventions such
 as steamships, trains, telegraphs and telephones made long distances seem smaller.
@@ -960,15 +921,13 @@ The British government commissioned him to explore the Zambesi River. They hoped
 that ships could sail up the river into the interior. Unfortunately, the Zambesi had too
 many rapids. However, Livingstone did find a route up the Shire River to Lake Nyassa. He
 continued to struggle against the slave trade, which was now being taken over by Arabs.
-
-30 | P a g ewww. irlanguage .com
 Livingstone died in Africa in 1873. He was the first white man to explore Botswana,
 Zimbabwe, Zambia, Malawi and surrounding areas. He was not only a great explorer, but
 also a fine doctor and a good missionary. Nowadays, the countries that Livingstone
 visited are nearly all Christian--just as he hoped they would be.
-------------------------------------------------------------------------------------------------------------------------
-Article #30
-Favourite Cookies
+
+## 30 - Favourite Cookies
+
 North Americans are known for their "sweet tooth." This means that they like snacks with
 lots of sugar. Americans drink a lot of coffee, tea and hot chocolate, and usually they
 have something sweet with their drink. Cookies are one of America's favourite desserts.
@@ -1003,13 +962,11 @@ Experiments in baking and packaging have led to new kinds of cookies. Recently, 
 cookies have become very popular. Since they are packaged in foil, they can stay fresh
 and soft for many months. It seems likely that the love of cookies will be around for a
 long time.
-------------------------------------------------------------------------------------------------------------------------
-Article #31
-Florence Nightingale
+
+## 31 - Florence Nightingale
+
 It could be said that Florence Nightingale was responsible for inventing modern nursing.
 Indeed, Nightingale did open up the professions to women generally. Her example and
-
-31 | P a g ewww. irlanguage .com
 influence during the mid to late nineteenth Century were an important factor in opening
 doors to women.
 Nightingale's own life reflects many of these changes. She was born in 1820, and was
@@ -1055,11 +1012,9 @@ several books on nursing and her own proposals and suggestions. She also set up 
 training school for nurses. Long before her death in 1910, she had seen nursing become
 a well-established profession. Almost single-handedly she had helped to bring about
 proper treatment of the sick and injured.
-------------------------------------------------------------------------------------------------------------------------
-Article #32
-Harriet Tubman
 
-32 | P a g ewww. irlanguage .com
+## 32 - Harriet Tubman
+
 Before the American Civil War, the economy of the Southern States was based on the use
 of slave labour. The social and political leaders of the Old South were the plantation
 owners. Many of these owned hundreds of black slaves. The slaves were mainly used to
@@ -1101,13 +1056,11 @@ Davis. In 1869, a book was written about Harriet Tubman.
 Black slaves knew Harriet as "Moses." The Bible tells the store of how Moses led the
 people of Israel out of slavery in Egypt. He led them north to Palestine. In the same way,
 Harriet Tubman delivered many of her people from slavery and led them north to freedom.
-------------------------------------------------------------------------------------------------------------------------
-Article #33
-Hernias Repaired Here
+
+## 33 - Hernias Repaired Here
+
 A hernia occurs when there is a tear or weakness in the muscle layers of the abdomen.
 This allows the intestines to push forward into the gap. Usually the person feels some
-
-33 | P a g ewww. irlanguage .com
 discomfort, and may notice an egg-shaped swelling. In a few cases, the muscle layers
 may clamp down on the protruding intestine, and cut off its oxygen supply. This can
 result in death, if medical help is not readily available.
@@ -1141,9 +1094,9 @@ advertisements are his satisfied customers.
 Hernia patients come not only from Canada and the United States, but also from many
 countries of the world to receive the best possible treatment. Shouldice remains the
 most famous hospital in the world devoted entirely to the repair and treatment of hernias.
-------------------------------------------------------------------------------------------------------------------------
-Article #34
-Julie Andrews
+
+## 34 - Julie Andrews
+
 Julie Andrews, born Julia Elizabeth Wells, was born on October 1, 1935. She lived in a
 small town called Walton-on-the-Thames in England, which is south of London. Her
 father Ted Wells was a teacher, and mother Barbara was a pianist and piano teacher. She
@@ -1155,8 +1108,6 @@ seven years of age, Julie had an unbelievable range of four octaves. She soon ch
 her last name to "Andrews," the last name of her stepfather.
 As she grew older, Julie became one of England's most popular performers. In early
 childhood, Julie loved to play with her two younger half-brothers, but soon went on to
-
-34 | P a g ewww. irlanguage .com
 stardom. At age twelve, Julie was cast in a London play and stopped the show with her
 remarkable talent. She starred in many different BBC productions during the forties.
 Later, she starred in many Broadway plays such as The Boyfriend, My Fair Lady, and
@@ -1177,9 +1128,9 @@ In 1998, tragedy struck Julie. She lost her extraordinary talent for singing due
 on her throat in order to remove a benign tumor.
 A year later, she made an attempt to sing again; however, her voice will never be the
 same. Julie has recently been on Britain's Royal Honour List and is now a Dame.
-------------------------------------------------------------------------------------------------------------------------
-Article #35
-Potato Chips and Corn Chips
+
+## 35 - Potato Chips and Corn Chips
+
 The story goes that the potato chip was invented in Saratoga Springs, N.Y. in 1853. Multi-
 millionaire Cornelius Vanderbilt complained to the chef that his fried potatoes were
 sliced too thickly. Chef George Crum responded by slicing the potatoes paper thin and
@@ -1204,8 +1155,6 @@ potato chips, followed by Doritos, Ruffles, Tostitos, Cheetos, and Fritos. Inter
 Frito-Lay has 28% of the market worldwide. That amounts to $5.9 billion annually.
 Why are potato chips and corn chips so popular? Well, they are versatile. You can eat
 them by themselves or with a sandwich for lunch. They can replace other forms of
-
-35 | P a g ewww. irlanguage .com
 potatoes and corn. They can also come in various flavours. For example, potato chip
 flavours include ketchup, salt and vinegar, barbeque, dill pickle and cheddar. Potato
 chips can be thick or thin, ridged or flat, spicy or bland. Chips can be made from many
@@ -1219,9 +1168,9 @@ instead of healthier foods.
 In Canada nearly $2 billion is spent on snack food every year and half of this is spent on
 chips. People are always looking for new flavours to try. Spicy chips are gaining in
 popularity. The snack chip industry just keeps on growing.
-------------------------------------------------------------------------------------------------------------------------
-Article #36
-The Stratford Festival
+
+## 36 - The Stratford Festival
+
 The Shakespearean festival in Stratford, Ontario, is one of the greatest theatrical festivals
 in the world. This is the story how this small town, which was far from any theatrical
 centers, became so important for drama. For most of its history, Stratford was the county
@@ -1253,8 +1202,6 @@ season, and with great success. In 1957, a permanent theatre was built.
 The Stratford season in 2001 runs for more than six months, from late April to early
 November. There are fourteen plays in production at three different theatres. Altogether
 there are 668 performances, with a total attendance of 580,000 people. About 40% of the
-
-36 | P a g ewww. irlanguage .com
 audience comes from the United States.
 Tom Patterson's plan to ease unemployment in Stratford has worked well. The festival
 has helped to create nearly 6,000 jobs and generate wages and salaries of $110 million
@@ -1263,9 +1210,9 @@ Of course, to the audiences who come back every year, the main attraction is see
 some of the best Shakespearean theatre in the world. The Stratford Festival Company is
 Canada's leading acting company, and many of its actors have become internationally
 known.
-------------------------------------------------------------------------------------------------------------------------
-Article #37
-The Two Cultures
+
+## 37 - The Two Cultures
+
 In 1956, English writer and scientist C.P.Snow wrote an essay on "The Two Cultures." By
 this, he meant that in the West there is a scientific culture and a literary culture.
 Scientists do not talk very much to literary men and vice versa. Neither group seems to
@@ -1302,13 +1249,11 @@ Snow's article was quite controversial. Not everyone agreed with him that scienc
 technology are being ignored by our educational system. But Snow certainly has a point
 when he says that scientific people and literary people view the world differently. These
 two different mindsets often lead to conflict in the workplace. Snow may be right that it is
-
-37 | P a g ewww. irlanguage .com
 too easy for literary-minded students to ignore science, and scientifically minded
 students to ignore literature.
-------------------------------------------------------------------------------------------------------------------------
-Article #38
-The War That Both Sides Won
+
+## 38 - The War That Both Sides Won
+
 Today, the 3000 mile boundary between Canada and the United States is known as "the
 longest undefended boundary in the world." But for three years in a row--1812, 1813 and
 1814--U.S. armies invaded Canada. When both sides failed to win a clear victory, and the
@@ -1351,257 +1296,7 @@ Both sides were tired of fighting by this time, and a peace treaty was signed on
 December 24, 1814. This agreement restored everything to the way it had been when the
 war began. Although this really meant that no one had won the war, both sides claimed
 victory. The Americans felt that they had gained full recognition of their independence.
-
-38 | P a g ewww. irlanguage .com
 Britain would no longer board their ships, or encourage the Indians to fight them.
 Canadians felt that they had shown Americans that they wanted to develop their own
 country in their own way, separate from the United States. But the biggest result of the
 war was the decision by both countries never to fight each other again.
-------------------------------------------------------------------------------------------------------------------------
-Article #39
-North American Death and Burial
-Most people in North American die either in hospital or at home. When someone dies,
-arrangements are made with a funeral home to get the body and prepare it for burial.
-Funeral homes are private businesses. They usually handle most or all aspects of a
-funeral, except for providing the burial plot. That usually has to be purchased separately.
-Funeral homes may operate in many kinds of buildings. Old roomy private homes and
-new modern one-level buildings are common types. When the funeral director receives
-the body, his staff embalms it so it will not decay quickly and will look lifelike at the
-funeral service. For one or two days before the burial, friends, relatives and
-acquaintances are invited to visit the funeral home and pay their respects to the dead
-person. The deceased person is usually dressed in their best clothes, and lying on their
-back in a coffin. A coffin is a large wooden or metal chest designed to hold the body.
-Members of the dead person's immediate family usually act as hosts for the funeral home
-visitation. They greet the mourners and talk to them about the deceased. Usually, there
-are happy photographs of the dead person near the coffin. Gifts of flowers also surround
-the coffin. Usually the mourners are asked to sign a guest book.
-The funeral service may take place at a church, if the deceased person wanted that.
-Frequently, however, the service is held at a chapel at the funeral home. Attending a
-funeral is considered a sign of respect, and people will often travel a long distance to
-attend. Usually friends and relatives will take a day off work for the occasion. Notices are
-put in the newspaper for several days before, so that people will know when to come.
-A minister or priest usually conducts the funeral service. There will be hymns, prayers,
-and perhaps a sermon, like a regular church service. Sometimes, the minister will speak
-at length about the dead person. Sometimes, a member of the family does this.
-Opportunity is allowed for other people to talk about their memories of the dead person.
-At the end of the service, the coffin is wheeled out to a waiting car, called a hearse, which
-drives the dead person to the burial place. The mourners go to their cars and follow the
-hearse to the cemetery.
-At the cemetery, a hole has already been dug to receive the coffin. Usually there is a
-short ceremony at the grave. Sometimes, flowers are put on top of the coffin as it is
-lowered into the grave. A handful of soil is tossed on the coffin, indicating burial. Usually
-the mourners leave before the cemetery workers cover the coffin with earth. Then the
-mourners may all go back to a church hall or restaurant for a meal.
-A funeral can be quite costly. Even an inexpensive coffin can be several thousand dollars.
-Sometimes, the deceased will be placed in an expensive rental coffin for the visitation
-and funeral, but buried in a less expensive coffin. Even so, a full funeral rarely costs less
-than $5,000, and usually quite a lot more. And this does not include the price of the burial
-plot or the stone grave marker. Sometimes poor people are buried at government
-expense.
-It is traditional in North American to bury the whole body in the ground. However,
-cremation is becoming more popular. The advantage of cremation is that it is less
-
-39 | P a g ewww. irlanguage .com
-expensive, uses less land, and it appeals to people who don't want an elaborate funeral.
-Some people may wonder why so much attention is paid to a dead person. But funerals
-are really for the living. They are a way of saying goodbye to the dead person and
-receiving mutual support and encouragement from friends and family. Some funeral
-homes help to organize grief counselling or support groups to grieving family members.
-Usually the funeral service is performed in the Christian tradition and refers to the hope
-of resurrection or rebirth from the dead that Christians believe in. It is now becoming
-common for people to plan their own funeral service before they die. And usually
-attempts are made to make the service appropriate to the person who died. This makes it
-more satisfying and memorable for the family and friends.
-------------------------------------------------------------------------------------------------------------------------
-Article #40
-Anastasia and the Russian Revoluion
-The twentieth century brought many changes to traditional cultures around the world.
-Some of the most radical changes occurred in the Russian Empire, which had one of the
-oldest monarchies in Europe. In 1917-18 the rule of the Tsars was replaced by the world's
-first communist government led by Vladimir Ilyich Lenin. No one was more affected by
-these changes than Anastasia, the Tsar's youngest daughter.
-Between 1895 and 1901, Tsar Nicholas II and his wife Alexandra, became the parents of
-four beautiful and healthy daughters - Olga, Tatiana, Marie and Anastasia. However, since
-a girl could not inherit the throne of Russia, it was important for Alexandra to give birth
-to a son. Finally, in 1904, the Tsar and Tsarina had a son, Aleksei.
-This event, which should have made the whole family very happy, proved to be a source
-of great sorrow. Aleksei was soon found to have an incurable disease. This disease,
-hemophilia, meant that Aleksei regularly suffered from uncontrollable internal and
-external bleeding which left him very weak. This caused anxiety for all the family,
-especially his mother and father.
-The Tsar and Tsarina loved their children. The girls, who didn't have to worry about
-becoming rulers, led a fairly carefree existence. Anastasia and her sisters lived in a
-palace with hundreds of servants. They attended many society parties with their parents.
-The most elaborate parties were the grand balls, where everyone dressed in their finest
-clothes and danced all through the night.
-The absolute rule of the Tsar was not popular with everybody. The majority of the
-population was poor peasant farmers who could barely keep themselves and their
-families alive. If they moved into the city to get jobs in the factories, they had to work
-long hours for very low wages, and live in slum conditions. Popular opposition forced
-the Tsar in 1905 to give up some of his power to an elected parliament.
-None of the girls married. They all lived a happy life together. They moved from palace to
-palace, attended by their private tutors, visiting the beach, and sailing on the royal yacht.
-Anastasia was the clown of the family. She didn't like schoolwork, but she enjoyed
-painting and photography. Many of her photos of the royal family in happy times survive.
-Soon the Tsar's problems worsened. The Empress Alexandra worried about her son and
-became ill. War with Germany broke out in 1914, and the Russians suffered many defeats
-and losses. In March 1917, there was popular revolution, and the Tsar was deposed.
-From that time on, the royal family was prisoners. At first, they were treated kindly, but in
-November, the Bolsheviks or communists gained control of the revolution. Lenin and his
-
-40 | P a g ewww. irlanguage .com
-followers hated the Tsar.
-The royal family had been living in Tobolsk in Siberia. Because of fears that they might
-escape, they were brought back to Ekaterinburg in the Ural region. Here, after midnight
-on June 19, 1918, the entire royal family was shot by the Bolsheviks.
-To some, this news was too dreadful to be believed. The thought that the Tsar's lively and
-beautiful daughters had been killed was too hard to bear. Within a couple of years, a
-woman who went by the name of Anna Anderson appeared in western Europe. She
-claimed to be Anastasia. Some believed her story and some did not.
-With the fall of the Soviet Union, it was possible to investigate the murder of the royal
-family. It was also possible to prove that Anna Anderson was not the real Anastasia. After
-a long search, the bodies of Anastasia and Aleksei were found. They had died with the
-rest of the family. A great mystery was finally solved.
-------------------------------------------------------------------------------------------------------------------------
-Article #41
-Australian Origins
-In many countries, leading families proudly trace their ancestors back to some
-significant group of people. In the U..S.A., prominent individuals may boast that their
-family came over on the Mayflower in 1620.
-In England, ladies and gentlemen are happy to announce that their ancestors came to
-Britain with William the Conqueror in 1066. In Australia, however, many leading families
-are reluctant to talk about their origins. In fact, many years ago, one Australian city
-burned its early records, so that no one would know who their ancestors were. The
-reason for this is that Australia began its history as a British penal colony.
-In eighteenth century England, there was a large gap between the rich and the poor. To
-make matters worse, many farmers had been forced off their land by powerful
-landowners. These homeless people wandered to the cities, where employment was
-often hard to find. Frequent wars gave temporary employment to young men as soldiers
-and sailors, but when the war was over, they were no better off than before.
-As a result, theft was extremely common. To protect themselves, the upper classes made
-theft punishable by hanging. The problem with this was that juries were often reluctant to
-hang someone for stealing something small, and might declare the person "not guilty."
-For example, if a man or woman stole a loaf of bread to feed their children, the jury might
-just let them go. To prevent this, the courts came up with a new category of punishment--
-exile or "transportation." If the judge or jury was reluctant to sentence the accused to
-death, they would ship them far away from England across the seas. However, if the
-person was found back in England again, he or she would be hanged.
-At first, England sent its convicts to America's Thirteen Colonies. However, when the
-United States declared its independence in 1776, this was no longer possible. England
-considered sending criminals to West Africa, but the land and climate were considered
-unsuitable. So finally Great Britain decided to use the huge, almost uninhabited, country
-of Australia. At this time, not a single European was living anywhere on the continent.
-In the fall of 1786, a fleet of English ships began to take convicts on board. This process
-continued till the sailing date of May 13, 1787. Many British jails had been cleared of both
-male and female prisoners.
-Since the convicts were technically under a sentence of death, there was little concern
-for making them comfortable. At first, the convicts were chained below decks, but later
-some were released when well out to sea. One man had been sentenced for the theft of a
-
-41 | P a g ewww. irlanguage .com
-winter coat; another for stealing cucumbers from a garden; a third for carrying off a
-sheep. Among the women, one was guilty of stealing a large cheese; another of taking
-several yards of cloth.
-These ships known as "The First Fleet" carried 1,442 convicts, sailors, marines and
-officers. The fleet finally arrived at Botany Bay on January 10, 1788. Later that month,
-they moved down to Sydney Harbour. No preparations whatsoever had been made. The
-forests came right up to the shore. Soon, the fleet members were cutting down trees and
-trying to put up tents. It was June 1790 before further supplies arrived from England.
-Meanwhile, many convicts suffered from sickness, aggravated by lack of good food.
-In conclusion, Australians need not be ashamed of their origins. In time, great things
-were achieved, in spite of the almost complete lack of help from the English government.
-Many ex- convicts became respectable settlers who began prosperous farms and
-businesses. The members of the First Fleet, whether convicts or not, deserve to be
-honoured as the founders of Australia.
-------------------------------------------------------------------------------------------------------------------------
-Article #42
-Casa Loma
-Many people visit Europe and see the old castles left from the days of knighthood. Very
-few return home with plans to build their own castle. Toronto businessman Henry Pellatt
-actually built such a castle - Casa Loma.
-Pellatt was born in Kingston, Ontario in 1859, but the family soon moved to Toronto. His
-father opened Toronto's first stock broking firm in 1866. Pellatt Sr. became part of
-Toronto's financial elite. And Henry Pellatt eventually joined his father in business.
-The young Pellatt was especially attracted by the military and the British armed forces.
-When Henry was 18, he joined the Queen's Own Rifles, a militia unit. He was soon one of
-the soldiers sent to suppress a railway strike. At 21, he was made an officer, and
-gradually moved up through the ranks, eventually becoming brigadier general.
-Meanwhile, Henry was learning the stock broking business. He soon showed
-considerable ability at forming new companies. Electricity was a recent invention, and
-Pellatt hoped to be among the foremost developers. In 1883, he founded the Toronto
-Electric Light Company, and later was an owner of the Toronto Electric Railway. He also
-made money as a land speculator in the Canadian West. Unlike many businessmen of the
-time, however, Pellatt believed in community service. He sponsored many charitable
-organizations and supported various good causes.
-In spite of his business dealings, Pellatt found time to tour England and Europe regularly.
-He brought back ideas for a "castle on the hill." Pellatt's castle, however, would not be a
-damp, drafty castle of the Middle Ages. It would have all the latest technology.
-Construction of "Casa Loma" began in 1910 and was completed in 1914. Outwardly, it
-looked like a mediaeval castle, but inside it was comfortable and luxurious. There were
-98 rooms, three bowling alleys, 30 bathrooms, 25 fireplaces and 5,000 electric lights. It
-had an electric elevator and an indoor swimming pool. There was a library of 100,000
-books, a temperature-controlled wine cellar, a shooting gallery, and a large art collection.
-Pellatt ordered only the most expensive materials and employed the best craftsmen. The
-cost of all this was $3.5 million, a huge sum in those days.
-Pellatt and his wife liked to entertain. They often opened up Casa Loma for special events.
-Sometimes, he would invite all 1,000 men from the Queen's Own Rifles over for the
-weekend. The Pellatts also held parties for the staff.
-
-42 | P a g ewww. irlanguage .com
-Pellatt had hoped that Casa Loma would be the center of an extensive subdivision. He
-hoped that wealthy people would build grand homes nearby, and so he had bought up
-land near his castle. Unfortunately for Pellatt, most of the people coming to Toronto were
-poor immigrants who couldn't afford large houses. Pellatt was unable to sell his land
-holdings, and his income declined. In 1924, Pellatt turned Casa Loma over to the City of
-Toronto because he could not pay his property tax.
-All the contents of Casa Loma went on auction soon after. His $1.5 million collection of
-art and artifacts sold for only $250,000. Now Casa Loma is a leading Toronto tourist
-attraction. "The castle in the middle of the city" has 400,000 visitors each year. It is the
-closest thing in North America to a real European castle.
-------------------------------------------------------------------------------------------------------------------------
-Article #43
-Charlie Brown
-On October 2, 1950, a new comic strip appeared in American newspapers. The "hero" of
-the strip was a round-headed kid named Charlie Brown. In the very first cartoon, two
-young schoolmates watch Charlie Brown walking by, and one comments, "Well! Here
-comes ol' Charlie Brown.Yes, Sir! Good ol' Charlie Brown. How I hate him!"
-This comic strip was to become one of the most popular in history. Its creator, Charles M.
-Schultz, drew the strip for 50 years until his death. But reruns of "Peanuts" still appear
-regularly in the newspaper. What are some of the characteristics of Charlie Brown and
-his friends that have made the cartoon popular?
-Charlie Brown is an unlikely hero. Other kids don't like being around him because the
-things he does never seem to work out properly. Kids want to be with someone who is
-good-looking, popular and successful, so that they can feel a part of his success. Charlie
-Brown is always worrying, hardly ever up-beat, afraid of failure, and always making
-mistakes. His kite gets snagged in a tree, he needs counseling from Lucy, his dog
-Snoopy is more popular than he is, and the little red-haired girl never notices him. In
-short, Charlie Brown is a "loser."
-Charlie Brown illustrates all the insecurities that kids have. Many of these anxieties carry
-over into adult life. Sometimes, they reflect problems in the life of the comic strip's
-creator, Charles M. Schulz. Schulz suffered from depression much of his life and had a
-difficult time in school. He was not very popular with his classmates. Humour and
-laughter are often a way of dealing with problems. And in the "Peanuts" strip, the world
-can laugh at all the silly little things that people do.
-Because of its honest way of dealing with problems, Charlie Brown and his friends are
-more interesting than the average comic strip characters. The characters represent adult
-personality types. Charlie Brown is "wishy-washy," and is afraid to do things for fear of
-failure. Lucy is a pushy overbearing female, who thinks she knows it all. Linus, her
-younger brother, is intellectual but insecure. He still clings to his baby blanket for
-security. Schroeder is preoccupied with Beethoven's music to the exclusion of
-everything else.
-Sally, Charlie Brown's younger sister, combines both a romantic attachment to Linus and
-a desire for material things. Peppermint Patty is a tomboy who loves baseball, but
-nonetheless has a romantic crush on Charlie Brown. Snoopy, the dog, represents a cool
-detached inventive individual who also relies on basic creature comforts.
-These characters add up to a "human comedy." In the comic strip, we can see ourselves
-and the people around us: making mistakes, getting second chances, but tending to do
-
-43 | P a g ewww. irlanguage .com
-the same things over again.
-Behind the humour of "Peanuts" there is a serious message. Words can hurt.
-Relationships are important. Truth is difficult to find. Criticism is too common. Greed can
-easily overpower us. These messages are both timeless and timely.
-"Peanuts" has also been turned into television specials and several movies. Snoopy
-stuffed toys are popular all over the world. A huge industry has grown from a simple
-comic strip. Perhaps this means that, while we all secretly want to be "winners," we
-really identify more closely with the Charlie Browns of this world!

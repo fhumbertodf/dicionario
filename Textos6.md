@@ -63,7 +63,7 @@ Sometimes I do feel a little flutter of nervousness, but I just ignore it and do
 Giving a speech is not as scary as it appears to be.   
 Anyone can do it with a little practice.*
 
-## 238 - Moving to Another Country.
+## 153 - Moving to Another Country.
 
 >*My friend Steve moved to another country.   
 He had lived in Canada all his life, and he moved to Japan.    
@@ -94,7 +94,7 @@ He thinks that he might like to try and live in Italy.
 I'm sure that he would get over his culture shock very fast if he moved there.   
 Moving to a new country can be difficult, but if you are willing to learn, it can be a very rewarding experience.*
 
-## 239 - Look for the Beauty.
+## 154 - Look for the Beauty.
 
 >*I have learned that things don't always go the way that they were planned.   
 If something doesn't happen the way that I want it to, I try to make the best of the situation.   
@@ -129,7 +129,7 @@ You'll find something good about almost everyone that you meet if you look hard 
 If something doesn't work out the way you planned it, just make the best of the situation.   
 Look for the beauty in everything.*
 
-## 240 - My Doll.
+## 155 - My Doll.
 
 >*When I was an infant, I got a rag doll.   
 It was a very plain, little doll, and it wore a clown outfit and a clown's hat.   
@@ -160,7 +160,7 @@ She sits in a special chair in the corner.
 I'll always have that doll.   
 No matter how worn out she is, I'll always keep her and cherish her as a part of my early childhood.*
 
-## 241 - I am Curious.
+## 156 - I am Curious.
 
 >*I am curious about many things.   
 I would like to find the answers to a lot of questions that I have.   
@@ -191,7 +191,7 @@ Some questions never get answered.
 It is good to be curious.   
 People who are curious about things are the ones who learn a lot, and some curious people go on to invent things and make important discoveries.*
 
-## 242 - Creative People.
+## 157 - Creative People.
 
 >*Some people are just born to create.   
 That's what I think.   
@@ -221,7 +221,7 @@ Some of his books have even been made into movies.
 We are lucky to have creative people who share their gifts with us.   
 If you are lucky enough to be creative, you should use your talents to create works of art that we all can share.*
 
-## 243 - Career Choices.
+## 158 - Career Choices.
 
 >*What do you want to be when you grow up?   
 There are so many things that you can be.   
@@ -268,7 +268,7 @@ You could make clothes or build bridges.
 You could wash windows or be a bricklayer.   
 The possibilities are endless.*
 
-## 244 - I Need Glasses.
+## 159 - I Need Glasses.
 
 >*I have been having trouble seeing the blackboard.  
 Everything is blurry.   
@@ -301,7 +301,7 @@ Now I don't get headaches anymore.
 I'm glad that I have my glasses.   
 Everything is a lot clearer now.*
 
-## 245 - I am Clumsy.
+## 160 - I am Clumsy.
 
 >*My mother says that I am clumsy.   
 My father says that I am clumsy.   
@@ -331,7 +331,7 @@ Maybe it's just a stage that I am going through.
 If it is, I hope it is over soon.   
 Being clumsy is no fun at all.*
 
-## 246 - Home Alone.
+## 161 - Home Alone.
 
 >*I remember the first time that my parents left me home alone.   
 I was very grown up, and I thought that I would be just fine.   
@@ -368,7 +368,7 @@ I just ignore all the little creaks and noises that I hear.
 I am still alert and listen for anything suspicious, but I know that there are lots of noises that are harmless.   
 That tree that taps on my window still frightens me sometimes, but I'm a lot braver now than I was the first time that I stayed home alone.*
 
-## 247 - Family.
+## 162 - Family.
 
 >*What does the word "family" mean to you?   
 The easiest way to define family is to talk about who you are related to.   
@@ -391,7 +391,7 @@ Above all, we love one another!
 Family is a wonderful thing!   
 I am so lucky!*
 
-## 248 - My First Job.
+## 163 - My First Job.
 
 >*My first "real" job was during my last year of high school.   
 I had taken classes in various business subjects.   
@@ -421,7 +421,7 @@ I worked at the tailor shop for almost a year.
 It was a good experience and helped me get my next job with the United States Navy.   
 That was fun, too!*
 
-## 249 - First Trip Away From Home.
+## 164 - First Trip Away From Home.
 
 >*Today I am going to my friend's house.   
 Her name is Valerie.   
@@ -447,7 +447,7 @@ I hope we do go shopping because I want to buy lots of candy.
 I hear Dad yelling, "Let's go!" I haven't even finished packing my things yet.   
 I guess I better stop writing this now and get busy fast! Bye!*
 
-## 250 - My Job.
+## 165 - My Job.
 
 >*I work at a conservation park called Ball's Falls.   
 I've only worked there for three weeks now.   
@@ -471,7 +471,7 @@ I also like the people I work with.
 They are very nice.   
 Come to Ball's Falls, and I'll give you a tour!*
 
-## 251 - My Hobby.
+## 166 - My Hobby.
 
 >*Let's see.   
 Today I might go fly a kite, or maybe go for a swim.   
@@ -498,7 +498,7 @@ I like my hobby.
 I can draw whatever I want on the bookmarks.   
 Maybe sometime in the future I will be a famous bookmark maker and even have my own store!*
 
-## 252 - If I Had a Million Dollars.
+## 167 - If I Had a Million Dollars.
 
 >*If I had a million dollars, I'd travel the world.   
 I would go to the highest mountain.   
@@ -519,7 +519,7 @@ If I had to pick between a million dollars and my family, I would pick my family
 The million dollars is a nice dream.   
 If that dream ever comes true and I do get a lot of money, I hope I would use it wisely.*
 
-## 253 - A Picnic.
+## 168 - A Picnic.
 
 >*What a great day for a picnic!   
 We're not only having a picnic; we're having a big bike ride, too.   
@@ -547,7 +547,7 @@ We usually end the day with a fun game of baseball or soccer.
 Finally, we pack up our stuff.   
 Tired and dirty, we head for home with good memories swimming in our heads.*
 
-## 254 - Working in my Yard.
+## 169 - Working in my Yard.
 
 >*I live in a house that has a small yard around it.   
 In my yard there is a lawn and a garden.   
@@ -576,7 +576,7 @@ When spring comes, the grass grows very quickly, so I need to cut the grass quit
 Working in the yard can be very satisfying work.   
 It's so nice when the lawn and garden are looking green and healthy.*
 
-## 255 - Early Morning.
+## 170 - Early Morning.
 
 >*"Yawn!"   
 I am so tired.   
@@ -614,7 +614,7 @@ It is so clean and cold.
 Well, I know that I have a big trip ahead of me, so I need to get going!   
 Bye-bye!*
 
-## 256 - The Wedding.
+## 171 - The Wedding.
 
 >*We went into the church and sat down.   
 There were pretty flowers at the front.   
@@ -644,7 +644,7 @@ They kissed.
 We all stood, and they walked down the aisle to live the rest of their lives together as Mr. And Mrs.!   
 We cried.*
 
-## 257 - The Perfect Place.
+## 172 - The Perfect Place.
 
 >*There is a place in my mind that is pure.   
 Everything there is beautiful.   
@@ -677,7 +677,7 @@ I don't have to worry about pollution or destruction.
 My perfect world exists only in my head.   
 Maybe if we all work hard, my fantasy can become real!*
 
-## 258 - Visiting the Zoo.
+## 173 - Visiting the Zoo.
 
 >*When I was a kid, I always enjoyed visiting the zoo.   
 My family lived far away from the zoo, so we didn't go there very often.   
@@ -706,7 +706,7 @@ To see all the animals at the zoo took almost a whole day.
 By the end of the day, I was very tired from walking around.   
 But I was also very happy to see all the amazing animals from places around the world.*
 
-## 259 - The Dentist Appointment.
+## 174 - The Dentist Appointment.
 
 >*My dentist called my house the other day.   
 He told me I needed my teeth cleaned.   
@@ -740,7 +740,7 @@ I didn't have any problems.
 I could go home.   
 "See you next year," he said.*
 
-## 260 - Day Dream.
+## 175 - Day Dream.
 
 >*Little Annie was very bored one lazy afternoon.   
 She had nothing to do!   
@@ -767,7 +767,7 @@ She blinked; once, twice, and finally everything came into focus.
 Her brother was tugging at her leg, wondering why she was staring into outer space with a big grin on her face!   
 "Oh," Little Annie said, not really knowing that she had been sitting there all along.*
 
-## 261 - My Friend in the Next Office
+## 176 - My Friend in the Next Office
 
 >*Sometimes she asks my advice now about her work or about a problem and I ask her
 advice. Sometimes she comes in to my office and says " I'm really angry, can I whine to
@@ -793,7 +793,7 @@ She is a good friend; she helps my students when I am not there; she wishes me g
 luck when I go to a lecture. I am very glad that she can be my friend in the office beside
 mine.*
 
-## 262 - The Musician
+## 177 - The Musician
 
 >*There once was a little girl named Rain Angel. She loved to sit at the piano and play. Rain
 Angel was a very gifted girl. She had a voice that gave people shivers, and she loved to
@@ -816,7 +816,7 @@ Rain Angel strove for a faraway place, and it became her reality. She always bel
 what she wanted to become was her choice. She believed that if you have the strength
 and determination you can make your dreams come true.*
 
-## 263 - The Circus
+## 178 - The Circus
 
 >*Wow! A big tent was in the middle of the town's parking lot! We were going to a three-ring
 circus. I couldn't wait for it to begin. Inside and outside of the tent, toys, balloons and
@@ -839,7 +839,7 @@ other. It's kind of scary to watch because I was afraid they might fall.
 I had a very good time at the circus. However, my tummy felt kind of sick from all the
 cotton candy and junk food I ate!*
 
-## 264 - Going to the Grocery Store
+## 179 - Going to the Grocery Store
 
 >*Each week I go to the grocery store to buy food for my family. I get a shopping cart from
 the front of the store, and I push the cart all around the store. The cart is large, but when I
@@ -862,7 +862,7 @@ I also pick up a few other things at the supermarket, such as soap, toothpaste, 
 cleaning supplies. But sometimes I forget to buy something that I had planned to get.
 Maybe I should make a list of the things I need to buy!*
 
-## 265 - A Day at the Beach
+## 180 - A Day at the Beach
 
 >*When the hot summer weather arrives, many people like to cool off by visiting the beach.
 Often, there is a cool breeze that comes off the water. And, of course, the water itself is

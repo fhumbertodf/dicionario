@@ -1,6 +1,5 @@
-------------------------------------------------------------------------------------------------------------------------
-Article #49
-Charles Dickens
+## 49 - Charles Dickens
+
 Charles Dickens is considered one of the greatest writers in the history of English
 literature. Dickens wrote his many novels during the nineteenth century, but those novels
 remain popular even today. Literary experts admire his genius at describing the lives and
@@ -28,8 +27,6 @@ Christmas, and refuses to donate money to help the poor. But, while sleeping, Sc
 visited by ghosts from his past, present and future. These ghosts show Scrooge how
 badly he has behaved. When Scrooge wakes up, he becomes a kind and generous man
 who fully appreciates the spirit of the Christmas holiday.
-
-44 | P a g ewww. irlanguage .com
 Another famous novel of Dickens is A Tale of Two Cities. This is a story of the violence
 and upheaval during the French Revolution. The story is famous for the heroic act of
 sacrifice that is made by one character for the benefit of the others.
@@ -40,9 +37,9 @@ century London, showing the poverty and injustice that were so common. The chara
 of these novels show the range of human behaviour, from cruelty and selfishness to
 kindness and love. It is no surprise that Dickens is viewed as one of the great figures of
 English literature.
-------------------------------------------------------------------------------------------------------------------------
-Article #50
-Samuel Clemens, or Mark Twain
+
+## 50 - Samuel Clemens, or Mark Twain
+
 Mark Twain was the author of some of the greatest works of American English literature,
 such as Tom Sawyer, Life on the Mississippi, and The Adventures of Huckleberry Finn.
 Mark Twain's real name was Samuel Langhorne Clemens. He used Mark Twain as his
@@ -77,13 +74,11 @@ decisions during the escape.
 Mark Twain died in 1910, after writing many more novels and many stories of his travels
 around the world. Twain's works are still widely read today. His books are appreciated for
 their humor, for their interesting descriptions of life in nineteenth century America, and
-
-45 | P a g ewww. irlanguage .com
 for showing both the good and evil that people can do. Many critics consider Twain to
 have been the greatest American writer.
-------------------------------------------------------------------------------------------------------------------------
-Article #51
-The Islands of the Caribbean
+
+## 51 - The Islands of the Caribbean
+
 The Caribbean Sea is the large body of water that lies north of the northern tip of South
 America. Within the Caribbean sea are many islands that have played an important role
 in the history and culture of the Western hemisphere.
@@ -114,9 +109,8 @@ There are also many other, smaller islands in the Caribbean, each with its own u
 features. Many of these islands possess fine beaches, and are popular tourist
 destinations. The warm weather of the Caribbean makes it a popular place for North
 Americans who must live through cold winters!
-------------------------------------------------------------------------------------------------------------------------
-Article #52
-North American Indians
+
+## 52 - North American Indians
 The first people who lived in North America were the Indians. The name "Indians" is
 actually not very accurate, because the people are not from India. But when the first
 Europeans came to North America, they mistakenly believed that they had reached India,
@@ -125,8 +119,6 @@ had very different cultures and very different ways of making a living.
 On the west coast of North America, many large rivers flow into the Pacific Ocean. In
 these rivers is an abundance of fish, such as salmon. The Indians in these areas
 obtained much of their food by fishing. They lived in settled villages, and became experts
-
-46 | P a g ewww. irlanguage .com
 in carving wood from the tall trees of the area. They carved large canoes for traveling on
 the rivers and oceans, and they also carved tall "totem poles." Totem poles were
 carvings of various animal or human figures, and often the poles had a mythical or
@@ -157,8 +149,8 @@ several Indian languages are still spoken by many thousands of people. Also, man
 Indians in the United States and Canada are very interested in maintaining the cultural
 traditions of their ancestors.
 
-Article #53
-How the First World War Started
+## 53 - How the First World War Started
+
 During the summer of 1914, many people in Europe felt very optimistic about the future.
 Modern technology was improving people's lives. Political freedom was gradually
 increasing in many countries. New artistic styles and scientific discoveries were being
@@ -174,8 +166,6 @@ other side were Russia, France, and Britain.
 The people in these countries at first welcomed the news of a war. Many people were
 intensely patriotic, and supported the war effort without thinking carefully about the
 reasons for the war. Some people thought that war would bring adventure and glory to
-
-47 | P a g ewww. irlanguage .com
 their lives, and they cheered enthusiastically in the streets.
 After the war started, it soon became clear that it was a terrible disaster. In the western
 part of Europe, the opposing sides fought many bloody battles. Soldiers on both sides
@@ -192,9 +182,9 @@ They have no interest in fighting wars with their neighbours. Instead, they are 
 in trading with the other countries, and in visiting those countries as tourists. The
 lessons of the twentieth century have reminded people that wars can have terrible
 consequences.
-------------------------------------------------------------------------------------------------------------------------
-Article #54
-Abraham Lincoln
+
+## 54 - Abraham Lincoln
+
 When historians are asked to choose the greatest Presidents in the history of the United
 States, one of the names most frequently mentioned is Abraham Lincoln. Lincoln was
 President during the greatest ordeal that ever faced the United States-the Civil War.
@@ -223,8 +213,6 @@ Lincoln managed the Civil War with skill and determination. Gradually the North 
 win the war. In 1863, Lincoln made the "Emancipation Proclamation," which freed the
 slaves. Later that year, Lincoln gave his most famous speech, the Gettysburg Address.
 The Civil War had brought terrible suffering to many Americans, and people were very
-
-48 | P a g ewww. irlanguage .com
 bitter after the war. But Lincoln wanted the country to become united again, and he urged
 people to forgive. However, in April of 1865, only months after the war ended, Lincoln
 was shot and killed by an assassin. Many people, even Lincoln's critics, mourned his
@@ -234,9 +222,9 @@ as a great President. Some historians have criticized Lincoln for not being more
 opposed to slavery, but others have defended him, saying that Lincoln's approach to the
 issue was realistic and humane. But nearly all historians agree that Lincoln was an
 honest and brave leader during the most difficult period in American history.
-------------------------------------------------------------------------------------------------------------------------
-Article #55
-Two Great Musicians : Mozart and Beethoven
+
+## 55 - Two Great Musicians : Mozart and Beethoven
+
 Much of the music of eighteenth and nineteenth century Europe is still enjoyed by many
 people. Two of the greatest musicians of that time were born only thirty-four years apart,
 and actually knew each other for a short time. These great musicians were Mozart and
@@ -272,13 +260,11 @@ nineteenth century. Beethoven died in 1827, but his music remains famous for its
 and originality. His greatest symphonies, such as the Fifth Symphony, are among the
 world's best-known works of music.
 Today, the works of Mozart and Beethoven are still popular among those who appreciate
-
-49 | P a g ewww. irlanguage .com
 great music. Music fans can look back with wonder at the musical creativity that
 flourished in Vienna more than two centuries ago.
-------------------------------------------------------------------------------------------------------------------------
-Article #56
-Amelia Earhart
+
+## 56 - Amelia Earhart
+
 Amelia Earhart was one of the most famous airplane pilots of all time. She is famous for
 the impressive travels that she made in her airplane, for the mystery surrounding her
 death, and for showing that women could perform great feats of aviation.
@@ -316,12 +302,10 @@ Amelia Earhart's death was a great tragedy, but she had lived an exciting life t
 of achievements. She had helped to show that very long flights could be made, and that
 women could perform feats of flying that were equal to those of men. Even today, many
 people are inspired by the courage and endurance of Amelia Earhart.
-------------------------------------------------------------------------------------------------------------------------
-Article #57
-Life in Academia
-A person like me, who teaches and conducts research at an academic institution, is
 
-50 | P a g ewww. irlanguage .com
+## 57 - Life in Academia
+
+A person like me, who teaches and conducts research at an academic institution, is
 called "academic." The academic institution may be a form of a university, a college or
 another post-secondary institution. I have been working in universities for almost eleven
 years. While enjoying my life in academia, we "academics" also have a lot of stress and
@@ -344,9 +328,9 @@ Even with a high degree of the aforementioned pressures, I love my job as a teac
 scholar, and citizen. There is a high level of freedom and flexibility. Academia is a place
 to meet new people, to create new ideas, and for everyone in that community to learn. It
 is a place where both teaching and learning always take place.
-------------------------------------------------------------------------------------------------------------------------
-Article #58
-Education Systems in Canada
+
+## 58 - Education Systems in Canada
+
 In Canada each province is responsible for its own education systems. In general, there
 are three levels of education systems in Canada: (i) Kindergarten to Grade 8; (ii) Grade 9
 to Grade 12; and (iii) Post-Secondary education. Kindergarten may further be divided into
@@ -368,8 +352,6 @@ There are about 50 universities throughout the country, most of which are public
 funded institutions. Some of the most recognized universities include the University of
 Toronto, McGill University, the University of British Columbia, and Queen's University.
 A community college offers a variety of programs for students who want to learn
-
-51 | P a g ewww. irlanguage .com
 technical skills, skills that they can apply to the real world quickly. These programs are
 usually one or two years in length emphasizing hand-on experience in classroom setting.
 It grants certificates and diplomas and offers a variety of training courses for people who
@@ -381,9 +363,9 @@ not able to grant university degrees alone, although it often offers all the cou
 required for a university degree. The curriculum for a degree program is usually
 designed in conjunction with a university, which actually grants degrees to the university
 college students.
-------------------------------------------------------------------------------------------------------------------------
-Article #59
-Business Education
+
+## 59 - Business Education
+
 What is business? A business includes all the activities involved to create and sell a
 product or service. The most important functional areas of business include: accounting,
 finance, marketing, production/operations, and human resources management.
@@ -417,15 +399,13 @@ the effective and efficient use of a firm's human capital, the human resources
 management function supports planning to meet the personnel needs of the business,
 development of employees to their full potential, and control of all personnel policies and
 programs.
-
-52 | P a g ewww. irlanguage .com
 While each of the aforementioned functional areas within a firm used to operate
 somewhat independently with its own objectives and resources, information and other
 computer technologies have integrated all business functions within the firm and created
 something called "an Internet worked e-business enterprise."
-------------------------------------------------------------------------------------------------------------------------
-Article #60
-Strategic Uses of Information Technology
+
+## 60 - Strategic Uses of Information Technology
+
 What is information technology? How can information technology be used in an
 organization to improve its efficiency? How much investment should an organization
 make in information technology? What are the business benefits and opportunities an
@@ -460,13 +440,11 @@ than a few years. Whether the statement is true or not, most companies may not w
 wait too long before investing in information technology because it would be tough to
 catch up later once you get behind your competitors, especially when everyone is
 playing with newer, better technology.
-------------------------------------------------------------------------------------------------------------------------
-Article #61
-E-Commerce
+
+## 61 - E-Commerce
+
 Electronic commerce (or simply e-commerce) is more than just buying and selling
 products or services online. It encompasses the entire online process of developing,
-
-53 | P a g ewww. irlanguage .com
 marketing, selling, delivering, servicing, and paying for products and services. E-
 commerce systems rely on the resources of the Internet and other computer networks to
 support every step of the process. Through an e-commerce system, customers can order
@@ -498,9 +476,9 @@ C2C e-commerce models, consumers or businesses can participate in or sponsor
 consumer or business auctions. Other forms of consumer-to-consumer e-commerce
 include personal advertising of products or services by consumers at electronic
 newspaper sites, consumer e-commerce portals, or personal websites.
-------------------------------------------------------------------------------------------------------------------------
-Article #62
-The First Five Years of My Life in Canada
+
+## 62 - The First Five Years of My Life in Canada
+
 I left Korea 25 years ago for Toronto, Ontario, Canada. I was 17 years old at that time.
 Now everyone knows how old I am. As any immigrant who left his or her own country for
 a new place looking for a better life, I believe the first five years of my living in Canada
@@ -514,8 +492,6 @@ and conversations with neighbors.
 The most frustrating moment was my inability to explain to other people when I was
 accused of something I did not do. Knowing that I was not able to defend myself properly
 due to lack of conversation skills, a few people often took advantage of me for their own
-
-54 | P a g ewww. irlanguage .com
 benefits.
 However, throughout the years I met a lot of good people who gave me strength and
 encouragement. Among those people in my heart I still remember Mrs. Overholts. Mrs.
@@ -537,9 +513,9 @@ The first five years of my life in Canada surely was one of the most difficult t
 life. I believe, however, that it was also an important time period in my life for me to
 become a more mature and independent human being. I thank all of those who played a
 role in some way to help me out during the transition period of my life.
-------------------------------------------------------------------------------------------------------------------------
-Article #63
-Great Lakes
+
+## 63 - Great Lakes
+
 The Great Lakes are a group of five large freshwater lakes in North America that are
 interconnected by natural and artificial channels. They are (from east to west): Lake
 Ontario, Lake Erie, Lake Huron, Lake Michigan, and Lake Superior. Most of them, except
@@ -563,16 +539,14 @@ Lake Erie by the Detroit River. At its northeast end, Lake Erie empties into the
 River, which drops 99 metres as it flows north to Lake Ontario, which is the smallest of
 the Great Lakes at 19,010 sq km. Lake Ontario is linked with the Atlantic Ocean via the St.
 Lawrence River.
-
-55 | P a g ewww. irlanguage .com
 The Great Lakes, interconnected by rivers, straits, and canals, are a natural resource of
 tremendous significance in North America; they serve as the focus of the industrial
 heartland of the continent and together form one of the world's busiest shipping arteries.
 The lakes also form an important recreational resource with about 17,000 km of shoreline,
 rich sport fisheries, and numerous beaches and marinas.
-------------------------------------------------------------------------------------------------------------------------
-Article #64
-Canadian Rocky Mountains
+
+## 64 - Canadian Rocky Mountains
+
 Some of the best-known mountain scenery on Earth is concentrated in a set of seven
 parks in the Canadian Rocky Mountains. There are four national parks in the Canadian
 Rockies - Banff, Jasper, Yoho and Kootenay, and three British Columbia provincial parks
@@ -603,16 +577,14 @@ animals.
 These four Canadian National Parks account for 14,300 square miles. The four National
 Parks along with the three British Columbia provincial parks form the UNESCO Rocky
 Mountain Parks World Heritage Site-one of the largest protected areas in the world.
-------------------------------------------------------------------------------------------------------------------------
-Article #65
-For the Record
+
+## 65 - For the Record
+
 What is the world's tallest mountain and highest elevation? Of course, Mt. Everest, on the
 border of Nepal and Tibet, China, is the world's tallest mountain and highest elevation
 with a peak at 29,035 feet (or 8850 m). The National Geographic Society revised the
 height of Mt. Everest in 1999 from 29,028 feet (or 8848 m) due to new GPS calculations.
 What is the world's tallest mountain from base to peak? Mauna Kea in Hawaii is the one.
-
-56 | P a g ewww. irlanguage .com
 Its base is on the sea floor, and it rises 33,480 feet (or 10,314 meters) in total, reaching
 13,796 feet (or 4205 m) above sea level.
 In reference to its towering height of 20,320 feet above sea level, Mt. McKinley in Alaska
@@ -634,9 +606,9 @@ the western hemisphere with 282 feet (or 85 meters) below sea level. Death Valle
 National Park, established in 1933, has more than 3.3 million acres of spectacular desert
 scenery, interesting and rare desert wildlife, complex geology, undisturbed wilderness,
 and sites of historical and cultural interest.
-------------------------------------------------------------------------------------------------------------------------
-Article #66
-Canadian Universities
+
+## 66 - Canadian Universities
+
 There are about fifty standing-alone, 4-year degree-granting universities in Canada.
 Unlike the higher education system in the United States, most of the universities in
 Canada are publicly funded institutions although there are a few private institutions.
@@ -660,8 +632,6 @@ Nipissing University, and Lakehead University.
 The Province of Quebec has seven publicly funded universities with many of them
 having several branch campuses throughout the province. They are University of
 Montreal, University of Quebec, Laval University, Concordia University, McGill University,
-
-57 | P a g ewww. irlanguage .com
 University of Sherbrooke, and Bishop's University. While French is the official language
 of instruction at most of these institutions, English is the official one at both Concordia
 University and McGill University.
@@ -672,9 +642,9 @@ Saint Vincent University, Saint Mary's University, and Nova Scotia Agricultural 
 the Province of Nova Scotia; University of Prince Edward Island in the Province of Prince
 Edward Island; and University of Newfoundland in the Province of Newfoundland and
 Labrador.
-------------------------------------------------------------------------------------------------------------------------
-Article #67
-Banff National Park
+
+## 67 - Banff National Park
+
 Banff National Park is Canada's oldest and most famous national park. It was founded in
 1885 after the discovery of the Cave and Basin Hot Springs. From humble beginnings as
 a 26 square kilometre hot springs reserve, Banff National Park now consists of 6,641
@@ -704,13 +674,11 @@ In Banff National Park, driving through the Bow Valley Parkway, one of the world
 scenic highways, is a good opportunity to see animals, particularly deer, bears and
 moose. Banff National Park is part of the UNESCO Rocky Mountain Parks World Heritage
 Site.
-------------------------------------------------------------------------------------------------------------------------
-Article #68
-Sport Canada
-Sport Canada is the name of Canada's federal government program to help support
 
-58 | P a g ewww. irlanguage .com
-athletes. The purpose of Sport Canada is to develop and encourage sport, health, and
+## 68 - Sport Canada
+
+Sport Canada is the name of Canada's federal government program to help support athletes. 
+The purpose of Sport Canada is to develop and encourage sport, health, and
 exercise programs for all Canadians. However, Sport Canada's main emphasis is on
 high-performance athletes training for major international athletic competitions, such as
 the Olympic Games.
@@ -743,9 +711,9 @@ level. As a result, the amount paid to athletes is likely to rise in the future.
 As long as it effectively manages problems such as funding, Sport Canada will continue
 to provide the Canadian public with international-caliber athletes who compete with the
 very best in the world.
-------------------------------------------------------------------------------------------------------------------------
-Article #69
-The National Hockey League
+
+## 69 - The National Hockey League
+
 The National Hockey League (or NHL) is the largest and most successful North American
 professional hockey league. The NHL provides Canadians and Americans with the
 highest caliber and most entertaining hockey on the continent.
@@ -757,8 +725,6 @@ meant that players, coaches, and owners of teams were not allowed to make money 
 playing the game of hockey.
 It took several decades for the NHL to become the most dominant league. In the early
 days, a few professional or commercial leagues competed with the NHL for the public's
-
-59 | P a g ewww. irlanguage .com
 entertainment dollar. Leagues competed vigorously for the best players in order to be
 successful and attract spectators and fans. While this was beneficial to players because
 they could command higher salaries, it was bad for business because owners' expenses
@@ -785,9 +751,9 @@ With NHL owners and players cooperating, the NHL continues to be the most succes
 and entertaining hockey league in North America. Teams across Canada and the United
 States compete for the prized Stanley Cup, the most sought-after trophy in North
 American hockey.
-------------------------------------------------------------------------------------------------------------------------
-Article #70
-Drug Use in Sport
+
+## 70 - Drug Use in Sport
+
 Athletes using drugs to enhance performance has become one of the greatest problems
 facing elite international sport. Major sports organizations, such as the International
 Olympic Committee, are putting a lot of time, effort, and money into the detection of
@@ -806,8 +772,6 @@ result, the International Olympic Committee started testing for steroids during 
 Olympic Games in Montreal, Canada.
 Probably the most famous case of an athlete using drugs was Canadian sprinter Ben
 Johnson. After winning the 100-metre sprint in the 1988 Summer Olympic Games in
-
-60 | P a g ewww. irlanguage .com
 Seoul, South Korea, Johnson's drug test was found to be positive. Johnson took a
 synthetic steroid to build muscle mass and enhance power. Eventually, Johnson was
 stripped of his gold medal.
@@ -823,9 +787,9 @@ In January 2000, the International Olympic Committee created a new agency to det
 drug use: the World Anti-Doping Agency (WADA). WADA has provided increased
 resources for drug detection, especially in Olympic sports. Hopefully, WADA will be able
 to keep pace with the current moral crisis in sport.
-------------------------------------------------------------------------------------------------------------------------
-Article #71
-Participation
+
+## 71 - Participation
+
 "ParticipAction" was the name of the Canadian government program designed to
 encourage Canadians to get and stay physically fit. Created in 1971 by the federal
 government, ParticipAction was successful in encouraging Canadians to be active and to
@@ -855,10 +819,8 @@ program gave to otherwise inactive Canadians. Despite the program's termination,
 ParticipAction has made a long-lasting impression on Canadians. Hopefully, its positive
 example of physical fitness for Canadians will continue in the future.
 
-61 | P a g ewww. irlanguage .com
-------------------------------------------------------------------------------------------------------------------------
-Article #72
-The Olympic Games
+## 72 - The Olympic Games
+
 The modern Olympic Games began in the late-nineteenth century as a revival of the
 ancient Greek Olympics. Now just over one hundred years old, the modern Olympic
 movement is the biggest and most important sports movement in the world. In fact, many
@@ -892,9 +854,9 @@ Olympics have become truly international, but perhaps at a price.
 There is little question that the Olympic Games hold out the possibility for fulfilling de
 Coubertin's original goal of sport contributing to a better, more peaceful, and
 understanding world.
-------------------------------------------------------------------------------------------------------------------------
-Article #73
-Sport in Canada
+
+## 73 - Sport in Canada
+
 There is a long and rich history of sport participation in Canada. Many of the sports and
 games Canadians currently play can be traced back to the early days of Canadian history.
 In the nineteenth century, sport and games in Canada were not highly organized. Few
@@ -903,8 +865,6 @@ took precedence. However, around the turn of the century, several amateur sport
 organizations emerged. These groups attempted to organize sports competitions, set
 rules, and develop teams and leagues. As a result, organized competitions quickly grew
 in number around this period in time, especially in the 50-year period between 1870 and
-
-62 | P a g ewww. irlanguage .com
 1920.
 Some of the earliest organized sports in Canada were rifle shooting, rowing, track and
 field, rugby football, skating, cricket, and golf, among others. Many of these sports were
@@ -932,9 +892,9 @@ healthy lifestyles and sporting traditions of Canadians. Today, the government p
 funds for elite amateur athletes preparing for World Championships and the Olympic
 Games. The athletic role models produced by these government programs are crucial to
 Canadians in general.
-------------------------------------------------------------------------------------------------------------------------
-Article #74
-Professional Sport in Canada
+
+## 74 - Professional Sport in Canada
+
 Canada is a relatively young country, existing as a separate national and political entity
 only since 1867. As a result, its sporting traditions are relatively young as well. Most of
 the professional teams and leagues in Canada developed only in the last 30 years or so.
@@ -952,8 +912,6 @@ professional and amateur leagues existed in Canada long before then. Many small-
 teams competed for local or provincial championships, and had a strong influence on
 those Canadians who had little access to, or knowledge of, big-city teams in Toronto or
 Montreal. In fact, it was not until NHL games were broadcast on the Canadian national
-
-63 | P a g ewww. irlanguage .com
 radio "Hockey Night in Canada" radio broadcasts that many Canadians had experienced
 an NHL game. Indeed, despite the fact that the NHL was considered Canada's most
 prestigious league, it was not until the advent of television in the 1950s that most
@@ -974,9 +932,9 @@ visible teams in Canada are ones in American-dominated leagues. Even the Nationa
 Hockey League-once considered a secure Canadian sports icon-has its corporate offices
 in New York. Debates about the threat of American-dominated professional sport to
 Canadian sovereignty will undoubtedly continue in the future.
-------------------------------------------------------------------------------------------------------------------------
-Article #75
-Ned Hanlan
+
+## 75 - Ned Hanlan
+
 Edward (Ned) Hanlan (1855-1908) was one of the most important athletes in Canadian
 history. Hanlan, an oarsman, helped shape the direction of Canadian sport in its early,
 formative years. His combination of athletic success and popularity with rowing
@@ -1001,8 +959,6 @@ wave to the crowds and perform rowing "tricks" such as removing his hands from t
 oars in the middle of the race. He was even known to fake an injury in the middle of a
 race, only to recover just in time to win the race. Of course, the additional purpose of this
 strategy was to raise gambling odds, thus making himself and his financial handlers
-
-64 | P a g ewww. irlanguage .com
 wealthier from his victories.
 In the 1870s and 1880s, Hanlan won and then successfully defended his World
 Championship title seven times. He also competed in commercial exhibitions and rowing
@@ -1012,9 +968,9 @@ was Hanlan that one major newspaper in Canada claimed he was the single greatest
 agent for attracting new immigrants to the young country. Today, a bronze statue stands
 in Toronto in honour of his success, and an island just off the shores of the city of
 Toronto is named after Hanlan.
-------------------------------------------------------------------------------------------------------------------------
-Article #76
-Rowing
+
+## 76 - Rowing
+
 The sport of rowing is one of the oldest organized sports in the Western world. The
 modern version of the sport was developed mainly in England in the nineteenth century,
 especially in the public school system. However, boat races somewhat similar to the
@@ -1050,14 +1006,12 @@ A more recent development in rowing is recreational and Masters rowing. In an at
 to regain popularity in the sport, many clubs in North America are offering less
 competitive recreational programs and encouraging older Masters rowers to participate.
 This is probably a positive move in at least two reasons. One is that the sport will attract
-
-65 | P a g ewww. irlanguage .com
 many more participants. However, the other equally important reason is that the sport
 might dispense some of the "elitist" image many people have of the sport as an "English
 old-boy" sport.
-------------------------------------------------------------------------------------------------------------------------
-Article #77
-Tiger Woods
+
+## 77 - Tiger Woods
+
 One of the most dramatic moments in golf occurred on April 13, 1997. On that day,
 Eldrick "Tiger" Woods, at the young age of 21, won the prestigious Masters golf
 tournament. Not only was Woods the youngest ever to perform the feat, Woods' score of
@@ -1093,13 +1047,11 @@ poverty line in the U.S.
 If the trajectory of Woods' career continue on its current path, it is possible he will satisfy
 his father's wishes for Tiger: "to make an impact on the world. . .it will be spiritual and
 humanitarian and will transcend the world of golf."
-------------------------------------------------------------------------------------------------------------------------
-Article #78
-Globalization and Sport
+
+## 78 - Globalization and Sport
+
 One of the most recognized and widely debated terms in recent times is "globalization."
 While there is little consensus as to what it actually is, there is little doubt that the world
-
-66 | P a g ewww. irlanguage .com
 has in one way or another become more inter-connected. Mass communications and
 transportation technology, in addition to the rise of transnational corporate culture, have
 combined to produce a new global culture.

@@ -1,6 +1,5 @@
-------------------------------------------------------------------------------------------------------------------------
-Article #19
-Kings and Queens of England
+## 241 - Kings and Queens of England
+
 Today, in the early twenty-first century, most countries no longer have kings and queens.
 However, some countries have remained as monarchies, including England and its
 former colonies. However, even in these countries, the monarch is a ceremonial figure
@@ -29,8 +28,6 @@ power than the king. Until the twentieth century, the Parliaments of England bec
 more democratic, as more and more people were allowed to vote.
 Today, England still has a constitutional monarchy. But not all English-speaking
 countries recognize the English queen. For example, the United States became an
-
-19 | P a g ewww. irlanguage .com
 independent country over 200 years ago and has been a republic ever since.
 In some countries, there is debate about the future of the monarchy. Canada, Australia,
 and New Zealand still recognize the queen of England as their own queen even though
@@ -39,9 +36,9 @@ want to abolish the monarchy. They believe that their countries should now have 
 own head of state. On the other hand, some people in those countries want to keep the
 monarchy because it reminds them of their country's early history. This is an ongoing
 topic of debate for Canadians, Australians, and New Zealanders.
-------------------------------------------------------------------------------------------------------------------------
-Article #20
-Alcohol
+
+## 242 - Alcohol
+
 Alcohol is the oldest drug that is used in Western countries. For thousands of years,
 people have made alcoholic beverages. These beverages are made by allowing a process
 called fermentation to occur. Alcoholic fermentation happens when yeasts or bacteria
@@ -78,13 +75,11 @@ people drink so frequently that they develop a physiological addiction to alcoho
 problem can have terrible consequences for a person's health, personal relationships,
 and career.
 Alcoholic beverages are firmly a part of Western culture, and of many other cultures also.
-
-20 | P a g ewww. irlanguage .com
 On the one hand, drinks provide many people with much enjoyment and appreciation. On
 the other hand, alcohol is a drug that can be abused, leading to accidents and addiction.
-------------------------------------------------------------------------------------------------------------------------
-Article #21
-The Origins of Canada and The United States
+
+## 243 - The Origins of Canada and The United States
+
 Most people are aware that Canada and the United States are two very large countries in
 North America. However, most people do not know how these countries came to exist.
 The story of the creation of these countries is a very interesting one.
@@ -124,10 +119,8 @@ speaking areas of Canada. In the year 1867, Quebec and the English-speaking colo
 agreed to form a single country, Canada. By this time, there were two very large
 countries in the northern part of North America!
 
-Article #22
-Hawaii
+## 244 - Hawaii
 
-21 | P a g ewww. irlanguage .com
 Of the fifty states in the United States, forty-nine are located on the mainland of North
 America. The other state is Hawaii, which consists of several islands in the middle of the
 Pacific Ocean. Hawaii is known as an especially beautiful and interesting place.
@@ -164,9 +157,9 @@ In 1959, Hawaii became the 50th state of the United States, with the city of Hon
 capital. Today, there are more than one million people in Hawaii, more than half of whom
 live in Honolulu. Each year, many more people visit Hawaii as tourists, to experience the
 beauty of these islands.
-------------------------------------------------------------------------------------------------------------------------
-Article #23
-Charles Darwin
+
+## 245 - Charles Darwin
+
 Charles Darwin made what might be the most important scientific discovery of all time-
 the theory of evolution by natural selection. It was Darwin who first understood how it
 was that plants and animals evolved over time to produce new and different species. At
@@ -175,8 +168,6 @@ evidence from many areas of science.
 Darwin was born in a small town in England in 1809. When he was a young man, he went
 to university, first to study medicine, and later to study religion. However, Darwin found
 his schoolwork to be very boring. Instead, he preferred outdoor activities and was very
-
-22 | P a g ewww. irlanguage .com
 interested in nature.
 While Darwin was at university, the British navy was planning to send one of its ships,
 called the Beagle, on a voyage of exploration. As part of this voyage, the ship would need
@@ -206,9 +197,9 @@ several more books. By the time of his death, in 1882, many biologists had reali
 Darwin had made one of the most important scientific discoveries of all time. For the first
 time, scientists could understand the origin of the many different species of plants and
 animals.
-------------------------------------------------------------------------------------------------------------------------
-Article #24
-Jazz
+
+## 246 - Jazz
+
 One of the most popular forms of music is known as jazz. Each year, hundreds of
 thousands of people attend jazz concerts and festivals in cities around the world. Jazz
 music, both old and new, is played on the radio and on home stereos.
@@ -224,8 +215,6 @@ twentieth centuries. It was based on African-American music that was derived in 
 from rhythms in western Africa. The earliest jazz musicians were influenced by a music
 style known as "ragtime," which was popular during the late nineteenth century. Jazz
 music also incorporated some aspects of a related kind of music called the "blues."
-
-23 | P a g ewww. irlanguage .com
 By the beginning of the twentieth century, a fully developed form of jazz was being
 played in New Orleans, a city in the southern United States. Jazz musicians played
 instruments such as the trumpet, saxophone, cornet, and piano. Jazz soon became
@@ -248,9 +237,9 @@ Louis Armstrong, Duke Ellington, Count Basie, Dizzy Gillespie, and Billie Hollid
 longer alive. However, many great jazz musicians are still active, and many younger
 musicians have continued this form of music. People will continue to enjoy jazz music
 for a long time to come.
-------------------------------------------------------------------------------------------------------------------------
-Article #25
-Australia : Nature
+
+## 247 - Australia : Nature
+
 Australia is the only country in the world that is also a continent. Located in the southern
 hemisphere, between the Pacific and Indian oceans, Australia is one of the largest
 countries in the world.
@@ -273,8 +262,6 @@ dead bodies create this unusual structure beneath the surface of the water. The 
 the underwater life surrounding it are especially beautiful.
 Australia was separated from the rest of the world for millions of years. As a result, many
 of the plant and animal species in Australia are very different from those in other parts of
-
-24 | P a g ewww. irlanguage .com
 the world. For example, many of the animals in Australia belong to a special category
 called the "marsupials." Marsupials are mammals, but they are a special kind of mammal,
 because they give birth to offspring that are not yet well developed. In many marsupials,
@@ -288,9 +275,9 @@ because it looks somewhat like a small bear. The koala lives in the branches of 
 called eucalyptus trees. Koalas eat the leaves of eucalyptus trees.
 Of course, Australia also has people. We will discuss the people of Australia in the next
 passage.
-------------------------------------------------------------------------------------------------------------------------
-Article #26
-Australia : People
+
+## 248 - Australia : People
+
 The first people who lived in Australia were known as the Aborigines. The Aborigines
 came to Australia by boat more than 40,000 years ago. They are the first people in the
 world who are known to have used boats for transportation.
@@ -322,16 +309,14 @@ Australia, South Australia, Tasmania, Victoria, New South Wales, and Queensland)
 Tasmania is a small island off the southern coast, and Victoria, New South Wales, and
 Queensland are found in the eastern part of the country.
 The two largest cities in Australia are Sydney and Melbourne, both of which are in the
-
-25 | P a g ewww. irlanguage .com
 southeastern part of the country. Sydney has a beautiful harbor that is one of the largest
 in the world, and Melbourne has many beautiful parks and gardens. The capital city of the
 country is Canberra, which is located between Sydney and Melbourne. Other large cities
 in Australia are Brisbane (in the northeast), Perth (in the southwest), and Adelaide (in the
 south).
-------------------------------------------------------------------------------------------------------------------------
-Article #27
-The Earth Revolves Around the Sun
+
+## 249 - The Earth Revolves Around the Sun
+
 One year is the time required for the earth to travel around the sun. For most of history,
 however, people did not know that the earth moved around the sun. Instead, people
 believed that the sun moved around the earth.
@@ -367,11 +352,9 @@ around the sun.
 Today, everyone knows that the earth moves around the sun; but for a long time, it
 seemed more reasonable to believe that the sun moved around the earth. We can thank
 the great scientists of the past who discovered the surprising truth.
-------------------------------------------------------------------------------------------------------------------------
-Article #28
-George Washington Carver
 
-26 | P a g ewww. irlanguage .com
+## 250 - George Washington Carver
+
 George Washington Carver is possibly the most famous agricultural scientist of all time.
 He invented hundreds of products that could be made from crops such as peanuts and
 sweet potatoes, and he changed the methods of farming in the southern United States.
@@ -409,9 +392,9 @@ Carver received many awards for his scientific research, but he was never intere
 fame or fortune. When Carver died, in 1943, the American government made his
 birthplace a national monument. Today, Carver is still known as a great agricultural
 scientist.
-------------------------------------------------------------------------------------------------------------------------
-Article #29
-The Rights of the Accused
+
+## 251 - The Rights of the Accused
+
 In English-speaking countries, the rights of an accused person are taken very seriously.
 Over many centuries, laws evolved in such a way that people could not be arrested or
 charged without a very good reason.
@@ -419,8 +402,6 @@ Of course, every country needs to enforce its laws. This means that police offic
 needed, and so are "prosecutors"-the lawyers whose job is to make criminal charges
 against people who break the laws, and to prove that those charges are true. However, it
 is very important that people's freedoms are not taken away wrongly. People should not
-
-27 | P a g ewww. irlanguage .com
 be punished unfairly, and people who are accused of crimes must have the opportunity
 to defend themselves.
 In some parts of the world, people can be arrested and imprisoned for long periods of
@@ -455,9 +436,9 @@ must be held in public, where other citizens can watch the trial. An accused per
 tried secretly. Moreover, as discussed in another passage, the accused person has the
 right to be tried by a jury of other free citizens. All of these rules ensure that order can be
 maintained without taking away the freedom of innocent people.
-------------------------------------------------------------------------------------------------------------------------
-Article #30
-New York City
+
+## 252 - New York City
+
 New York City is the largest city in the United States, and one of the largest cities in the
 world. The city of New York has a population of over seven million people, and the
 surrounding urban areas bring the total to about twenty million people. However, New
@@ -468,8 +449,6 @@ permanent settlements were established during the seventeenth century, by settle
 the Netherlands. Those people named their town "New Amsterdam." Soon, the colony
 was taken over by English settlers, who re-named the city "New York." New York grew
 quickly, and by the nineteenth century it was the largest city of the United States.
-
-28 | P a g ewww. irlanguage .com
 New York was usually the place where new immigrants to the United States would arrive.
 In the nineteenth century, immigrants from Germany and Ireland were numerous in New
 York. In the early twentieth century, New York City was the home of many Jewish
@@ -496,9 +475,9 @@ Visitors to New York find it to be an extremely busy, fast-placed city and are s
 extremes of wealth and poverty that surround it. Many people love New York City, but
 even those who would not want to live in New York do agree that it is a very interesting
 place.
-------------------------------------------------------------------------------------------------------------------------
-Article #31
-California
+
+## 253 - California
+
 By far the most populous state of the United States is California. Located in the
 southwestern corner of the United States, California is home to a great diversity of
 natural environments and cultural influences. In the year 2000, over 33 million people
@@ -517,8 +496,6 @@ began as religious missions that were started by Spanish priests. Mexico owned
 California during the early nineteenth century, but few Mexican people lived there. The
 United States gained control of California during the 1840s, and the discovery of gold
 brought many Americans and others to California.
-
-29 | P a g ewww. irlanguage .com
 Today, California contains some of the largest cities in the United States. Within the
 greater Los Angeles area, one can find Hollywood, known as the movie capital of the
 world. Many rich people live in suburbs such as Beverly Hills, and many poor people live
@@ -536,9 +513,9 @@ vibrant artistic and cultural life. San Francisco was destroyed by an earthquake
 and was damaged again in 1989.
 California has always had a special place in the imagination of Americans. This is hardly
 surprising, given the variety and diversity of this vast state!
-------------------------------------------------------------------------------------------------------------------------
-Article #32
-Drug Use Among Athletes
+
+## 254 - Drug Use Among Athletes
+
 Drug use is a common problem in many sports competitions today. In both professional
 and amateur sports, many athletes use drugs that are designed to improve athletic
 performance. The use of these drugs may have harmful effects on the future health of
@@ -566,16 +543,14 @@ One difficulty in preventing the use of performance-enhancing drugs is that it i
 always possible to detect the use of the drugs. Tests have been developed to detect the
 drugs, but new varieties of the drugs are often not detected. Also, athletes who stop
 using the drugs well before a drug test may avoid being detected.
-
-30 | P a g ewww. irlanguage .com
 Preventing the use of performance-enhancing drugs in athletes is difficult, but it is
 important. Most athletes want to compete without using artificial substances that provide
 easy advantages, and they do not want to risk their health by using these substances. If
 those athletes are to have a fair chance, it is necessary to prevent other athletes from
 gaining advantages due to the use of these drugs.
-------------------------------------------------------------------------------------------------------------------------
-Article #33
-Scotland
+
+## 255 - Scotland
+
 Scotland is the country that is located on the northern part of the island of Great Britain.
 The Scottish people are one of the four main nationalities of the British Isles, together
 with the English, the Welsh, and the Irish. Scotland and its people have played an
@@ -616,10 +591,8 @@ Today, Scotland remains part of the United Kingdom, but some Scottish people wou
 like Scotland to become independent. Whatever the Scottish people decide, their country
 will remain a unique and interesting place.
 
-31 | P a g ewww. irlanguage .com
-------------------------------------------------------------------------------------------------------------------------
-Article #34
-London
+## 256 - London
+
 The city of London is one of the most famous cities in the world. In previous centuries,
 London was the centre of the British Empire. Today, it is one of the most important cities
 of the emerging European Union.
@@ -652,9 +625,9 @@ Despite its age, London remains a vibrant and busy city. Most of the cultural an
 financial institutions in England are located in London, and the city attracts many young
 people from other parts of England and around the world. Of course, London is popular
 with tourists who come to see the many attractions of this city.
-------------------------------------------------------------------------------------------------------------------------
-Article #35
-Soccer
+
+## 257 - Soccer
+
 Soccer is the most popular sport in the world. The basic rules of the sport are simple:
 two teams of eleven players try to kick the soccer ball into the opposing team's goal.
 Only one player on each team, the goal-keeper, is allowed to touch the ball with hands or
@@ -663,8 +636,6 @@ requires no expensive equipment, merely a ball and a playing surface, preferably
 grassy area. For children in most parts of the world, soccer is the sport that is played
 most widely.
 Soccer is also known as football, especially in England. However, soccer should not be
-
-32 | P a g ewww. irlanguage .com
 confused with American Football, Australian Rules Football, and Rugby Football, which
 are very different sports.
 Although the basic rules of soccer are easy to learn, it is very difficult to master the skills
@@ -692,9 +663,9 @@ There are now many soccer leagues and tournaments available for women athletes, 
 it seems likely that the number of women who play soccer will someday equal the
 number of men who play soccer. Among children in many parts of the world, soccer is
 equally popular for boys and girls.
-------------------------------------------------------------------------------------------------------------------------
-Article #36
-Extinctions
+
+## 258 - Extinctions
+
 Ever since human beings appeared on the Earth, we have had a serious impact on other
 living things. One of the most serious results of the human presence has been the
 extinction of other species. Since the arrival of humans, many species of animals and
@@ -712,8 +683,6 @@ parts of the world. When they reached new areas, they found that it was very eas
 the large animals, which had not previously been hunted by humans. As these
 prehistoric people moved into Europe, Australia, and the Americas, they killed large
 numbers of large animals. Within a few hundred years, many species of animals had
-
-33 | P a g ewww. irlanguage .com
 become extinct. For example, prehistoric people reached New Zealand less than 1000
 years ago, but they soon hunted a huge bird, called the giant moa, to extinction.
 With the beginnings of modern technology, several hundred years ago, many other
@@ -736,9 +705,9 @@ Fortunately, many countries have laws to prevent the hunting of species that are
 extinction, known as "endangered species." However, some hunting of these endangered
 animals continues. Only by refusing to buy the products that are made from endangered
 species can we prevent this terrible crime.
-------------------------------------------------------------------------------------------------------------------------
-Article #37
-Obesity and Nutrition
+
+## 259 - Obesity and Nutrition
+
 For people in many countries, one of the great triumphs of modern life is that there is a
 great abundance of food. In those places, problems such as starvation and malnutrition
 are no longer prevalent, and people do not worry about going hungry.
@@ -761,8 +730,6 @@ The weight gain that can result from consuming too much fast food and too many s
 drinks can have several harmful effects. For example, people who are very obese have an
 increased risk of heart disease and of diabetes. Of course, fast food and soft drinks are
 not the only causes of obesity. Other eating habits may be involved, and so are lack of
-
-34 | P a g ewww. irlanguage .com
 exercise and genetic factors.
 To avoid the health problems that are associated with obesity, it is important that one
 does not eat too much food. However, this does not mean that one should try to eat as
@@ -776,9 +743,9 @@ good health. People whose diet consists mainly of these foods will probably be m
 healthier, on average, than people whose diet contains too many foods that have high
 levels of fat or sugar. In addition, many of these nutritious foods are also very tasty and
 enjoyable to eat!
-------------------------------------------------------------------------------------------------------------------------
-Article #38
-Sexual Harassment
+
+## 260 - Sexual Harassment
+
 When an employee is subjected to unwanted sexual advances or comments by a co-
 worker or an employer, we say that the employee is experiencing sexual harassment. In
 some workplaces, sexual harassment is a serious problem.
@@ -810,8 +777,6 @@ Sexual harassment is a form of intimidation and abuse of power that causes much 
 for many employees. In recent years, many steps have been taken to reduce the
 occurrence of sexual harassment. Educational campaigns have been designed to teach
 people that sexual harassment is wrong. Stronger penalties for sexual harassment have
-
-35 | P a g ewww. irlanguage .com
 been introduced.
 Another way to reduce the prevalence of sexual harassment is to develop a culture of
 respect in the workplace. People need to be aware of how their jokes or comments might
@@ -821,9 +786,9 @@ harassment is a serious concern and treat potential cases of sexual harassment v
 seriously. Each company should have clear policies about sexual harassment, and each
 should establish a fair and efficient process for dealing with complaints of this kind. In
 this way, the workplace can be a comfortable environment for all persons.
-------------------------------------------------------------------------------------------------------------------------
-Article #39
-Cultural Differences : Individualism and Collectivism
+
+## 261 - Cultural Differences: Individualism and Collectivism
+
 The many cultures of the world differ in a great variety of ways. One of the most
 interesting ways in which cultures vary is in the extent to which they are "individualistic"
 or "collectivistic." An individualist society and a collectivist society are different in many
@@ -860,10 +825,8 @@ The idea of individualism versus collectivism is an interesting way to understan
 of the differences between cultures. By learning about ideas like this, one can better
 appreciate the customs of other peoples.
 
-36 | P a g ewww. irlanguage .com
-------------------------------------------------------------------------------------------------------------------------
-Article #40
-The Protestant Reformation
+## 262 - The Protestant Reformation
+
 Until about 500 years ago, there was only one Christian church in western and central
 Europe. People from Portugal to Poland all belonged to the Roman Catholic Church.
 However, soon after the year 1500, people in many parts of Europe broke away from the
@@ -899,16 +862,14 @@ response to Protestant criticism, but kept its most important beliefs.
 In recent times, relations between the Roman Catholic Church and the various Protestant
 churches have become much more friendly. Some discussions have been held between
 Catholic and Protestant officials, in order to resolve some of their disagreements.
-------------------------------------------------------------------------------------------------------------------------
-Article #41
-Modern Engineering Wonders
+
+## 263 - Modern Engineering Wonders
+
 During the twentieth century, there were great improvements in engineering technology.
 These new developments allowed the construction of many amazing tunnels, bridges,
 towers, and office buildings.
 For centuries, people had dreamed about the possibility of connecting the island of Great
 Britain to the mainland of Europe. However, it was only in 1994 that such a link was
-
-37 | P a g ewww. irlanguage .com
 completed, when a tunnel was dug under the English Channel, between England and
 France. The Channel Tunnel, also known as the "Chunnel," actually consists of three
 separate railway tunnels. These tunnels are about 50 kilometres long. They are located
@@ -941,9 +902,9 @@ metres. The Petronas Towers were completed in 1998.
 Obviously, the late twentieth century witnessed some amazing achievements of
 engineering. It will be very interesting to see what new wonders will be constructed in the
 twenty-first century!
-------------------------------------------------------------------------------------------------------------------------
-Article #42
-Anne Sullivan and Helen Keller
+
+## 264 - Anne Sullivan and Helen Keller
+
 The story of Anne Sullivan and Helen Keller is the story of a dedicated teacher and an
 eager student. This story is very remarkable and inspiring because the teaching was
 done without sight and without sound.
@@ -956,8 +917,6 @@ also learned that people could communicate by moving their lips. Helen could not
 instead, she communicated with her family by making sign movements with her hands
 and body. However, Helen became very frustrated by her inability to see, hear, and talk.
 She often became very angry and had many "temper tantrums."
-
-38 | P a g ewww. irlanguage .com
 When Helen Keller was six years old, her family took her to see Dr. Alexander Graham
 Bell, who was an expert on educating deaf children. (This man was also famous for
 inventing the telephone.) As a result of this visit, Helen's parents hired a tutor for their
@@ -982,9 +941,9 @@ After Anne's death, Helen continued to give lectures in countries around the wor
 was active in many political causes. She met with presidents and prime ministers, and
 helped to improve conditions for people who were deaf or blind. At the time of her death,
 in 1968, Helen Keller was one of the most admired people in the world.
-------------------------------------------------------------------------------------------------------------------------
-Article #43
-The Automobile, or Car
+
+## 265 - The Automobile, or Car
+
 In many ways, the automobile has been one of the most important inventions of the
 modern age. People have been able to travel much more freely, and across much greater
 distances, than was possible in the past. The automobile, which most people refer to as
@@ -1005,8 +964,6 @@ production of cars. The first car to be produced in large numbers was called the
 T."
 The Model T Ford and other cars that were soon produced in large numbers were cheap
 enough that many people could afford to buy them. Many new roads were built and
-
-39 | P a g ewww. irlanguage .com
 paved throughout North America to allow cars to be driven from town to town. People
 were able to travel much more easily and to visit places that had previously been difficult
 to reach.
@@ -1025,9 +982,9 @@ The future is likely to bring many interesting new changes to the car. Improveme
 the safety of cars, in fuel efficiency, and in the cleanliness of car emissions are
 continuing to be made. Also, the increasing use of the car in economically developing
 countries will probably have important effects upon people's lives around the world.
-------------------------------------------------------------------------------------------------------------------------
-Article #44
-Sexual Attitude and Behavior
+
+## 266 - Sexual Attitude and Behavior
+
 During the past several decades, there have been major changes within most Western
 countries in people's attitudes toward sex, and in sexual behaviour. For people who have
 lived throughout this period, the changes have seemed quite remarkable.
@@ -1054,8 +1011,6 @@ including AIDS; moreover, many young women had been uncomfortable with the idea 
 unrestricted sexual behaviour. As a result, sexual attitudes became slightly more
 conservative during the 1980s and 1990s, although they remained much more liberal
 than in previous decades.
-
-40 | P a g ewww. irlanguage .com
 In the early twenty-first century, most young people in Western countries begin having
 sex during their high school years, although some people wait until they are
 considerably older. Some young people are promiscuous, but most engage in
@@ -1065,9 +1020,9 @@ usually continues until marriage. After marriage, most people have sex exclusive
 their spouse; however, some people do commit adultery.
 Sexuality has changed a great deal in recent decades. It will be very interesting to see
 how people's sexual attitudes and behaviour will change in the future.
-------------------------------------------------------------------------------------------------------------------------
-Article #45
-The Mississippi River
+
+## 267 - The Mississippi River
+
 The Mississippi River is the longest river within the United States, and the fourth longest
 river in the world. This river holds a special place in American history and literature, and
 in the imagination of ordinary Americans.
@@ -1101,11 +1056,9 @@ Twain, are both set along the Mississippi River.
 Today, the federal and state governments of the United States are working to preserve
 the natural environment along the Mississippi River. People recognize the importance of
 keeping this river healthy and clean.
-------------------------------------------------------------------------------------------------------------------------
 
-41 | P a g ewww. irlanguage .com
-Article #46
-Doctors Without Borders
+## 268 - Doctors Without Borders
+
 In 1999, the Nobel Prize for Peace was won by the organization known as "Doctors
 Without Borders." This is the English name of the organization, based in Belgium, which
 won the prize for its humanitarian assistance to people around the world, in areas that
@@ -1140,9 +1093,9 @@ witnesses who tell the world about the cruelty that is inflicted upon innocent p
 Obviously, the work of Doctors Without Borders is extremely important. The volunteers
 of this organization are brave and selfless people whose efforts have relieved the
 suffering of millions of people.
-------------------------------------------------------------------------------------------------------------------------
-Article #47
-Chicago
+
+## 269 - Chicago
+
 Chicago is one of the most famous American cities. Some cities in the United States-
 such as New York, Los Angeles, and San Francisco-may be more glamorous, but many
 people agree that Chicago is the city that best represents the United States.
@@ -1151,8 +1104,6 @@ geography. The city's central location has made its O'Hare International Airport
 for most airlines in the United States. Its location on the shores of Lake Michigan has
 made it a major port and business centre, where the agricultural and industrial products
 of the American Midwest are shipped overseas.
-
-42 | P a g ewww. irlanguage .com
 Until about the 1830s, Chicago was a minor trading post. But then it grew rapidly as the
 most important town in the rapidly developing areas of the midwestern United States. In
 1871, the city was destroyed by a fire. It is often said that the fire started when a cow
@@ -1176,9 +1127,9 @@ Chicago is famous for its many attractions, including the Art Institute of Chica
 Field Museum of Natural History, the Shedd Aquarium, the Sears Tower, and the "Miracle
 Mile" shopping district. Indeed, Chicago is one of the most interesting cities in the United
 States.
-------------------------------------------------------------------------------------------------------------------------
-Article #48
-Women and the Right to Vote
+
+## 270 - Women and the Right to Vote
+
 In most countries today, people think it is obvious that all adults should have the right to
 vote in democratic elections. But it was not so long ago that women did not have this
 right. Only after a long struggle did women gain the right to vote.
@@ -1200,8 +1151,6 @@ Anthony and Elizabeth Cady Stanton brought attention to this issue, and persuade
 many people that women should vote.
 The first part of the United States to recognize women's right to vote was Wyoming, in
 the year 1869. During the following decades, many other states recognized women's right
-
-43 | P a g ewww. irlanguage .com
 to vote, particularly in the western part of the country, where women had a high social
 status. However, the United States was not the first country to recognize women's right
 to vote at the national level.

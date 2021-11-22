@@ -1,6 +1,5 @@
-------------------------------------------------------------------------------------------------------------------------
-Article #96
-Being a Good Citizen
+## 211 - Being a Good Citizen
+
 Every society has laws that regulate the way people behave. A good citizen should obey
 laws. However, there is more to being a good citizen than merely obeying laws. There are
 many other things that people can do to make their society a pleasant one for every
@@ -25,11 +24,9 @@ needed so that there will be enough blood available to help people who are sick 
 injured.
 Being a good citizen is very helpful for the community, and it also gives a feeling of
 satisfaction and pride!
-------------------------------------------------------------------------------------------------------------------------
-Article #97
-Visiting the Doctor
 
-65 | P a g ewww. irlanguage .com
+## 212 - Visiting the Doctor
+
 When people feel sick, they go to a doctor. But sometimes people visit the doctor even
 when they are not sick. Doctors can perform a medical "check-up", to find out if a person
 is healthy. By performing this physical examination, the doctor can identify any health
@@ -55,9 +52,9 @@ These injections, called vaccinations, prevent the patient from developing certa
 illnesses.
 Medical check-ups can help to maintain health, but people should also maintain their
 health by leading a healthy lifestyle.
-------------------------------------------------------------------------------------------------------------------------
-Article #98
-A Small Town
+
+## 213 - A Small Town
+
 I grew up in a small town. There were only about two thousand people who lived in the
 town where I grew up. When a town is very small, it is also called a village. My village
 was surrounded by many farms and many lakes.
@@ -76,15 +73,13 @@ same street where I lived. Sometimes, we walked to school together.
 During the summer months, many people came from the big city to visit our village. The
 people liked to get away from the busy streets of the city. They enjoyed the quietness
 and the slow pace of village life. They also liked to spend their vacations near the lakes
-
-66 | P a g ewww. irlanguage .com
 that were near the village. People from the city often said that people who live in villages
 seemed very friendly.
 When I grew up, I left my village, and I went to work in a larger town. But sometimes I like
 to go back and visit the place where I grew up.
 
-Article #99
-Personal Computers
+## 214 - Personal Computers
+
 During the 1980s and 1990s, personal computers became very widespread. The use of
 the computer has changed people's lifestyles in several ways.
 Before 1980, hardly anyone owned a computer. Only governments and large companies
@@ -109,9 +104,9 @@ different topics. For example, people can read newspapers and magazines on the
 Internet.
 Personal computers have only existed for a short time. But for many people, those
 computers have quickly become a very useful part of everyday life!
-------------------------------------------------------------------------------------------------------------------------
-Article #100
-Methods of Transportation
+
+## 215 - Methods of Transportation
+
 In the modern age, people often travel long distances. Sometimes people travel for
 reasons related to their work. Sometimes they travel as tourists. And sometimes people
 travel to visit relatives and friends.
@@ -124,8 +119,6 @@ kilometres above the level of the sea. Jet airplanes allow people to travel grea
 in a short time. For example, it is possible to fly across a great ocean, such as the Pacific
 or the Atlantic, in several hours.
 Ships were once the only way to travel across the oceans. Before airplanes, it took many
-
-67 | P a g ewww. irlanguage .com
 weeks or months to travel around the world. Today, many people still travel by ship when
 crossing smaller bodies of water. Some ships, called ferries, allow people to bring their
 cars with them onto the ship. Some people also like to travel by ship as part of a holiday.
@@ -140,9 +133,9 @@ for only short trips, but sometimes buses and cars are used for very long journe
 North America, many people have driven across Canada or the United States in their cars.
 The wide, smooth roads allow cars and buses to travel quickly from one place to another.
 There are many different methods of transportation. Which one do you think is the best?
-------------------------------------------------------------------------------------------------------------------------
-Article #101
-A Life Experience
+
+## 216 - A Life Experience
+
 My friend Lani and I went to Burger King yesterday. We ordered a big order of french
 fries and a couple of drinks. Lani got a strawberry milkshake.
 I picked out a table near the window so we could look at the people passing by. As we
@@ -163,17 +156,15 @@ Lani and I are planning to travel together so we are trying to save our money. O
 fries and drink only came to about $6, so we didn't feel too bad about spending our
 money!
 I wonder though, if McDonald's would have been cheaper?
-------------------------------------------------------------------------------------------------------------------------
-Article #102
-Air Plane Ride
+
+## 217 - Air Plane Ride
+
 Tasha signed a piece of paper which gave her a chance to win a free air plane ride. She
 put her name, address and telephone number on that piece of paper. A few days later she
 got a telephone call. It was the man that was holding the ticket draw. Tasha didn't think
 she would win, but the man on the telephone said she did!
 She listened as the man told her where she would have to go to get her free air plane ride.
 She had to go near the town of Grimsby. She was allowed to pick a friend to go with her
-
-68 | P a g ewww. irlanguage .com
 on the air plane ride. Tasha was so happy! She asked her twin sister Tawnya to go with
 her. Tawnya was very excited! Neither of them had been on an air plane before.
 When they got to the air plane centre, Tasha and Tawnya were nervous. They knew the
@@ -197,9 +188,9 @@ Soon it was time to go back to Grimsby. The pilot took over again. We braced our
 as the landing strip got nearer. The landing went smoothly with Tasha and Tawnya
 beaming as they looked out at the ground. They hopped off of the plane, thanked the
 pilot and ran to tell their mom about their wonderful experience.
-------------------------------------------------------------------------------------------------------------------------
-Article #103
-A Rainy Day
+
+## 218 - A Rainy Day
+
 The clouds were very gray. There was a loud boom that came from the sky. A bolt of
 lightning struck down a tree. All of a sudden buckets of rain came pouring down!
 Jane and Bill were walking in a park when the rain started. Jane wanted to take pictures
@@ -221,8 +212,6 @@ when they heard Jane and Bill coming.
 After a little while Jane and Bill decided to go home. They got into some dry clothes.
 Jane started to sneeze. She had gotten a little bit too wet!
 Bill noticed that the rain had stopped. "Look outside Jane," he said. Jane wrapped a
-
-69 | P a g ewww. irlanguage .com
 blanket around her shoulders and looked outside. There was a beautiful, bright rainbow
 across the sky Violet, blue, green, yellow, orange and red, the rainbow shone high in the
 sky. "I wonder if there's a pot of gold on the other side?" Jane asked. She had once been
@@ -231,9 +220,9 @@ the rainbow's end.
 Bill didn't believe there was a pot of gold. Jane ignored Bill though and started off across
 the field, to claim her big pot of money.
 Let's hope Jane finds her way back home, safe and sound, with a big pot of gold!
-------------------------------------------------------------------------------------------------------------------------
-Article #104
-Elementary School
+
+## 219 - Elementary School
+
 I go to Gainsborough Public Elementary School. I am in Grade 8. I am known as the
 "King/Queen" of the school this year. I feel very grown up. I love being the oldest kid in
 the school. My friends and I are told that we are examples to the younger kids in the
@@ -248,9 +237,9 @@ pink, too. My date's name is Chad. He is very nice. He is a good friend. I have 
 Chad since I was a little girl.
 I know that my future will be a bright one. I will miss all of my friends but I know we will
 see each other again someday.
-------------------------------------------------------------------------------------------------------------------------
-Article #105
-The Middle Child
+
+## 220 - The Middle Child
+
 I am the middle child of the family.
 I think it is nice in some ways.
 I have an older sister from whom I can borrow clothes from, if she lets me.
@@ -269,8 +258,6 @@ My parents were the strictest with her.
 They had lots of rules for her to follow.
 She is the first child, so they want her to be perfect.
 My younger brother is the baby of the family.
-
-70 | P a g ewww. irlanguage .com
 I think that we all spoil him.
 We let him get away with some things that he shouldn't get away with.
 His room is always messy, and my mother never gets mad about that.
@@ -281,9 +268,9 @@ You really don't have a choice about that.
 I think I like being the middle child.
 I can relate to my older sister and my younger brother.
 Yes, I think the middle is probably a good place to be.
-------------------------------------------------------------------------------------------------------------------------
-Article #106
-Advice to a Student from a Foreign Country
+
+## 221 - Advice to a Student from a Foreign Country
+
 My advice to a student from a foreign country would be to talk, talk, talk.
 Talk as much as you can to the people who live in the place that you are visiting.
 Talk to them and practice your new language skills.
@@ -312,13 +299,11 @@ He thinks that the people are very friendly.
 We enjoy speaking to him and helping him to learn English.
 We also enjoy learning about his country.
 It is enjoyable for us to meet new people and learn about new things.
-------------------------------------------------------------------------------------------------------------------------
-Article #107
-A Ghost
+
+## 222 - A Ghost
+
 One dark and gloomy night, I was sitting in my bedroom reading ghost stories.
 The stories were very scary.
-
-71 | P a g ewww. irlanguage .com
 A storm was brewing outside my window.
 The wind began to howl, and the trees shook and bent in the wind.
 Lightening started to flash across the sky.
@@ -356,8 +341,8 @@ I laughed and felt very foolish.
 I have decided not to read ghost stories on dark stormy nights.
 I think my imagination plays tricks on me when I read ghost stories on nights like that.
 
-Article #1
-Louis Pasteur
+## 223 - Louis Pasteur
+
 Louis Pasteur was one of the greatest scientists of all time. Pasteur made very important discoveries
 in biology and chemistry, and the techniques he developed helped greatly to develop medical
 science and the agricultural and food industries.
@@ -391,9 +376,9 @@ immunization technique saved the boy's life.
 Pasteur died in 1895. He was greatly admired around the world for his achievements,
 which have helped all of humankind. Today, Pasteur is considered to be the greatest
 figure in the history of medicine.
-------------------------------------------------------------------------------------------------------------------------
-Article #2
-Psychology
+
+## 224 - Psychology
+
 Are you interested in the behaviour of people and animals? If you are, then you might
 enjoy the study of psychology. Psychology is the study of behaviour, but this is a very
 large area of study. There are several different branches of psychology, each of which
@@ -402,8 +387,6 @@ Social psychologists study interactions among people. For example, a social
 psychologist might try to learn about the situations that cause people to behave
 aggressively. Another question studied by social psychologists is why certain people
 become attracted to each other. One of the interesting problems in social psychology is
-
-5 | Pagewww. irlanguage .com
 conformity: what causes people to behave in the same way, and to follow what others do
 and say?
 Cognitive psychologists study thinking, memory, and language. One problem studied by
@@ -430,9 +413,9 @@ behaviours such as parenting, mating, or fighting. Some ethologists have learned
 much about the unusual behaviours observed in many animals.
 These are only a few of the many areas of psychology. Truly, psychology is one of the
 most interesting areas of knowledge!
-------------------------------------------------------------------------------------------------------------------------
-Article #3
-Corruption
+
+## 225 - Corruption
+
 When an official of a government or business is acting dishonestly, we say that this
 person is corrupt. Corruption is a serious problem in many countries around the world.
 There are several different kinds of corrupt practices, including bribes, kickbacks,
@@ -451,8 +434,6 @@ Nepotism happens when an official unfairly gives advantages to his or her relati
 example, a government official might hire a brother or sister to do a job even though
 other people would be much better qualified for the job. Of course, all of us want to help
 our relatives, but it is wrong to do this at the expense of the public.
-
-6 | Pagewww. irlanguage .com
 Embezzlement happens when an official secretly steals some money from a company or
 government. For example, a manager at a company might secretly move some of the
 company's money to his or her own bank account, or that manager might lie about his or
@@ -470,9 +451,9 @@ act in ways that are corrupt. People must agree to take this problem seriously. 
 company and each government must have strict rules about corruption. It must be very
 clear to all employees-from the lowest to the highest-that corruption is totally
 unacceptable.
-------------------------------------------------------------------------------------------------------------------------
-Article #4
-Canada : Provinces and Territories
+
+## 226 - Canada : Provinces and Territories
+
 Canada is one of the largest countries in the world. It is located in the northern half of the
 continent of North America, above the United States. Canada is divided into ten
 provinces and three territories, each of which is different from the others.
@@ -500,8 +481,6 @@ largest city, Toronto, as well as the capital city of Canada--Ottawa. In the sou
 Ontario are four of the largest lakes in the world, known as the Great Lakes.
 Next to Ontario is the province of Quebec. Unlike the other provinces, where most people
 speak English, most of the people in Quebec speak French. The capital of Quebec is
-
-7 | Pagewww. irlanguage .com
 called Quebec City, and this is one of the oldest cities in North America. Quebec City
 contains many buildings that are hundreds of years old. Also in the province of Quebec
 is the city of Montreal. Of all the French-speaking cities in the world, only Paris is larger
@@ -515,9 +494,9 @@ In the far north of Canada are the three territories that lie beside the Arctic 
 Northwest Territories, and Nunavut. Many of the people in these territories are the Native
 people of Canada, known as the Indians and the Inuit. The northern areas have very cold,
 dark winters. The summer is short, but the days are very long and bright.
-------------------------------------------------------------------------------------------------------------------------
-Article #5
-Two Great Artists : Leonardo and Michelangelo
+
+## 227 - Two Great Artists : Leonardo and Michelangelo
+
 Many people admire the paintings and sculptures that artists create. Some very beautiful
 paintings and sculptures were created by two men who lived in the same country at the
 same time. These men were Leonardo da Vinci and Michelangelo. They both lived in Italy
@@ -548,14 +527,12 @@ the Pope complained that it took too long. However, when the work was finished, 
 ceiling of the Sistine Chapel was covered with beautiful paintings of many scenes from
 the Bible.
 Fortunately, many of the works of Leonardo and of Michelangelo can still be seen today
-
-8 | Pagewww. irlanguage .com
 in the art galleries of Europe. During the past 500 years, the color of the paintings had
 faded somewhat, but in recent years, some work has been done to restore the paintings
 to their original appearance.
-------------------------------------------------------------------------------------------------------------------------
-Article #6
-The Viking
+
+## 228 - The Viking
+
 About a thousand years ago, people known as the Vikings were known and feared
 throughout Europe. The Vikings were the people of the northern part of Europe, called
 Scandinavia, which includes the modern countries of Denmark, Norway, and Sweden.
@@ -587,17 +564,15 @@ America about 500 years before Christopher Columbus!
 Gradually, the Vikings became converted to the Christian religion. They also stopped
 raiding the towns of Europe, and instead of fighting, they began trading with their
 neighbors. Today, the Scandinavian countries are known as very peace-loving nations.
-------------------------------------------------------------------------------------------------------------------------
-Article #7
-William Shakespeare
+
+## 229 - William Shakespeare
+
 There have been many great writers in the history of English literature, but there is no
 doubt about which writer was the greatest. Many people consider William Shakespeare to
 have been the best writer who ever lived.
 William Shakespeare was born in the town of Stratford, England, in the year 1564. When
 he was a young man, Shakespeare moved to the city of London, where he began writing
 plays. His plays were soon very successful, and were enjoyed both by the common
-
-9 | Pagewww. irlanguage .com
 people of London and also by the rich and famous. In addition to his plays, Shakespeare
 wrote many short poems and a few longer poems. Like his plays, these poems are still
 famous today.
@@ -625,9 +600,9 @@ they were written. The poems and plays are greatly admired by experts in literat
 also by people in general. Each year, hundreds of thousands of people enjoy attending
 performances of Shakespeare's plays. No other writer in the English language has
 remained so popular for such a long time.
-------------------------------------------------------------------------------------------------------------------------
-Article #8
-Ice Hockey
+
+## 230 - Ice Hockey
+
 One of the most popular sports in northern countries is the game of ice hockey. Each
 winter, this sport is played by hundreds of thousands of children and adults in North
 America and in Europe. Ice hockey is a fast and exciting game that can make winter
@@ -645,8 +620,6 @@ shaped in such a way that it is easy to push the puck along the ice. The players
 the puck to each other by sliding it across the ice.
 To score a goal, a hockey player must shoot the puck into the net of the opposing team,
 but this is a difficult task. The net is less than two metres wide, and it is protected by a
-
-10 | P a g ewww. irlanguage .com
 player called the goaltender. However, some players can shoot the puck very suddenly
 and with great power.
 Sometimes, the sport of ice hockey can be quite rough. Players try to take the puck from
@@ -661,9 +634,9 @@ In previous generations, ice hockey was considered a sport for men and boys only
 However, in recent years, women and girls have been playing hockey much more
 frequently than in the past. Not only do many girls enjoy playing hockey for fun, but now
 women's hockey is officially a sport at the winter Olympics.
-------------------------------------------------------------------------------------------------------------------------
-Article #9
-Chinese People in North America
+
+## 231 - Chinese People in North America
+
 In recent years, many people have moved to North America from China, but many people
 do not know that Chinese people have a long history in Canada and the United States.
 During the nineteenth century, both Canada and the United States were rapidly
@@ -694,16 +667,14 @@ North America. Later, the governments of Canada and the United States made Chine
 immigration illegal.
 Eventually, the people of Canada and the United States realized that their laws had been
 unfair. They changed the rules so that Chinese people could immigrate in the same way
-
-11 | P a g ewww. irlanguage .com
 that people from other countries could do so. In recent decades, many Chinese people
 have moved to North America, and have formed a very lively and successful community.
 Many cities, such as Toronto, Vancouver, San Francisco, and New York, have been
 enriched by Chinese culture. Chinese people are now very prominent in North America,
 just as they were many years ago.
-------------------------------------------------------------------------------------------------------------------------
-Article #10
-The History of the English Language
+
+## 232 - The History of the English Language
+
 Most people know that the English language is spoken by many millions of people
 around the world. However, few people are aware of the history of the English language.
 Today, English is one language, but in some ways it is a mixture of many different
@@ -739,11 +710,9 @@ America from various countries of Europe. Also, many more words have been adopte
 from the Native languages of North America, Australia, and the Pacific, and from the
 languages of peoples in Africa and Asia. All of these words have made English a very
 interesting language!
-------------------------------------------------------------------------------------------------------------------------
-Article #11
-African Slavery in the Americas
 
-12 | P a g ewww. irlanguage .com
+## 233 - African Slavery in the Americas
+
 One of the most tragic parts of the history of North and South America is the period of
 African slavery. For hundreds of years, many people were taken from Africa, by force, to
 work in the fields of many different countries in North and South America.
@@ -781,17 +750,15 @@ generations, and there was much racial prejudice against African people even whe
 slavery ended. However, some have achieved success despite these disadvantages.
 Today, the people of African background in North and South America are a very
 important part of the population in many countries.
-------------------------------------------------------------------------------------------------------------------------
-Article #12
-Worries About Physical Appearance
+
+## 234 - Worries About Physical Appearance
+
 Most people would like to have an attractive physical appearance, but some people
 become very worried about the way they look. This can sometimes lead them to do
 things that are unhealthy.
 For example, many women believe that they must be very thin in order to be attractive.
 They see pictures of fashion models who are very thin and then believe that an attractive
 woman must look the same way. However, many men prefer the appearance of women
-
-13 | P a g ewww. irlanguage .com
 who are not so thin.
 In order to become thin, some women try to reduce the amount of food that they eat.
 When this is taken to an extreme, a woman might eat far too little food to remain healthy.
@@ -820,9 +787,9 @@ and that they do unhealthy things to change the way they look. Of course, everyo
 should try to be healthy, but people must also learn to accept their physical appearance.
 Many different body types can be attractive, and there is no single ideal body type. There
 is no need to use unnatural methods of changing one's body.
-------------------------------------------------------------------------------------------------------------------------
-Article #13
-Physical Fitness
+
+## 235 - Physical Fitness
+
 In modern society, many people find that they do not get very much exercise. They travel
 by bus, train, or car, and they can move up or down in elevators. They have machines
 that do most of the heavy work that was once done by people. However, exercise is
@@ -839,8 +806,6 @@ exercise machines to develop their cardio-vascular fitness. But many people impr
 their cardio-vascular fitness by playing recreational sports, such as tennis or soccer, or
 by dancing vigorously. By having good cardio-vascular fitness, one is less likely to suffer
 from heart disease. Of course, there is one way to improve cardio-vascular fitness that
-
-14 | P a g ewww. irlanguage .com
 does not involve exercise: stop smoking!
 Another important aspect of physical fitness is called flexibility. Flexibility refers to one's
 ability to stretch comfortably. For example, a healthy person should be able to touch his
@@ -860,9 +825,9 @@ Before starting to do any exercises, it is a good idea to have a medical check-u
 people do not want to exercise because they think it will be too much work. However,
 many people find that they feel very good when they exercise. Exercising can be an
 enjoyable and fun way to maintain health and fitness.
-------------------------------------------------------------------------------------------------------------------------
-Article #14
-The History of Trial By July
+
+## 236 - The History of Trial By July
+
 In most English-speaking countries, a person who is accused of a crime has the right to
 a "trial by jury." In a trial by jury, the guilt or innocence of the accused person is decided
 by a group of 12 people, called jurors, who must listen to the evidence about the case.
@@ -887,8 +852,6 @@ opinions of twelve honest men who knew about the crime, the victim, and the accu
 person. This was the beginning of trial by jury in English-speaking countries, and the
 method soon became very popular. People trusted this new method much more than
 they trusted the old methods.
-
-15 | P a g ewww. irlanguage .com
 Later, the system of trial by jury changed somewhat. Instead of having a jury of twelve
 men and women who knew about the crime, juries were chosen so that the twelve people
 did not know anything about the crime. This change ensures that the jurors do not have
@@ -898,9 +861,9 @@ Today, citizens in many countries are called occasionally for jury duty. This ca
 inconvenient for people who are busy with their work and family life. However, many men
 and women are willing to serve on juries because of a feeling of responsibility to society.
 The use of juries in criminal cases helps to ensure that justice is done.
-------------------------------------------------------------------------------------------------------------------------
-Article #15
-Benjamin Franklin
+
+## 237 - Benjamin Franklin
+
 Benjamin Franklin was one of the most famous people in American history. He was never
 a President of the United States, but he made great achievements in many areas of life,
 including business, literature, science, and politics.
@@ -934,11 +897,9 @@ and he died in 1790.
 Today, many Americans still admire the brilliant achievements of Benjamin Franklin, who
 did so much to improve people's lives. The picture of Benjamin Franklin can be seen on
 the American hundred-dollar bill.
-------------------------------------------------------------------------------------------------------------------------
 
-16 | P a g ewww. irlanguage .com
-Article #16
-Preservation of Forests
+## 238 - Preservation of Forests
+
 Many thousands of years ago, much of the world's land area was covered in forests.
 Since that time, people have needed to clear the forests by cutting down the trees in
 order to make room for their farms and cities. Today, forests are still being cleared, and
@@ -974,8 +935,8 @@ farming.
 It is a difficult challenge to provide opportunities for poor people of these countries, and
 to protect the forests at the same time. However, it is very important that this challenge
 be met successfully because the forests will be needed by future generations of people.
-------------------------------------------------------------------------------------------------------------------------
-Article #17
+
+## 239
 Violence on Television
 Nowadays, the issue of violence on television is often debated. Many people are
 concerned that the images of violent acts might cause the viewers to become more
@@ -984,8 +945,6 @@ television programs. Other people feel that individuals should be able to choose
 they want to watch on TV. Many of these people believe that violent television is unlikely
 to affect people's behaviour.
 One of the concerns that some people have about violent TV is that viewers might imitate
-
-17 | P a g ewww. irlanguage .com
 aggressive acts. For example, consider a TV program that shows professional wrestlers.
 Some people believe that children who watch the program might copy the actions of the
 wrestlers and that this could lead to serious injuries. As another example, consider a TV
@@ -1013,9 +972,9 @@ The issue of violence on television is difficult because it is a conflict betwee
 safety and individual freedom. Some people feel that violent TV should be restricted
 because it might have harmful effects on society, but other people feel that individuals
 should be free to watch the programs that they like.
-------------------------------------------------------------------------------------------------------------------------
-Article #18
-The Inuit
+
+## 240 - The Inuit
+
 Not many people would want to live in the Arctic areas of northern Canada, Alaska, and
 Greenland. In these places, the summers are very short, and the winters are extremely
 cold and dark. However, there are some people who have made this land their home for
@@ -1033,8 +992,6 @@ survive in a place where fruits and vegetables were not available. In previous t
 Inuit were known as the "Eskimos," which means "people who eat raw meat." However,
 the Inuit did not like this name.
 The Inuit invented many useful tools for surviving in the cold, northern areas. They
-
-18 | P a g ewww. irlanguage .com
 sewed warm clothing from the furs and skins of the animals they hunted. For
 transportation, they used dogs, which could pull them in sleds across the snow. For
 making heat and light, they used lamps that burned the fat and oil of whales.

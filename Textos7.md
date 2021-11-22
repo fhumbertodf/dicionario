@@ -1,4 +1,4 @@
-## 266 - Making Cookies
+## 181 - Making Cookies
 
 >*Ummmm. Something smells good! My friend's mom is making cookies. They are
 chocolate chip, my favourite! I think I'll go home and ask my mom if we can make
@@ -20,7 +20,7 @@ The buzzer rings. We take the cookies out. Oh, do they look good! We don't even 
 them to cool down. Both Mom and I get a big glass of cold milk and two big warm
 cookies each. Yum! Yum! Want to join us?!*
 
-## 267 - Stars in the Midnight Sky
+## 182 - Stars in the Midnight Sky
 
 >*"Twinkle, twinkle, little star, how I wonder what you are; up above the world so high, like
 a diamond in the sky, twinkle, twinkle little star." This is a little poem/song I always say
@@ -42,8 +42,8 @@ to join them in their secret dance? I wonder what it would be like to see a star
 Would it look like the moon? Maybe one day when I am older, I will go up in a rocket ship
 and visit the dancing stars in the midnight sky!*
 
-Article #68
-Music
+## 183 - Music
+
 A song comes on the radio. My lips start to move, singing along. My fingers start to snap;
 my feet begin to tap. The music sinks deep into my soul. I listen to the music as it fills my
 brain, and I remember when I used to sing. I sang in front of huge crowds. I loved it when
@@ -62,13 +62,11 @@ listen to pop, rock, classical and some country. As you can see, I like many typ
 music. I have seen musicals, too, like Phantom of the Opera and Les Miserables. Those
 musicals were amazing. There were such bright costumes and stage sets, not to mention
 the wonderful songs and singing.
-
-48 | P a g ewww. irlanguage .com
 Music has been on this earth since the beginning of time, and it touches every one in a
 different way. I know it has not only touched me, but is a big part of my very being!
-------------------------------------------------------------------------------------------------------------------------
-Article #69
-First Data
+
+## 184 - First Data
+
 "Ring, ring." The phone is ringing. My mother answers it. "Hello," she says. It is for me.
 When I pick up the phone, I hear a boy's voice. It is a boy I go to school with.
 This boy is very nice, and he is cute, too. He asks me if I want to go out for dinner with
@@ -89,9 +87,9 @@ we leave the restaurant, we go for a walk by the river. It is a beautiful night.
 I am enjoying my first date. I am laughing and having fun. It is time for us to go home. So
 my date takes me home. I smile and thank him for the great time. I hope he'll ask me out
 again!
-------------------------------------------------------------------------------------------------------------------------
-Article #70
-University
+
+## 185 - University
+
 It's time to sign up for school. This year Natalie is going to Brock University. She has
 never been to university before. She is a little bit scared. She hopes she meets nice, new
 friends. Natalie stood in line to get her picture taken. The picture was put on a card. The
@@ -109,14 +107,12 @@ building and went on her way to try and find her classroom.
 Natalie got through her classes and met a lot of new people, nice people. Her classes
 seemed to go by really fast, and the day went by even faster.
 When Natalie got home she was so excited. She told her mom that classes weren't all
-
-49 | P a g ewww. irlanguage .com
 that scary; the students and the teachers weren't scary either! Natalie knew that the
 school work would be hard, but she felt good about the people she had met that day. She
 knew she'd have a good year.
-------------------------------------------------------------------------------------------------------------------------
-Article #71
-School Dance
+
+## 186 - School Dance
+
 It is the first school dance that I have ever been to. All of the boys are standing on one
 side of the gymnasium, and all of the girls are on the other side. There is loud music
 playing, and I can hardly hear my friends talking.
@@ -137,9 +133,9 @@ Our teachers are making sure that we are behaving because they are watching us. 
 wonder if they want to dance. They probably are remembering their first school dance. I
 wonder if someday I'll be grown up just like the teachers and laughing at the memories of
 my first school dance? I sure hope so!
-------------------------------------------------------------------------------------------------------------------------
-Article #72
-Health
+
+## 187 - Health
+
 Our health is very important to us. People can have good jobs, money or good looks.
 However, if they become sick, those things don't mean a thing. It is wonderful to feel
 good.
@@ -157,15 +153,13 @@ muscles and bones. It gets oxygen to our brain to help us think better. It can h
 smarter!
 Doing things that we believe are right and good gives us peace inside. It makes us be
 nicer people and is good for our spirit. When we do what we know is right, it helps to
-
-50 | P a g ewww. irlanguage .com
 reduce stress, which isn't good for any part of us.
 When we take care of our body, mind, and spirit, we feel good all over and inside, too!
 What a beautiful world this would be if we could all work at doing these things for
 ourselves and also trying to be a help to others!
-------------------------------------------------------------------------------------------------------------------------
-Article #73
-Halloween (1)
+
+## 188 - Halloween (1)
+
 Ghosts, goblins, witches, princes and princesses, kings, queens, skeletons! So may of
 these "things" are walking down my street. "Oh, no! They are coming to my door!" The
 doorbell chimes, and I slowly open the door. There standing on my front porch, is a little
@@ -189,9 +183,9 @@ You need to remember to brush your teeth often, too, so you don't get cavities. 
 candy sure does taste good!
 Well, it's time to go "trick or treating." So off I go, door to door, getting yummy candy and
 hearing people say, "Oh, aren't you pretty!"
-------------------------------------------------------------------------------------------------------------------------
-Article #74
-New Year's
+
+## 189 - New Year's
+
 "Ten, nine, eight, seven, six, five, four, three, two, one! HAPPY NEW YEAR!"
 What is New Year's? Well, to me a New Year is when the date of the year changes. This
 year it is 2001, and on December 31 at midnight it will change to 2002. I wonder who
@@ -205,8 +199,6 @@ Canada and many other countries, too. You should see some of the fireworks that 
 There are many different colours. There's pink, blue, purple, yellow, green, red, even
 white, silver and gold. Fireworks make loud bangs, squeals, siren sounds, and
 sometimes all at once. There are lots of different sounds, but I can't even explain what
-
-51 | P a g ewww. irlanguage .com
 they are all like.
 Fireworks are best when it's very dark outside. They light up the whole sky! Sometimes,
 they look as though they are going to fall on you.
@@ -219,9 +211,9 @@ masks off. As midnight comes very close, everybody begins to count down, and the
 everyone yells out "Happy New Year's" and bang pots and pans or ring bells or honk
 horns. Join me in the count down on New Year's Eve. "Ten, nine, eight, seven, six, five,
 four, three, two, one - HAPPY NEW YEAR!"
-------------------------------------------------------------------------------------------------------------------------
-Article #75
-More Music
+
+## 190 - More Music
+
 I like music. I have always liked music. Even when I was very young, I liked music. I like
 to listen to it, and to make it. When I was a little girl, listening to nice music would
 sometimes make me cry! That may seem silly, but the music was so pretty that I cried!
@@ -249,12 +241,10 @@ much, if anything, and go on to be very good at creating music.
 I still love listening to music also. Music makes me happy when I am sad. It makes me
 want to dance or sing when I am already happy. Mostly, music just makes me glad that I
 am me and that music is alive in me.
-------------------------------------------------------------------------------------------------------------------------
-Article #76
-Babies
-My baby is asleep in my arms. Her soft cheek rests against my chest, while her sweet
 
-52 | P a g ewww. irlanguage .com
+## 191 - Babies
+
+My baby is asleep in my arms. Her soft cheek rests against my chest, while her sweet
 breath puffs gently on my skin. Her tiny lips are puckered a bit. Her little eyelids flutter.
 I wonder what she dreams about as she sleeps. Does she dream? I have heard her
 whimper in her sleep. Sometimes she awakens with a scream. What is so scary in her
@@ -289,9 +279,9 @@ baby." However, to a mother, even an adult child is still her baby!
 My baby is not perfect. Sometimes she gets mad or whines for no reason. But, to me, she
 is still beautiful. Her smiles more than make up for her tears. Her hugs wipe away when
 she's been bad. I intend to cherish each moment with my baby while I can!
-------------------------------------------------------------------------------------------------------------------------
-Article #77
-Bed Time
+
+## 192 - Bed Time
+
 I am almost nine years old and my bed time is 8:30 p.m. I think that is so unfair! I think I
 am old enough to stay up until at least 9:00 p.m. My parents say that I have to go to bed
 early because I have school the next day. I can't wait until I am grown up and can stay
@@ -302,8 +292,6 @@ downstairs, we read together. Sometimes Mom will read to us, and sometimes we wi
 read to her. If Dad is not working, he will sometimes read, too. Mostly it is Mom we read
 with though. When we read, Mom helps us with words we cannot read. We have to try
 and sound the word out, but if we are really stuck, she will help us. If we come to a place
-
-53 | P a g ewww. irlanguage .com
 in our reading where we do not understand the meaning of what was written, we stop
 reading and look at Mom. She will tell us what it means or help us figure it out on our
 own.
@@ -320,9 +308,9 @@ will happen in the future, about our friends and all sorts of other important th
 awhile, we get so tired, we just fall asleep in the middle of talking!
 Even though we go to bed at 8:30 p.m., we talk so long we don't go to sleep until about
 l0:00 p.m. I still do not know why I have to go to bed so early when I am not even tired!
-------------------------------------------------------------------------------------------------------------------------
-Article #78
-Why Do I Like Mathematics?
+
+## 193 - Why Do I Like Mathematics?
+
 Sometimes there is a problem in life that has no answer. Perhaps a child has trouble
 learning. Perhaps someone becomes ill. Perhaps there was love, but now there is conflict.
 These problems are hard to solve. There is no single answer. Many people have opinions
@@ -348,11 +336,9 @@ is like having a whole lot of dirty dishes after supper. Applying math is like w
 sorting the dishes and putting them back into the cupboard.
 Math is a powerful tool. Math should be our friend, and we will find more ways to use it to
 better our lives.
-------------------------------------------------------------------------------------------------------------------------
 
-54 | P a g ewww. irlanguage .com
-Article #79
-My Sister's Visit to Canada
+## 194 - My Sister's Visit to Canada
+
 My sister had never been to Canada but came for a visit last April. I picked her up at the
 airport in Toronto and drove her through the traffic and multilane highways, past the
 grape vines and peach trees to Niagara Falls, where I live. She was very tired from the
@@ -381,9 +367,9 @@ was different.
 The days passed quickly, and soon it was time to take her back to the airport. Some of
 the trees now had leaves; some of the tulips were now blooming. It was hard to say
 goodbye to my sister. I hope we can visit again soon.
-------------------------------------------------------------------------------------------------------------------------
-Article #80
-A Summer Sunday
+
+## 195 - A Summer Sunday
+
 Today the sun was warm; the sky was blue with a few white clouds. It was a good day to
 pick strawberries; it was a good day to go to the beach.
 I drove to a pick-your-own farm where people can pick their own fruit and buy it. There
@@ -398,8 +384,6 @@ beside a lake, and across the lake about 50 km away the large city can sometimes
 seen. Today the wind blew cooler air across the lake over the people on the beach. There
 were children playing in the water. One man helped his son dig holes in the sand, and the
 water ran into the holes. One lady held her children's hands and walked down into the
-
-55 | P a g ewww. irlanguage .com
 water. Families climbed over the rocks and sat on the last rock where the water was deep.
 Teenagers rode bicycles and roller blades along the path beside the beach. Adults
 walked and ran along this path, carrying water bottles around their waists
@@ -415,9 +399,9 @@ the highway with the windows open and our hair blowing in the warm breeze. We cu
 strawberries up and made a strawberry dessert with cake and ice cream. We sat outside
 in the backyard under the maple trees with the birds singing around us and ate our
 supper. It was a perfect ending to a relaxing summer day.
-------------------------------------------------------------------------------------------------------------------------
-Article #81
-My Parents
+
+## 196 - My Parents
+
 My parents live in England, and I live in Canada. I don't see them often. They used to
 come and visit on a plane, and we would pick them up at Toronto airport. But now they
 are older and say the flight is too long for them.
@@ -447,12 +431,10 @@ fix anything that is broken in the house.
 I am very proud of my parents; they are over eighty years old and often hurt when they
 move around. But still they help other people, and they help each other. They have been
 married for over fifty years, but still my father loves my mother enough to plant roses for
-
-56 | P a g ewww. irlanguage .com
 her to cheer her up when she was ill.
-------------------------------------------------------------------------------------------------------------------------
-Article #82
-The Planets of Our Solar System
+
+## 197 - The Planets of Our Solar System
+
 The planet on which we live is called the Earth. Our planet is constantly moving around
 the sun, and each year, the Earth travels all the way around the sun. But there are many
 other planets that also travel around the sun. Together with the sun, the planets, and
@@ -483,9 +465,9 @@ gas giants. Some scientists believe that Pluto is not really a planet at all. Th
 that Pluto is the largest of many asteroids that are found at the edge of the solar system.
 The solar system is a vast place. So far, people have not travelled beyond the moon. But
 perhaps someday, human astronauts will visit the other planets of our solar system!
-------------------------------------------------------------------------------------------------------------------------
-Article #83
-Learning to Drive
+
+## 198 - Learning to Drive
+
 Each year, many young people learn to drive a car. For many people, learning to drive is
 important because the car is an important method of transportation in many places.
 Before learning to drive a car, it is important to understand the rules of the road. A
@@ -494,8 +476,6 @@ roads. Also, the student driver should know the many rules about changing lanes,
 turning, stopping, and many other aspects of driving. In addition, the driver should be
 familiar with the way the car is operated; it is important to know how to use the lights,
 signals, brakes, accelerator, and steering wheel.
-
-57 | P a g ewww. irlanguage .com
 When a person starts learning to drive, it may take some time to become skilful. It takes
 some practice to become an expert in driving a car. One must become familiar with
 steering, speeding up, and slowing down. At first, it is good to practice driving in a large
@@ -513,9 +493,9 @@ for the rules of the road by driving at a proper speed, and obeying all traffic 
 signals.
 Of course, even when one has obtained a driver's licence, it is always important to drive
 carefully and responsibly!
-------------------------------------------------------------------------------------------------------------------------
-Article #84
-Snow
+
+## 199 - Snow
+
 Snow is the white substance that falls to the ground during cold weather conditions.
 Each tiny piece of snow, called a snowflake, is a very small amount of water that has
 frozen into an unusual shape. During the winter months, huge numbers of snowflakes
@@ -541,11 +521,9 @@ Many people love the beauty of the land when it is covered by snow. The white co
 of snow over the fields and trees can give a feeling of peace and calm. If you have never
 seen snow before, you should someday experience this strange and wonderful
 substance!
-------------------------------------------------------------------------------------------------------------------------
 
-58 | P a g ewww. irlanguage .com
-Article #85
-Christmas
+## 200 - Christmas
+
 In most Western countries, Christmas is the biggest holiday of the year. People gather
 with their families to celebrate this day, which occurs on December 25th each year.
 The holiday of Christmas celebrates the birth of Jesus Christ. In the Christian religion,
@@ -573,9 +551,9 @@ than Christmas itself-the people of Europe celebrated the beginning of the winte
 in this way even before Christianity reached Europe.
 Christmas is certainly one of the most important and most enjoyed holidays in Western
 countries.
-------------------------------------------------------------------------------------------------------------------------
-Article #86
-Thanksgiving
+
+## 201 - Thanksgiving
+
 An important holiday in North America is held during the fall, or autumn, season of the
 year. This holiday is called Thanksgiving. At this time of year, people join with their
 relatives to reflect upon their good fortune.
@@ -591,17 +569,15 @@ their lives.
 Today, the tradition of Thanksgiving celebration continues. Families gather to eat a large
 bird called a turkey. They also eat pumpkin pie. This is a sweet dessert that is made from
 a large orange vegetable that grows on the ground.
-
-59 | P a g ewww. irlanguage .com
 In the United States, Thanksgiving is celebrated on the fourth Thursday of November. But
 the following day, Friday, is also a holiday, and then comes the weekend. In Canada,
 Thanksgiving is celebrated on the second Monday of October. The reason for the earlier
 celebration in Canada is that the weather is colder than in the United States. This means
 that the harvest happens earlier in Canada, so Thanksgiving is held at an earlier date. But
 in both countries, Thanksgiving is a very pleasant time of year.
-------------------------------------------------------------------------------------------------------------------------
-Article #87
-Halloween (2)
+
+## 202 - Halloween (2)
+
 The holiday called Halloween is celebrated on October 31st of each year. Halloween is
 not an official holiday. Everyone goes to work or to school on Halloween, just as on any
 other day. But Halloween is still one of the holidays that children like the most.
@@ -627,9 +603,9 @@ pumpkin, so that the vegetable seems to glow in the dark. This strange-looking f
 called a "jack-o-lantern." On Halloween evening, one can see many of these jack-o-
 lanterns, some of which are very beautifully carved.
 Halloween is truly a fun and interesting holiday, especially for children!
-------------------------------------------------------------------------------------------------------------------------
-Article #88
-Easter
+
+## 203 - Easter
+
 Traditionally, Easter has been one of the most important holidays of the Christian religion.
 For Christians, the Easter holiday celebrates the death of Jesus Christ, who died for the
 benefit of all people. The exact date when Easter is celebrated is different each year, but
@@ -639,8 +615,6 @@ the spring season. The first of these days is called Good Friday. Christians rec
 Good Friday as the day when Jesus suffered and died on behalf of humanity.
 The second of these days is called Easter Sunday. Easter Sunday occurs two days after
 Good Friday. Christians celebrate Easter Sunday as the day when Jesus rose from the
-
-60 | P a g ewww. irlanguage .com
 dead and went to Heaven. For Christians, Easter is the most solemn holiday of the year.
 Many people attend church services on Good Friday and on Easter Sunday.
 Easter is also a time for celebration. Some Easter traditions come from old springtime
@@ -655,9 +629,9 @@ On the morning of Easter Sunday, the children must search throughout the house, 
 these many hidden treats!
 The Easter holiday is an important time, both as a religious holiday and as a celebration
 of springtime.
-------------------------------------------------------------------------------------------------------------------------
-Article #89
-My Friends
+
+## 204 - My Friends
+
 Two of my best friends are named John and Jane. John and Jane are related to each
 other. In fact, they are brother and sister. Not only are they brother and sister, but they
 are also twins. Their mother gave birth to them only a few minutes apart.
@@ -681,13 +655,11 @@ I went to Jane's wedding, and last year, I went to John's wedding. I think I wil
 always be friends with John and Jane.
 Having friends is very nice. I am very lucky to have had good friends such as John and
 Jane.
-------------------------------------------------------------------------------------------------------------------------
-Article #90
-Hobbies
+
+## 205 - Hobbies
+
 Hobbies are activities that people do in their spare time, for the sake of enjoyment. A
 hobby usually involves work of some kind, but the work is fun for the person who does it.
-
-61 | P a g ewww. irlanguage .com
 Some people enjoy their hobbies very much and like to spend much time on those
 hobbies.
 There are many different hobbies that people enjoy. One of the most popular hobbies is
@@ -709,9 +681,9 @@ stamps, and some people collect coins. It can be very satisfying to find the mis
 of one's collection, especially when the stamps or coins are very rare.
 Of course, these are just a few of the many hobbies that people enjoy. Do you have any
 hobbies that you enjoy?
-------------------------------------------------------------------------------------------------------------------------
-Article #91
-Life in Outer Space?
+
+## 206 - Life in Outer Space?
+
 People have often wondered about whether or not there is life beyond the planet Earth.
 For years, the idea of intelligent life on other planets has been very popular. Many books
 and movies tell stories of what those forms of life might be like.
@@ -735,10 +707,8 @@ So far, it is impossible to know whether or not there are intelligent beings on 
 planets. But even if those beings do exist, it seems very unlikely that we will ever meet
 them.
 
-62 | P a g ewww. irlanguage .com
-------------------------------------------------------------------------------------------------------------------------
-Article #92
-Reading the Newspaper
+## 207 - Reading the Newspaper
+
 I often enjoy reading the newspaper. In my city, there are three different newspapers, and
 I look at different newspapers on different days. I find that each section of a newspaper
 has some interesting information.
@@ -764,9 +734,9 @@ allows people to advertise about things that they want to buy or sell. It also g
 about job openings.
 Reading the newspaper is surely a good way to keep informed about many different
 events in the world around us.
-------------------------------------------------------------------------------------------------------------------------
-Article #93
-Summer Jobs
+
+## 208 - Summer Jobs
+
 In North America, many young people attend high school, college, or university. But
 during the summer months, most of those students work at a summer job.
 For most students, there are no classes during the months of July and August, and
@@ -783,17 +753,15 @@ on farms. There are other students who find jobs mowing lawns or collecting tras
 Quite a few students work in stores. Some of these students have jobs as cashiers, and
 some have jobs putting products on store shelves. Other students work in restaurants,
 as waiters or as cooks.
-
-63 | P a g ewww. irlanguage .com
 Other students work in offices. Some of them work as assistants for other employees.
 Their tasks might include typing letters, programming computers, or delivering mail.
 Some students enjoy their summer jobs very much, and they find those jobs to be a
 pleasant break from studying. Other students do not really enjoy summer jobs, but find
 their jobs to be a nice way to make new friends. But nearly all students who have
 summer jobs are pleased to have the chance to earn some extra money.
-------------------------------------------------------------------------------------------------------------------------
-Article #94
-Eating Out
+
+## 209 - Eating Out
+
 Many people enjoy the experience of going out to eat at a restaurant. It is enjoyable to eat
 one's favourite foods, or to try some entirely new food. Going out to a restaurant is also
 fun because it allows a change from the usual routine of eating at home.
@@ -822,17 +790,15 @@ Other restaurants specialize in foods that belong to a certain nationality. For 
 many restaurants specialize in Italian, Mexican, Chinese, Indian, or Thai food.
 Eating out at a restaurant can be a fun and tasty experience. What is your favourite kind
 of restaurant?
-------------------------------------------------------------------------------------------------------------------------
-Article #95
-Radio Stations
+
+## 210 - Radio Stations
+
 When I drive in my car, I like to turn on the radio. By listening to the radio, I can enjoy
 music and learn the latest news while I am travelling from one place to another. Of
 course, you can also listen the radio at home, or even at work. Listening to the radio is a
 popular activity for many people, and each city has many different radio stations.
 There are many different kinds of radio stations. Some radio stations provide news and
 information. Other radio stations have a "talk" format, where listeners can call the radio
-
-64 | P a g ewww. irlanguage .com
 station's experts, to discuss political affairs or to ask for personal advice.
 Although there are many radio stations that provide news and opinions, most radio
 stations are mainly devoted to playing music of some kind. For example, some radio
