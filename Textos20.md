@@ -2,6 +2,10 @@
 
 >*Dorothy lived in the midst of the great Kansas prairies, with Uncle Henry, who was a farmer, and Aunt Em, who was the farmer’s wife. Their house was small, for the lumber to build it had to be carried by wagon many miles. There were four walls, a floor and a roof, which made one room; and this room contained a rusty looking cookstove, a cupboard for the dishes, a table, three or four chairs, and the beds. Uncle Henry and Aunt Em had a big bed in one corner, and Dorothy a little bed in another corner. There was no garret at all, and no cellar--except a small hole dug in the ground, called a cyclone cellar, where the family could go in case one of those great whirlwinds arose, mighty enough to crush any building in its path. It was reached by a trap door in the middle of the floor, from which a ladder led down into the small, dark hole.*
 
+>*Dorothy vivia no meio das grandes pradarias do Kansas, com seu tio Henry, que cuidava de uma fazenda, e a tia Em, mulher dele. A casa em que eles moravam era pequena, porque a madeira para a sua construção precisava ser trazida de carroça desde muito longe. Eram quatro paredes, um chão e um teto, que formavam uma única peça; e nesta peça ficavam um fogão a lenha com uma aparência bem enferrujada, um armário para os pratos, uma mesa, três
+ou quatro cadeiras e as camas. O tio Henry e a tia Em ocupavam uma cama de casal num dos cantos, e Dorothy, uma cama menor em outro. A casa não tinha sótão e nem porão – tirante um buraco não muito grande cavado na terra, que chamavam de abrigo de ciclone, onde a família poderia se esconder para o caso de aparecer um desses imensos redemoinhos de vento, tão fortes que são capazes de esmagar qualquer casa ou construção que encontrem no caminho. Ao
+abrigo se chegava por um alçapão que ficava no meio do piso da casa; do alçapão descia uma escada até o abrigo estreito e escuro.*
+
 >*When Dorothy stood in the doorway and looked around, she could
 see nothing but the great gray prairie on every side. Not a tree
 nor a house broke the broad sweep of flat country that reached to
