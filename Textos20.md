@@ -10,26 +10,20 @@ abrigo se chegava por um alçapão que ficava no meio do piso da casa; do alçap
 
 Quando Dorothy chegava à porta de casa e olhava em volta, só via a pradaria cinzenta de todos os lados. Nenhuma árvore ou casa interrompia a paisagem totalmente plana que, em todas as direções, se estendia até onde a vista alcança. O sol tinha transformado a terra cultivada numa extensão sempre igual, toda cortada por rachaduras. Nem mesmo a relva era verde, porque o sol queimou as pontas das folhas e elas ficaram da mesma cor cinza que se via em toda parte. A casa antes era pintada, mas o sol tinha descascado a tinta e as chuvas tinham lavado o que sobrou, e agora a casa era tão cinzenta e sem cor como todo o resto.
 
->*When Aunt Em came there to live she was a young, pretty wife.
-The sun and wind had changed her, too. They had taken the sparkle
-from her eyes and left them a sober gray; they had taken the red
-from her cheeks and lips, and they were gray also. She was thin
-and gaunt, and never smiled now. When Dorothy, who was an orphan,
-first came to her, Aunt Em had been so startled by the child’s
-laughter that she would scream and press her hand upon her heart
-whenever Dorothy’s merry voice reached her ears; and she still
-looked at the little girl with wonder that she could find anything
-to laugh at.
-Uncle Henry never laughed. He worked hard from morning till
-night and did not know what joy was. He was gray also, from his
-long beard to his rough boots, and he looked stern and solemn,
-and rarely spoke.
-7It was Toto that made Dorothy laugh, and saved her from
-growing as gray as her other surroundings. Toto was not gray; he
-was a little black dog, with long silky hair and small black eyes
-that twinkled merrily on either side of his funny, wee nose. Toto
-played all day long, and Dorothy played with him, and loved him dearly.
-Today, however, they were not playing. Uncle Henry sat upon
+>*When Aunt Em came there to live she was a young, pretty wife. The sun and wind had changed her, too. They had taken the sparkle from her eyes and left them a sober gray; they had taken the red from her cheeks and lips, and they were gray also. She was thin and gaunt, and never smiled now. When Dorothy, who was an orphan, first came to her, Aunt Em had been so startled by the child’s laughter that she would scream and press her hand upon her heart
+whenever Dorothy’s merry voice reached her ears; and she still looked at the little girl with wonder that she could find anything to laugh at.*
+
+Quando tia Em veio morar ali, era jovem e bonita. Mas ela também foi modificada pelo sol e pelo vento, que apagaram a centelha que brilhava nos seus olhos, hoje de um cinza neutro. Desbotaram o rubor das suas faces e dos seus lábios, que também ficaram acinzentados. Era magra e seca, e não sorria mais. Quando Dorothy, que era órfã, chegou à casa dela, tia Em ficava tão surpresa com o riso da menina que gritava e levava a mão ao peito toda vez que a voz alegre de Dorothy chegava aos seus ouvidos; e olhava admirada para a menina, ao ver que ela conseguia encontrar algum motivo para rir.
+
+>*Uncle Henry never laughed. He worked hard from morning till night and did not know what joy was. He was gray also, from his long beard to his rough boots, and he looked stern and solemn, and rarely spoke.*
+
+Já o tio Henry nunca ria. Trabalhava duro do amanhecer até a noite, e não tinha ideia do que significava a alegria. Também era todo cinza, da longa barba grisalha às botas grosseiras que usava. Tinha uma aparência solene e severa, e quase nunca dizia nada.
+
+>*It was Toto that made Dorothy laugh, and saved her from growing as gray as her other surroundings. Toto was not gray; he was a little black dog, with long silky hair and small black eyes that twinkled merrily on either side of his funny, wee nose. Toto played all day long, and Dorothy played with him, and loved him dearly.*
+
+Era Totó quem fazia Dorothy rir, e não deixava a menina crescer tão cinzenta quanto tudo que existia à sua volta. Totó não era cinza; era um cachorrinho preto, com o pelo longo e sedoso e olhinhos negros que reluziam satisfeitos dos dois lados de seu focinho preto, miúdo e engraçado. Totó brincava o dia inteiro; Dorothy brincava com ele e adorava o cachorrinho.
+
+>*Today, however, they were not playing. Uncle Henry sat upon
 the doorstep and looked anxiously at the sky, which was even
 grayer than usual. Dorothy stood in the door with Toto in her
 arms, and looked at the sky too. Aunt Em was washing the dishes.
