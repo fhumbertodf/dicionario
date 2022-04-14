@@ -97,8 +97,8 @@ Tables of contents
 2515. [other]() /adj./ outro, distinto, diferente
 2516. [otherwise]() /adv./ de outra forma
 2517. [ought to]() /mod. verb./ dever
-2518. [ourposs.]() /adj./ nosso-a, nossos-as
-2519. [oursposs.]() /pron./ nosso-s
+2518. [our]() /poss./adj./ nosso-a, nossos-as
+2519. [ours]() /poss./pron./ nosso-s
 2520. [ourselvesrefl.]() /pron./ nós mesmos, nos
 2521. [out]() /prep. / adv./ fora
 2522. [outlet]() /subs./ saída, brexó
