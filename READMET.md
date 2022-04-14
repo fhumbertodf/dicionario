@@ -101,8 +101,8 @@ Tables of contents
 3654. [the]() /art./ o-os, a-as
 3655. [theater]() /subs./ teatro
 3656. [theatre]() /subs./ teatro
-3657. [theirposs.]() /adj./ deles, seus
-3658. [theirsposs.]() /pron./ deles, dos seus, das suas
+3657. [their]() /poss./adj./ deles, seus
+3658. [theirs]() /poss./pron./ deles, dos seus, das suas
 3659. [thempers.]() /pron./ eles, com eles
 3660. [theme]() /subs./ tema
 3661. [themselvesrefl.]() /pron./ eles mesmos, elas mesmas
