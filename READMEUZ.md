@@ -294,8 +294,8 @@ Tables of contents
 4117. [young]() /adj./ jovem
 4118. [younger]() /comp. adj./ mais jovem
 4119. [youngest]() /superl. adj./ o mais jovem
-4120. [yourposs.]() /adj./ seu, teu, seus, sua, tua, suas, teus, tuas
-4121. [yoursposs.]() /pron./ seu, teu
+4120. [your]() /poss./adj./ seu, teu, seus, sua, tua, suas, teus, tuas
+4121. [yours]() /poss./pron./ seu, teu
 4122. [yourselfrefl.]() /pron./ você mesmo, si mesmo
 4123. [yourselvesrefl.]() /pron./ vocês mesmos
 4124. [Yugoslavian]() /subs. / adj./ iuguslavo
