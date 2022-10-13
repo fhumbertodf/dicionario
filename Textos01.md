@@ -40,14 +40,14 @@ Each child yells back "Here." 0.03
 Mr. Parker teaches them about letters. 0.25  
 Mr. Parker teaches them about numbers. 0.25  
 At 1015 A.M. the students have recess. 0.09  
-Recess is fun. 0.016  
+Recess is fun. 0.02  
 The students get to play and eat. 0.03  
 At 1030 A.M. the students go to gym class. 0.09  
 At 1115 A.M. the students return to Mr. Parker's classroom. 0.36  
 Mr. Parker tells the students to sit on the carpet. 0.28  
 Mr. Parker reads the students a story. 0.27  
 Mr. Parker teaches the students a song. 0.27  
-The lunch bell rings. 0.047  
+The lunch bell rings. 0.05  
 Jessica's first day of school is over. 0.20  *
 
 ('Jessica',8), ('Mr.',8), ('Parker',8), ('student',7), ('A.M.',4), ('school',3), ('teach',3), ('day',2), ('walk',2), ('Mom',2), ('classroom',2), ('bell',2), ('ring',2), ('child',2), ('recess',2)
