@@ -26,29 +26,31 @@ We go inside for hot chocolate. 0.25  *
 
 ## 002 - Jessica's First Day of School.
 
->*Today is Jessica's first day of kindergarten.  
-Jessica and her parents walk to school.  
-Jessica's Mom walks with her to her classroom.  
-Jessica meets her teacher.  
-His name is Mr. Parker.  
-The school bell rings at 8.45 A.M..  
-Jessica hugs and kisses her Mom goodbye.  
-Jessica's Mom says "I love you."  
-At 9.00 A.M., Jessica stands for the National anthem.  
-Mr. Parker calls out children's names.  
-Each child yells back "Here."  
-Mr. Parker teaches them about letters.  
-Mr. Parker teaches them about numbers.  
-At 10:15 A.M. the students have recess.  
-Recess is fun.  
-The students get to play and eat.  
-At 10:30 A.M. the students go to gym class.  
-At 11:15 A.M. the students return to Mr. Parker's classroom.  
-Mr. Parker tells the students to sit on the carpet.  
-Mr. Parker reads the students a story.  
-Mr. Parker teaches the students a song.  
-The lunch bell rings.  
-Jessica's first day of school is over.*
+>*Today is Jessica's first day of kindergarten. 0.17  
+Jessica and her parents walk to school. 0.20  
+Jessica's Mom walks with her to her classroom. 0.19  
+Jessica meets her teacher. 0.14  
+His name is Mr. Parker. 0.25  
+The school bell rings at 8.45 A.M.. 0.09  
+Jessica hugs and kisses her Mom goodbye. 0.17  
+Jessica's Mom says "I love you." 0.17  
+At 9.00 A.M. Jessica stands for the National anthem. 0.20  
+Mr. Parker calls out children's names. 0.25  
+Each child yells back "Here." 0.03  
+Mr. Parker teaches them about letters. 0.25  
+Mr. Parker teaches them about numbers. 0.25  
+At 1015 A.M. the students have recess. 0.09  
+Recess is fun. 0.016  
+The students get to play and eat. 0.03  
+At 1030 A.M. the students go to gym class. 0.09  
+At 1115 A.M. the students return to Mr. Parker's classroom. 0.36  
+Mr. Parker tells the students to sit on the carpet. 0.28  
+Mr. Parker reads the students a story. 0.27  
+Mr. Parker teaches the students a song. 0.27  
+The lunch bell rings. 0.047  
+Jessica's first day of school is over. 0.20  *
+
+('Jessica',8), ('Mr.',8), ('Parker',8), ('student',7), ('A.M.',4), ('school',3), ('teach',3), ('day',2), ('walk',2), ('Mom',2), ('classroom',2), ('bell',2), ('ring',2), ('child',2), ('recess',2)
 
 ## 003 - My Flower Garden.
 
