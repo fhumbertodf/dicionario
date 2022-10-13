@@ -34,16 +34,16 @@ His name is Mr. Parker. 0.25
 The school bell rings at 8.45 A.M.. 0.09  
 Jessica hugs and kisses her Mom goodbye. 0.17  
 Jessica's Mom says "I love you." 0.17  
-At 9.00 A.M. Jessica stands for the National anthem. 0.20  
+At 9:00 A.M., Jessica stands for the National anthem. 0.20  
 Mr. Parker calls out children's names. 0.25  
 Each child yells back "Here." 0.03  
 Mr. Parker teaches them about letters. 0.25  
 Mr. Parker teaches them about numbers. 0.25  
-At 1015 A.M. the students have recess. 0.09  
+At 10:15 A.M., the students have recess. 0.09  
 Recess is fun. 0.02  
 The students get to play and eat. 0.03  
-At 1030 A.M. the students go to gym class. 0.09  
-At 1115 A.M. the students return to Mr. Parker's classroom. 0.36  
+At 10:30 A.M., the students go to gym class. 0.09  
+At 11:15 A.M., the students return to Mr. Parker's classroom. 0.36  
 Mr. Parker tells the students to sit on the carpet. 0.28  
 Mr. Parker reads the students a story. 0.27  
 Mr. Parker teaches the students a song. 0.27  
