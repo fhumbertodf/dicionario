@@ -20,7 +20,7 @@ My Mom starts to shovel the snow. 1.38
 My sister and I make snow angels. 1.75  
 My sister and I throw snowballs. 0.88  
 It starts to snow again. 1.00  
-We go inside for hot chocolate. 0.25  *
+We go inside for hot chocolate. 0.25*
 
 ('snow',8), ('sister',6), ('mom',6), ('today',2), ('shovel',2), ('hat',2), ('mitten',2), ('scarf',2), ('zipper',2), ('jacket',2), ('start',2)
 
@@ -48,7 +48,7 @@ Mr. Parker tells the students to sit on the carpet. 0.28
 Mr. Parker reads the students a story. 0.27  
 Mr. Parker teaches the students a song. 0.27  
 The lunch bell rings. 0.05  
-Jessica's first day of school is over. 0.20  *
+Jessica's first day of school is over. 0.20*
 
 ('Jessica',8), ('Mr.',8), ('Parker',8), ('student',7), ('A.M.',4), ('school',3), ('teach',3), ('day',2), ('walk',2), ('Mom',2), ('classroom',2), ('bell',2), ('ring',2), ('child',2), ('recess',2)
 
@@ -493,7 +493,9 @@ You can make the beds. 0.00
 The beds have to be changed too. 0.00  
 They need to have clean sheets put on them. 1.45  
 There are just so many things to do. 0.00  
-Household chores take up a lot of time. 0.18  *
+Household chores take up a lot of time. 0.18*
+
+('need',11), ('clean',5), ('clothe',4), ('wash',3), ('floor',2), ('furniture',2), ('dry',2), ('dish',2), ('bed',2)
 
 ## 020 - Working Outside.
 
