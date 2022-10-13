@@ -1,28 +1,28 @@
 ## 001 - First Snow Fall.
 
->*Today is November 26th. 0.250
-It snowed all day today. 0.375
-The snow is beautiful. 1.125
-The snow finally stopped. 1.000
-My sister and I are excited. 0.875
-My Mom doesn't like the snow. 1.250
-My Mom has to shovel the drive way. 0.625
-My sister and I get to play. 0.875
-I put on my hat and mittens. 0.250
-My Mom puts on my scarf. 0.375
-My Mom zippers my jacket. 0.375
-My sister puts on her hat and mittens. 1.000
-My Mom puts on her scarf. 0.375
-My Mom zippers her jacket. 0.375
-My sister and I go outside. 0.750
-We begin to make a snow man. 1.250
-My Mom starts to shovel the snow. 1.375
-My sister and I make snow angels. 1.750
-My sister and I throw snowballs. 0.875
-It starts to snow again. 1.000
-We go inside for hot chocolate. 0.250*
+>*Today is November 26th. 0.25  
+It snowed all day today. 0.38  
+The snow is beautiful. 1.13  
+The snow finally stopped. 1.00  
+My sister and I are excited. 0.88  
+My Mom doesn't like the snow. 1.25  
+My Mom has to shovel the drive way. 0.63  
+My sister and I get to play. 0.88  
+I put on my hat and mittens. 0.25  
+My Mom puts on my scarf. 0.38  
+My Mom zippers my jacket. 0.38  
+My sister puts on her hat and mittens. 1.00  
+My Mom puts on her scarf. 0.38  
+My Mom zippers her jacket. 0.38  
+My sister and I go outside. 0.75  
+We begin to make a snow man. 1.25  
+My Mom starts to shovel the snow. 1.38  
+My sister and I make snow angels. 1.75  
+My sister and I throw snowballs. 0.88  
+It starts to snow again. 1.00  
+We go inside for hot chocolate. 0.25  *
 
-('snow', 8), ('sister', 6), ('mom', 6), ('today', 2), ('shovel', 2), ('hat', 2), ('mitten', 2), ('scarf', 2), ('zipper', 2), ('jacket', 2), ('start', 2)
+('snow',8), ('sister',6), ('mom',6), ('today',2), ('shovel',2), ('hat',2), ('mitten',2), ('scarf',2), ('zipper',2), ('jacket',2), ('start',2)
 
 ## 002 - Jessica's First Day of School.
 
