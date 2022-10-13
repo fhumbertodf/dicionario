@@ -472,29 +472,28 @@ Amy gets her licence.*
 
 ## 019 - Housework.
 
->*There is always housework to do when you live in a house.  
-You have to wash the windows so that you can see outside.  
-The floors and the carpets need to be vacuumed.  
-The floors also need to be washed, and some of them need to be waxed.  
-The furniture has to be polished.  
-The bathroom has to be kept clean.  
-After you have a bath, you need to clean out the bathtub.  
-Laundry needs to be done regularly, or you will run out of clothes to wear.  
-The clothes go into the washing machine, and then they have to be dried in the dryer.  
-Sometimes, we hang the clothes out on the line to be dried.  
-Some of the clothes need to be ironed.  
-You have to buy groceries and put them away.  
-Meals need to be made.  
-You can't let the dishes pile up in the kitchen.  
-The dishes have to be washed, and the counters need to be wiped.  
-The stove needs to be cleaned, and sometimes the refrigerator and the cupboards need 
-to be cleaned out.  
-You can dust the furniture and sweep up the dirt.  
-You can make the beds.  
-The beds have to be changed too.  
-They need to have clean sheets put on them.  
-There are just so many things to do.  
-Household chores take up a lot of time.*
+>*There is always housework to do when you live in a house. 0.27  
+You have to wash the windows so that you can see outside. 0.27  
+The floors and the carpets need to be vacuumed. 1.00  
+The floors also need to be washed, and some of them need to be waxed. 2.00  
+The furniture has to be polished. 0.18  
+The bathroom has to be kept clean. 0.55  
+After you have a bath, you need to clean out the bathtub. 1.64  
+Laundry needs to be done regularly, or you will run out of clothes to wear. 0.27  
+The clothes go into the washing machine, and then they have to be dried in the dryer. 0.27  
+Sometimes, we hang the clothes out on the line to be dried. 0.18  
+Some of the clothes need to be ironed. 1.00  
+You have to buy groceries and put them away. 0.09  
+Meals need to be made. 1.00  
+You can't let the dishes pile up in the kitchen. 0.27  
+The dishes have to be washed, and the counters need to be wiped. 1.00  
+The stove needs to be cleaned, and sometimes the refrigerator and the cupboards need to be cleaned out. 1.18  
+You can dust the furniture and sweep up the dirt. 0.45  
+You can make the beds. 0.00  
+The beds have to be changed too. 0.00  
+They need to have clean sheets put on them. 1.45  
+There are just so many things to do. 0.00  
+Household chores take up a lot of time. 0.18  *
 
 ## 020 - Working Outside.
 
