@@ -179,9 +179,9 @@ What is Jennifer's job? What does she want her muscles to be? What is her husban
 
 ## 008 - Mark's Big Game.
 
->*Mark's favourite sport is hockey.  
+>*Mark's favorite sport is hockey.  
 He is 15 years old.  
-Mark practises three times a week.  
+Mark practices three times a week.  
 Practices are two hours long.  
 Mark plays one game a week.  
 Mark is a good hockey player.  
@@ -198,9 +198,28 @@ It is very hard to play in the NHL.
 Mark's parents want him to go to college.  
 They want him to have an education.  
 They want Mark to be successful.  
-They want Mark to be happy.*
+They want Mark to be happy.  
 
-How often does Mark pratice? How long are the pratices? When does Mark play? What does Mark want? What does Mark's parents want?
+Is Mark's favorite sport hockey?  
+Is he 15 years old?  
+How many times does Mark practice?  
+How long are the practices?  
+How many games does Mark play a week?  
+Is Mark a good hockey player?  
+When does he play?  
+Are Friday night hockey games popular?  
+Who watches Mark play?  
+Who else watches Mark play?  
+Are there always many fans?  
+Is tonight the big game?  
+Who is coming to watch Mark play?  
+What does Mark want to play in?  
+What does Mark want to make?  
+Is it very hard to play in the NHL?  
+What do Mark's parents want him to do?  
+What do they want him to have?  
+What do Mark's parents want for him?  
+What do they want for Mark? *
 
 ## 009 - The Easter Egg Hunt.
 
