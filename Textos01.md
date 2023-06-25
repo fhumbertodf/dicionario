@@ -198,9 +198,9 @@ It is very hard to play in the NHL.
 Mark's parents want him to go to college.  
 They want him to have an education.  
 They want Mark to be successful.  
-They want Mark to be happy.  
+They want Mark to be happy.*
 
-Is Mark's favorite sport hockey?  
+>*Is Mark's favorite sport hockey?  
 Is he 15 years old?  
 How many times does Mark practice?  
 How long are the practices?  
@@ -219,7 +219,7 @@ Is it very hard to play in the NHL?
 What do Mark's parents want him to do?  
 What do they want him to have?  
 What do Mark's parents want for him?  
-What do they want for Mark? *
+What do they want for Mark?*
 
 ## 009 - The Easter Egg Hunt.
 
