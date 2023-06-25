@@ -1,28 +1,48 @@
 ## 001 - First Snow Fall.
 
->*Today is November 26th. 0.25  
-It snowed all day today. 0.38  
-The snow is beautiful. 1.13  
-The snow finally stopped. 1.00  
-My sister and I are excited. 0.88  
-My Mom doesn't like the snow. 1.25  
-My Mom has to shovel the drive way. 0.63  
-My sister and I get to play. 0.88  
-I put on my hat and mittens. 0.25  
-My Mom puts on my scarf. 0.38  
-My Mom zippers my jacket. 0.38  
-My sister puts on her hat and mittens. 1.00  
-My Mom puts on her scarf. 0.38  
-My Mom zippers her jacket. 0.38  
-My sister and I go outside. 0.75  
-We begin to make a snow man. 1.25  
-My Mom starts to shovel the snow. 1.38  
-My sister and I make snow angels. 1.75  
-My sister and I throw snowballs. 0.88  
-It starts to snow again. 1.00  
-We go inside for hot chocolate. 0.25*
+>*Today is November 26th.  
+It snowed all day today.  
+The snow is beautiful.  
+The snow finally stopped.  
+My sister and I are excited.  
+My Mom doesn't like the snow.  
+My Mom has to shovel the driveway.  
+My sister and I get to play.  
+I put on my hat and mittens.  
+My Mom puts on my scarf.  
+My Mom zippers my jacket.  
+My sister puts on her hat and mittens.  
+My Mom puts on her scarf.  
+My Mom zippers her jacket.  
+My sister and I go outside.  
+We begin to make a snowman.  
+My Mom starts to shovel the snow.  
+My sister and I make snow angels.  
+My sister and I throw snowballs.  
+It starts to snow again.  
+We go inside for hot chocolate.*
 
-('snow',8), ('sister',6), ('mom',6), ('today',2), ('shovel',2), ('hat',2), ('mitten',2), ('scarf',2), ('zipper',2), ('jacket',2), ('start',2)
+Is today November 26th?  
+Did it snow all day today?  
+Is the snow beautiful?  
+Did the snow finally stop?  
+Are my sister and I excited?  
+Does my Mom like the snow?  
+Does my Mom have to shovel the driveway?  
+Do my sister and I get to play?  
+Did I put on my hat and mittens?  
+Does my Mom put on my scarf?  
+Does my Mom zipper my jacket?  
+Does my sister put on her hat and mittens?  
+Does my Mom put on her scarf?  
+Does my Mom zipper her jacket?  
+Do my sister and I go outside?  
+Do we begin to make a snowman?  
+Does my Mom start to shovel the snow?  
+Do my sister and I make snow angels?  
+Do my sister and I throw snowballs?  
+Does it start to snow again?  
+Do we go inside for hot chocolate?  
 
 ## 002 - Jessica's First Day of School.
 
