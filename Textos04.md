@@ -871,9 +871,10 @@ A good gift doesn't have to be something that costs a lot.
 My dad says that the best gifts are the ones that show how much you care for the other person.  
 I'm glad my dad liked his gift.*
 
-## 119 - New Year's Day On New Year's Day people start a new year.  
+## 119 - New Year's Day   
 
->*Many people make resolutions.  
+>*On New Year's Day people start a new year.  
+Many people make resolutions.  
 They resolve to be better people.  
 Some people decide that they will lose weight so that they can be healthier.  
 Some people decide to give up smoking.  
