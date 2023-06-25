@@ -769,29 +769,28 @@ Her brother was tugging at her leg, wondering why she was staring into outer spa
 
 ## 176 - My Friend in the Next Office
 
->*Sometimes she asks my advice now about her work or about a problem and I ask her
-advice. Sometimes she comes in to my office and says " I'm really angry, can I whine to
-you?" Then she talks about a problem and I listen, and then she returns cheerfully to her
-office. Sometimes I go into her office and say. " I'm upset about something that
-happened; can I come in for a minute?" Then I grumble to her and she listens, and then I
-go back cheerfully to my office. Each of us feels better when we have shared our
-problems. Then they are no longer problems.
-My Friend In the Next Office
-When I started my job a year ago at the university, I did not know my way around. I did
-not know where to find anything. I had a million questions. But Dianne in the next office
-took me on a tour showing me the places to eat, the library, the lecture rooms, where to
-get a picture ID card, how to get from one building to another. When I had a question I
-asked Dianne: how to use the telephone, where to make copies, where to print with my
-computer, the location of my mailbox.
-She teaches as I do. We both spend a lot of time helping students and answering their
-questions. She giggles a lot; I hear her laugh with her students.
-Dianne is shy in a group of people. She is quiet and does not start a conversation.
-Everyone around her talks and she listens. On Friday afternoons, she makes popcorn for
-everyone. We all sit in the staff room and eat microwaved popcorn and drink tea and talk.
-We start to relax for the weekend and talk about our plans.
-She is a good friend; she helps my students when I am not there; she wishes me good
-luck when I go to a lecture. I am very glad that she can be my friend in the office beside
-mine.*
+>*Sometimes she asks my advice now about her work or about a problem and I ask her advice.   
+Sometimes she comes in to my office and says "I'm really angry, can I whine to you?"   
+Then she talks about a problem and I listen, and then she returns cheerfully to her office.   
+Sometimes I go into her office and say.   
+"I'm upset about something that happened; can I come in for a minute?"   
+Then I grumble to her and she listens, and then I go back cheerfully to my office.   
+Each of us feels better when we have shared our problems.   
+Then they are no longer problems.   
+My Friend In the Next Office When I started my job a year ago at the university, I did not know my way around.   
+I did not know where to find anything.   
+I had a million questions.   
+But Dianne in the next office took me on a tour showing me the places to eat, the library, the lecture rooms, where to get a picture ID card, how to get from one building to another.   
+When I had a question I asked Dianne: how to use the telephone, where to make copies, where to print with my computer, the location of my mailbox.   
+She teaches as I do. We both spend a lot of time helping students and answering their questions. She giggles a lot; I hear her laugh with her students.   
+Dianne is shy in a group of people.   
+She is quiet and does not start a conversation.   
+Everyone around her talks and she listens.   
+On Friday afternoons, she makes popcorn for everyone.   
+We all sit in the staff room and eat microwaved popcorn and drink tea and talk.   
+We start to relax for the weekend and talk about our plans.   
+She is a good friend; she helps my students when I am not there; she wishes me good luck when I go to a lecture.   
+I am very glad that she can be my friend in the office beside mine.*
 
 ## 177 - The Musician
 
