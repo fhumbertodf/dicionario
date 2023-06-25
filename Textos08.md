@@ -936,8 +936,8 @@ It is a difficult challenge to provide opportunities for poor people of these co
 to protect the forests at the same time. However, it is very important that this challenge
 be met successfully because the forests will be needed by future generations of people.
 
-## 239
-Violence on Television
+## 239 - Violence on Television
+
 Nowadays, the issue of violence on television is often debated. Many people are
 concerned that the images of violent acts might cause the viewers to become more
 aggressive. Some of these people believe that there should be restrictions on violent
