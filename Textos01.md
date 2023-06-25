@@ -209,7 +209,6 @@ Is Mark a good hockey player?
 When does he play?  
 Are Friday night hockey games popular?  
 Who watches Mark play?  
-Who else watches Mark play?  
 Are there always many fans?  
 Is tonight the big game?  
 Who is coming to watch Mark play?  
