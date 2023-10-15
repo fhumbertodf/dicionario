@@ -22,7 +22,8 @@ My sister and I throw snowballs.
 It starts to snow again.  
 We go inside for hot chocolate.*
 
-## 002 - Jessica's First Day of School.
+
+## 002 - Jessica's first day of school.
 
 >*Today is Jessica's first day of kindergarten. 0.17  
 Jessica and her parents walk to school. 0.20  
@@ -48,7 +49,6 @@ Mr. Parker teaches the students a song. 0.27
 The lunch bell rings. 0.05  
 Jessica's first day of school is over. 0.20*
 
-('Jessica',8), ('Mr.',8), ('Parker',8), ('student',7), ('A.M.',4), ('school',3), ('teach',3), ('day',2), ('walk',2), ('Mom',2), ('classroom',2), ('bell',2), ('ring',2), ('child',2), ('recess',2)
 
 ## 003 - My Flower Garden.
 
