@@ -242,7 +242,7 @@ Joe owns his first car.*
 It is summer vacation.  
 Grace is very excited.  
 This summer will be fun.  
-Grace is going to visit her Grandparents.  
+Grace is going to visit her grandparents.  
 They have a cottage.  
 The cottage is on Lake Erie.  
 It is a lot of fun.  
@@ -264,7 +264,7 @@ Summer vacation is fun.*
 
 ## 012 - Cleaning up leaves.
 
->*The leaves are changing colours.  
+>*The leaves are changing colors.  
 I see red maple leaves.  
 I see orange maple leaves.  
 I see yellow maple leaves.  
@@ -275,8 +275,8 @@ Winter is coming.
 The leaves fall off the trees.  
 On Saturday we will clean them up.  
 The whole family helps.  
-My Dad gets the rake.  
-My Mom gets the garbage bags.  
+My dad gets the rake.  
+My mom gets the garbage bags.  
 My brother and I help too.  
 We gather leaves with our hands.  
 We make a big pile.  
@@ -292,12 +292,12 @@ Back to work.*
 ## 013 - Susan's wedding day.
 
 >*Susan is getting married.  
-Her fiancee's name is Michael.  
+Her fiancé's name is Michael.  
 They are in love.  
 They are getting married today.  
 Susan wakes up early.  
 She is getting her hair done.  
-Susan is having her make up done too.  
+Susan is having her makeup done too.  
 Susan looks beautiful.  
 She puts on her white wedding dress.  
 She puts on her veil.  
@@ -324,9 +324,9 @@ Everyone wears a poppy.
 Poppies are red flowers.  
 Poppies remind me of my grandparents.  
 Poppies remind me of their sacrifice.  
-At 11:00 AM there are two minutes of silence.  
+At 11 a.m., there are two minutes of silence.  
 People remember their friends and family.  
-People recite the poem "In Flanders Field."  
+People recite the poem "In Flanders Field".  
 It is a sad poem.  
 It helps us remember.  
 Today we wish for peace in the world.*
@@ -335,26 +335,26 @@ Today we wish for peace in the world.*
 
 >*Halloween is fun.  
 My mom buys candy.  
-My Mom buys potato chips.  
-My Mom buys chocolate bars.  
-It is for the trick or treaters.  
-My Mom buys me a costume.  
+My mom buys potato chips.  
+My mom buys chocolate bars.  
+It is for the trick-or-treaters.  
+My mom buys me a costume.  
 It is a ghost costume.  
 I am going to be scary.  
 My sister is going to dress up as a princess.  
 She will have a wand.  
 She will have a crown.  
 She will look beautiful.  
-My Dad buys a pumpkin.  
+My dad buys a pumpkin.  
 It is going to be a Jack O'Lantern.  
 We draw a face on the pumpkin.  
 We carve the face with a knife.  
 Our Jack O'Lantern looks funny.  
 We go trick or treating.  
-We knock on the neighbour's door.  
-We say, "trick or treat."  
-Our neighbours give us candy.  
-We say thanks.  
+We knock on the neighbor's door.  
+We say, "trick-or-treat".  
+Our neighbors give us candy.  
+We say "Thanks".  
 We go to many houses.  
 We go home.  
 Our parents check our candy.  
