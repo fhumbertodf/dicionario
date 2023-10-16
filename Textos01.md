@@ -350,9 +350,9 @@ It is going to be a Jack O'Lantern.
 We draw a face on the pumpkin.  
 We carve the face with a knife.  
 Our Jack O'Lantern looks funny.  
-We go trick or treating.  
+We go trick-or-treating.  
 We knock on the neighbor's door.  
-We say, "trick-or-treat".  
+We say, "trick or treat".  
 Our neighbors give us candy.  
 We say "Thanks".  
 We go to many houses.  
