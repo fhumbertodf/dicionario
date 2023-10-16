@@ -5,15 +5,15 @@ It snowed all day today.
 The snow is beautiful.  
 The snow finally stopped.  
 My sister and I are excited.  
-My Mom doesn't like the snow.  
-My Mom has to shovel the driveway.  
+My mom doesn't like the snow.  
+My mom has to shovel the driveway.  
 My sister and I get to play.  
 I put on my hat and mittens.  
-My Mom puts on my scarf.  
-My Mom zippers my jacket.  
+My mom puts on my scarf.  
+My mom zippers my jacket.  
 My sister puts on her hat and mittens.  
-My Mom puts on her scarf.  
-My Mom zippers her jacket.  
+My mom puts on her scarf.  
+My mom zippers her jacket.  
 My sister and I go outside.  
 We begin to make a snowman.  
 My Mom starts to shovel the snow.  
@@ -26,22 +26,22 @@ We go inside for hot chocolate.*
 
 >*Today is Jessica's first day of kindergarten.  
 Jessica and her parents walk to school.  
-Jessica's Mom walks with her to her classroom.
+Jessica's mom walks with her to her classroom.
 Jessica meets her teacher.  
 His name is Mr. Parker.  
-The school bell rings at 8.45 a.m.  
-Jessica hugs and kisses her Mom goodbye.  
-Jessica's Mom says "I love you!".  
-At 9 a.m, Jessica stands for the National anthem.  
+The school bell rings at 8:45 a.m..  
+Jessica hugs and kisses her mom goodbye.  
+Jessica's mom says "I love you!".  
+At 9 a.m, Jessica stands for the national anthem.  
 Mr. Parker calls out children's names.  
 Each child yells back "here!".  
 Mr. Parker teaches them about letters.  
 Mr. Parker teaches them about numbers.  
-At 10:15 a.m, the students have recess.  
+At 10:15 a.m., the students have recess.  
 Recess is fun.  
 The students get to play and eat.  
-At 10:30 a.m, the students go to gym class.  
-At 11:15 a.m, the students return to Mr. Parker's classroom.  
+At 10:30 a.m., the students go to gym class.  
+At 11:15 a.m., the students return to Mr. Parker's classroom.  
 Mr. Parker tells the students to sit on the carpet.  
 Mr. Parker reads the students a story.  
 Mr. Parker teaches the students a song.  
