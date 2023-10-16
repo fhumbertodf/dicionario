@@ -32,7 +32,7 @@ His name is Mr. Parker.
 The school bell rings at 8:45 a.m..  
 Jessica hugs and kisses her mom goodbye.  
 Jessica's mom says "I love you!".  
-At 9 a.m, Jessica stands for the national anthem.  
+At 9 a.m., Jessica stands for the national anthem.  
 Mr. Parker calls out children's names.  
 Each child yells back "here!".  
 Mr. Parker teaches them about letters.  
