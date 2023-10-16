@@ -167,7 +167,7 @@ Jennifer is happy being a mother.*
 
 >*Mark's favorite sport is hockey.  
 He is 15 years old.  
-Mark practices three times a week.  
+Mark practices 3 times a week.  
 Practices are two hours long.  
 Mark plays one game a week.  
 Mark is a good hockey player.  
