@@ -31,7 +31,7 @@ Jessica meets her teacher.
 His name is Mr. Parker.  
 The school bell rings at 8.45 a.m.  
 Jessica hugs and kisses her Mom goodbye.  
-Jessica's Mom says "I love you."  
+Jessica's Mom says "I love you!".  
 At 9 a.m, Jessica stands for the National anthem.  
 Mr. Parker calls out children's names.  
 Each child yells back "here!".  
