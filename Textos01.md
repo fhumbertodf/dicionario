@@ -54,12 +54,12 @@ Jessica's first day of school is over.*
 I love flowers.  
 I have a flower garden.  
 My garden is in front of my house.  
-My neighbour has a garden too.  
+My neighbor has a garden too.  
 My garden has different types of flowers.  
 I have roses in my garden.  
 I have tulips in my garden.  
 I have petunias in my garden.  
-My garden has different colours.  
+My garden has different colors.  
 I plant red flowers.  
 I plant orange flowers.  
 I plant blue flowers.  
