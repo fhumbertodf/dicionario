@@ -24,29 +24,29 @@ We go inside for hot chocolate.*
 
 ## 002 - Jessica's first day of school.
 
->*Today is Jessica's first day of kindergarten.   
-Jessica and her parents walk to school. 
-Jessica's Mom walks with her to her classroom. 
-Jessica meets her teacher. 
-His name is Mr. Parker.   
-The school bell rings at 8.45 a.m. 
-Jessica hugs and kisses her Mom goodbye. 
-Jessica's Mom says "I love you." 
-At 9 a.m, Jessica stands for the National anthem. 
-Mr. Parker calls out children's names. 
-Each child yells back "here!". 
-Mr. Parker teaches them about letters. 
-Mr. Parker teaches them about numbers. 
-At 10:15 a.m, the students have recess. 
-Recess is fun. 
-The students get to play and eat. 
-At 10:30 a.m, the students go to gym class. 
-At 11:15 a.m, the students return to Mr. Parker's classroom. 
-Mr. Parker tells the students to sit on the carpet. 
-Mr. Parker reads the students a story. 
-Mr. Parker teaches the students a song. 
-The lunch bell rings. 
-Jessica's first day of school is over. *
+>*Today is Jessica's first day of kindergarten.  
+Jessica and her parents walk to school.  
+Jessica's Mom walks with her to her classroom.
+Jessica meets her teacher.  
+His name is Mr. Parker.  
+The school bell rings at 8.45 a.m.  
+Jessica hugs and kisses her Mom goodbye.  
+Jessica's Mom says "I love you."  
+At 9 a.m, Jessica stands for the National anthem.  
+Mr. Parker calls out children's names.  
+Each child yells back "here!".  
+Mr. Parker teaches them about letters.  
+Mr. Parker teaches them about numbers.  
+At 10:15 a.m, the students have recess.  
+Recess is fun.  
+The students get to play and eat.  
+At 10:30 a.m, the students go to gym class.  
+At 11:15 a.m, the students return to Mr. Parker's classroom.  
+Mr. Parker tells the students to sit on the carpet.  
+Mr. Parker reads the students a story.  
+Mr. Parker teaches the students a song.  
+The lunch bell rings.  
+Jessica's first day of school is over.*
 
 ## 003 - My flower garden.
 
