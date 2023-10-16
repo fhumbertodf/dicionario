@@ -204,10 +204,10 @@ The Easter egg is behind a table.
 She puts it in her basket.  
 Tracey finds a chocolate Easter bunny.  
 It's under the couch.  
-Tracey puts in her basket.  
+Tracey puts it in her basket.  
 Sydney finds a chocolate Easter bunny too.  
 It's in front of the television.  
-She puts in her basket.  
+She puts it in her basket.  
 Everybody finds lots of chocolate.  
 Everybody shares their chocolate.  
 Samantha, Tracey, and Sydney love Easter.*
@@ -217,7 +217,7 @@ Samantha, Tracey, and Sydney love Easter.*
 >*Joe is 18 years old.  
 Joe works at McDonald's.  
 Joe saves all his money.  
-Joe has $2500.00 in the bank.  
+Joe has $2500 in the bank.  
 He wants to buy a sports car.  
 Joe starts to look for a new car.  
 Joe looks in the newspaper.  
