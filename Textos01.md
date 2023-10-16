@@ -22,7 +22,6 @@ My sister and I throw snowballs.
 It starts to snow again.  
 We go inside for hot chocolate.*
 
-
 ## 002 - Jessica's first day of school.
 
 >*Today is Jessica's first day of kindergarten. 0.17  
@@ -49,8 +48,7 @@ Mr. Parker teaches the students a song. 0.27
 The lunch bell rings. 0.05  
 Jessica's first day of school is over. 0.20*
 
-
-## 003 - My Flower Garden.
+## 003 - My flower garden.
 
 >*My name is Anne.  
 I love flowers.  
@@ -72,9 +70,7 @@ I kill the weeds in my garden.
 I kill insects that eat my flowers.  
 I love my beautiful garden.*
 
-Where is Anne's garden? How many types of flowers does her garden have? Wich color are the flowers? What does Anne do every day? Why does Anne kill the insects?
-
-## 004 - Going Camping.
+## 004 - Going camping.
 
 >*The Bright family went camping on the weekend.  
 The Bright family went to Silent Lake.  
@@ -99,9 +95,7 @@ They saw a squirrel.
 But they didn't see a bear.  
 The Bright family had a fun vacation.*
 
-Where did the Bright family go on the weekend? How long did they go? What did they sing? What did they do on Sunday? Which animals did they see?
-
-## 005 - My House.
+## 005 - My house.
 
 >*I live in a house.  
 My house is small.  
@@ -125,9 +119,7 @@ My backyard has a swimming pool.
 My backyard has a vegetable garden.  
 My family likes our house.*
 
-How many bedrooms does the house have? Who cooks dinner every night? What does Dad have in the basement? What does Dad make?  What is in the backyard?
-
-## 006 - My First Pet.
+## 006 - My first pet.
 
 >*My name is Sarah.  
 I am 14 years old.  
@@ -151,9 +143,7 @@ Milo likes to sit in my lap.
 Milo likes to sleep on my bed.  
 Milo is a good pet.*
 
-How old is Sarah? Which color are Milo's paw? What can't Milo have? What does Milo like to hunt? Where does Milo like to sleep?
-
-## 007 - Jennifer the Firefighter.
+## 007 - Jennifer the firefighter.
 
 >*Jennifer Smith is a firefighter.  
 She is one of the first female firefighters.  
@@ -173,9 +163,7 @@ Jennifer is happy being a firefighter.
 Jennifer is happy being a wife.  
 Jennifer is happy being a mother.*
 
-What is Jennifer's job? What does she want her muscles to be? What is her husband's job? How many daughters does she have? Who are proud of Jennifer?
-
-## 008 - Mark's Big Game.
+## 008 - Mark's big game.
 
 >*Mark's favorite sport is hockey.  
 He is 15 years old.  
@@ -197,26 +185,6 @@ Mark's parents want him to go to college.
 They want him to have an education.  
 They want Mark to be successful.  
 They want Mark to be happy.*
-
-Is Mark's favorite sport hockey?  
-Is he 15 years old?  
-How many times does Mark practice?  
-How long are the practices?  
-How many games does Mark play a week?  
-Is Mark a good hockey player?  
-When does he play?  
-Are Friday night hockey games popular?  
-Who watches Mark play?  
-Are there always many fans?  
-Is tonight the big game?  
-Who is coming to watch Mark play?  
-What does Mark want to play in?  
-What does Mark want to make?  
-Is it very hard to play in the NHL?  
-What do Mark's parents want him to do?  
-What do they want him to have?  
-What do Mark's parents want for him?  
-What do they want for Mark?  
 
 ## 009 - The Easter Egg Hunt.
 
@@ -244,9 +212,7 @@ Everybody finds lots of chocolate.
 Everybody shares their chocolate.  
 Samantha, Tracey, and Sydney love Easter.*
 
-Who is going to an Easter egg hunt? Who hid chocolate eggs and bunnies? Where does Samantha find an Easter? Where does Tracey find a chocolate bunny? What does Sydney find in front of the television?
-
-## 010 - Joe's First Car.
+## 010 - Joe's first car.
 
 >*Joe is 18 years old.  
 Joe works at McDonald's.  
@@ -270,9 +236,7 @@ He must pay the money back to his dad.
 Joe is very happy.  
 Joe owns his first car.*
 
-Where does Joe work? What does Joe want to buy? Who does he see car with? What does his dad tell him? What will Joe's dad do?
-
-## 011 - Summer Vacation.
+## 011 - Summer vacation.
 
 >*Today is the last day of school.  
 It is summer vacation.  
@@ -298,9 +262,7 @@ Grace will see the ocean.
 Cape Cod will be beautiful.  
 Summer vacation is fun.*
 
-Who is Grace going to visit? Where is the cottage? Where will Grace sleep? What will Grace learn? Where is Grace going with her parent?
-
-## 012 - Cleaning Up Leaves.
+## 012 - Cleaning up leaves.
 
 >*The leaves are changing colours.  
 I see red maple leaves.  
@@ -327,7 +289,7 @@ Everyone laughs.
 Play time is over.  
 Back to work.*
 
-## 013 - Susan's Wedding Day.
+## 013 - Susan's wedding day.
 
 >*Susan is getting married.  
 Her fiancee's name is Michael.  
@@ -351,8 +313,6 @@ Susan needs a penny for her shoe.
 It will bring her good luck.  
 Susan is ready to get married.*
 
-What's Susan's fiancées name? Who wakes up early? Which is blue? What is Susan wearing? What does Susan need for her shoe?
-
 ## 014 - Remembrance Day.
 
 >*My grandfather fought in World War II.  
@@ -370,8 +330,6 @@ People recite the poem "In Flanders Field."
 It is a sad poem.  
 It helps us remember.  
 Today we wish for peace in the world.*
-
-What was the grandmother's job in World War II? When Remembrance Day? What does everyone wear? How many minutes of silence are there? What do people recite?
 
 ## 015 - Halloween Night.
 
@@ -405,8 +363,6 @@ We eat lots of candy.
 We don't feel very good.  
 We go to bed.*
 
-What does Mom buy? Who is the sister is going to dress up as? What does Dad buy? What do they carve on the pumpkin? What do neighbors give them?
-
 ## 016 - Christmas Eve.
 
 >*Ben and Melissa are getting ready for Christmas.  
@@ -436,8 +392,6 @@ They love our presents.
 Everyone cleans up the wrapping paper.  
 It is time for breakfast.*
 
-Where do they put the Christmas lights? What do they leave for Santa? Who wakes up early? Where are the presents? What does everyone clean up?
-
 ## 017 - Thanksgiving.
 
 >*We are having Thanksgiving at our house.  
@@ -465,7 +419,7 @@ We say "thank you" for all we have.
 We eat and eat.  
 It is a good Thanksgiving.*
 
-## 018 - Learning How to Drive.
+## 018 - Learning how to drive.
 
 >*Amy is 16 years old.  
 She lives in a small town.  
@@ -511,9 +465,7 @@ They need to have clean sheets put on them. 1.45
 There are just so many things to do. 0.00  
 Household chores take up a lot of time. 0.18*
 
-('need',11), ('clean',5), ('clothe',4), ('wash',3), ('floor',2), ('furniture',2), ('dry',2), ('dish',2), ('bed',2)
-
-## 020 - Working Outside.
+## 020 - Working outside.
 
 >*Today I was working outside.  
 It was a sunny day, and I was very hot.  
@@ -538,7 +490,7 @@ I talked to my neighbour, and I helped her trim a tree.
 I planted some bulbs, and then I went into the house.  
 I was exhausted.*
 
-## 021 - Daily Schedule.
+## 021 - Daily schedule.
 
 >*I wake up every morning at seven o'clock.  
 I take a shower.  
@@ -571,8 +523,6 @@ After supper, I do my homework.
 I wash my face and hands, and brush my teeth.  
 I change into my pajamas.  
 I go to bet, at nine o’clock.*
-
-Where do the boys play? What time do they get out of shcool?
 
 ## 022 - Meals.
 
@@ -607,8 +557,6 @@ My favorite fruits are apples, peaches, plums and bananas.
 After supper, my mother always has a cup of tea with sugar and cream in it.  
 After dinner, I help my mother with the dishes.  
 Usually she washes the dishes, and I will dry them.*
-
-What does father have for breakfast? What does the family do at supper time? What do parents have with their dinner? What does mother always have after supper?
 
 ## 023 - Seasons.
 
@@ -765,7 +713,7 @@ We also take drama at my school.
 I like to act.  
 I got the lead role in the school play.*
 
-## 028 - International Students.
+## 028 - International students.
 
 >*We have many international students at my school.  
 Some of the students come from England.  
@@ -793,7 +741,7 @@ It is a good way for the host families and the students to make friends.
 Many of the international students stay in contact with their friends and host families even after they have gone back to their homelands.  
 The international students learn a lot from their host families because they eat Canadian foods, and they learn what it is like to live in a Canadian household.*
 
-## 029 - Interests and Hobbies.
+## 029 - Interests and hobbies.
 
 >*It is very rewarding to have different interests and hobbies.  
 Some people like to play computer games.  
