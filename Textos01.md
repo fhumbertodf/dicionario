@@ -100,17 +100,17 @@ The Bright family had a fun vacation.*
 >*I live in a house.  
 My house is small.  
 My house has two bedrooms.  
-My Mom and Dad sleep in one bedroom.  
+My mom and dad sleep in one bedroom.  
 My sister and I share the other bedroom.  
 My house has a kitchen.  
-My Mom and Dad cook dinner there every night.  
+My mom and dad cook dinner there every night.  
 My house has a living room.  
 My family watches television there every night.  
 My house has a big bathroom.  
 My house has a lot of closets.  
 My house has a basement.  
-My Dad has a workshop in the basement.  
-My Dad makes wood furniture.  
+My dad has a workshop in the basement.  
+My dad makes wood furniture.  
 My house does not have a second floor.  
 My house has a garage.  
 My house has a big backyard.  
