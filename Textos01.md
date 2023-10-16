@@ -78,7 +78,7 @@ The Bright family left on Friday.
 They camped for three days.  
 The Bright family brought a big tent.  
 They brought a lot of food.  
-They brought insect repellant.  
+They brought insect repellent.  
 The Bright family had a campfire on Friday.  
 They roasted marshmallows.  
 They sang campfire songs.  
