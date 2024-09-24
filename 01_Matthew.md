@@ -6,7 +6,7 @@
 
 >*Now the birth of Jesus Christ took place in this way. When his mother Mary had been betrothed to Joseph, before they came together she was found to be with a child of the Holy Spirit; and her husband Joseph, being a just man and unwilling to put her to shame, resolved to send her away quietly. But as he considered this, behold, an angel of the Lord appeared to him in a dream, saying, Joseph, son of David, do not fear to take Mary your wife, for that which is conceived in her is of the Holy Spirit; she will bear a son, and you shall call his name Jesus, for he will save his people from their sins. All this took place to fulfil what the Lord had spoken by the prophet: Behold, a virgin shall conceive and bear a son, and his name shall be called Emmanuel (which means, God with us).*
 
->*When Joseph woke from sleep, he did as the angel of the Lord commanded him. He took his wife, but knew her not until she had borne a son. And he called his name Jesus.*
+>*When Joseph woke from sleep, he did as the angel of the Lord commanded him; he took his wife, but knew her not until she had borne a son; and he called his name Jesus.*
 
 ## 02 - The Visit of the Wise Men.
 
